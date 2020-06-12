@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
+  It destroys one's nerves to be amiable every day to the same human being. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
