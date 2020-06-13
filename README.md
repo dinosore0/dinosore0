@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Silence is an ornament for women. 
+  Millions of men have lived to fight, build palaces and boundaries, shape destinies and societies but the compelling force of all times has been the force of originality and creation profoundly affecting the roots of human spirit. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
