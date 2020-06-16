@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have decided to stick with love. Hate is too great a burden to bear. 
+  You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
