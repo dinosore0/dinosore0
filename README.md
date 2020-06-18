@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are one hundred men seeking security to one able man who is willing to risk his fortune. 
+  I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
