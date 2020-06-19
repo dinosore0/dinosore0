@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
+  Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
