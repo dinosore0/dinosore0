@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The key is to keep company only with people who uplift you, whose presence calls forth your best. 
+  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
