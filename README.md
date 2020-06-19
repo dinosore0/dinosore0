@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
+  There are one hundred men seeking security to one able man who is willing to risk his fortune. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
