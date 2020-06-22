@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You have to learn the rules of the game. And then you have to play better than anyone else. 
+  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
