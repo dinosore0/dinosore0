@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Three rules for a career: 1) Don’t sell anything you wouldn’t buy yourself; 2) Don’t work for anyone you don’t respect and admire; and 3) Work only with people you enjoy. 
+  If God treats you well by teaching you a disastrous lesson, you never forget it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
