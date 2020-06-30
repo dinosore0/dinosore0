@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I felt extremely uncomfortable as the focal point, in the spotlight. I really like the behind the scenes role, because all my freedom is there. 
+  Fear is stupid. So are regrets. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
