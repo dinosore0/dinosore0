@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Loss is nothing else but change, and change is Nature's delight. 
+  Not only does God play dice, but... he sometimes throws them where they cannot be seen. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
