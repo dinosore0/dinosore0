@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not only does God play dice, but... he sometimes throws them where they cannot be seen. 
+  Injustice anywhere is a threat to justice everywhere. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
