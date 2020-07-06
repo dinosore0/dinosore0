@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws. 
+  Loss is nothing else but change, and change is Nature's delight. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
