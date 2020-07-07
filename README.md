@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. 
+  We the unwilling.<br>Led by the unqualified.<br>To kill the unfortunate.<br>Die for the ungrateful. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
