@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
+  After my spectacular failures, I could not be satisfied with an ordinary success. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
