@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If it isn't your job to, perhaps it's your opportunity. 
+  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
