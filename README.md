@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The path to success is to take massive, determined action. 
+  There is no wider gulf in the universe than yawns between those on the hither and thither side of vital experience. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
