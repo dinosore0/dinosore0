@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A life is like a garden. Perfect moments can be had, but not preserved, except in memory. 
+  Microsoft didn't kill Linux on the Desktop... Apple did. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
