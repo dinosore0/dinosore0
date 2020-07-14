@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Science exists, moreover, only as a journey toward troth. Stifle dissent and you end that journey. 
+  It is better to have a permanent income than to be fascinating. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
