@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The tent is a symbol of being transient.  It's a symbol of being at home, wherever you are. 
+  Science exists, moreover, only as a journey toward troth. Stifle dissent and you end that journey. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
