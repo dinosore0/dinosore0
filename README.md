@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Either you think, or else others have to think for you and take power from you, pervert and discipline your natural tastes, civilize and sterilize you. 
+  I am always ready to learn although I do not always like being taught. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
