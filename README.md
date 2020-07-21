@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
+  I challenge you to make your life a masterpiece. I challenge you to join the ranks of those people who live what they teach, who walk their talk. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
