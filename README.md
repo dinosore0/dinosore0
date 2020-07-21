@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man should forget his anger before he lies down to sleep. 
+  Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
