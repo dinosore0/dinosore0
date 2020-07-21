@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. 
+  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
