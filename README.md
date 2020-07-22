@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Proverbs are always platitudes until you have personally experienced the truth of them. 
+  Man should forget his anger before he lies down to sleep. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
