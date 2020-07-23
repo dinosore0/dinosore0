@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Quarrels often arise in marriages when the bridal gifts are excessive. 
+  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
