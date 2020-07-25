@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are disturbed not by things, but by the view which they take of them. 
+  Many iOS developers model App Store pricing after mass-market superhits. Would you enter the restaurant business by mimicking McDonalds? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
