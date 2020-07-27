@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them. 
+  Life is a tragedy when seen in close-up, but a comedy in long-shot. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
