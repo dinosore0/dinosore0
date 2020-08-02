@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Travel teaches toleration. 
+  Crime and bad lives are the measure of a State's failure, all crime in the end is the crime of the community. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
