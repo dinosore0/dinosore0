@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A person with a flexible schedule and average resources will be happier than a rich person who has everything except a flexible schedule. 
+  The end move in politics is always to pick up a gun. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
