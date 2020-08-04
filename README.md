@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is the mark of a truly intelligent person to be moved by statistics. 
+  Government of the people, by the people, for the people, shall not perish from the Earth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
