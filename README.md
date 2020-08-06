@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's better to be unhappy alone than unhappy with someone - so far. 
+  Failure is nature's plan to prepare you for great responsibilities. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
