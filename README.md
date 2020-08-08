@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The very word 'secrecy' is repugnant in a free and open society and we are as a people inherently and historically opposed to secret societies, to secret oaths, and to secret proceedings. 
+  If someone commits an error and wrong toward you, you must instantly forgive him. Do not complain of others. Refrain from reprimanding them, and if you wish to give admonition or advice, let it be offered in such a way that it will not burden the bearer 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
