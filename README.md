@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We will never have true civilization until we have learned to recognize the rights of others. 
+  The very word 'secrecy' is repugnant in a free and open society and we are as a people inherently and historically opposed to secret societies, to secret oaths, and to secret proceedings. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
