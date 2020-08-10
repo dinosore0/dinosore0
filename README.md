@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The important thing is not to stop questioning; curiosity has its own reason for existing. 
+  We will never have true civilization until we have learned to recognize the rights of others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
