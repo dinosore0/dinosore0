@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I’ve learned anything from video games, it is that when you meet enemies, it means that you’re going in the right direction. 
+  The Chinese government wants me to say that for many centuries Tibet has been part of China. Even if I make that statement, many people would just laugh. And my statement will not change past history. History is history. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
