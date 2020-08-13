@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods. 
+  Never allow someone to be your priority while allowing yourself to be their option. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
