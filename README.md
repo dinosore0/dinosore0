@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Shun no toil to make yourself remarkable by some talent or other yet do not devote yourself to one branch exclusively. Strive to get clear notions about all. Give up no science entirely for science is but one. 
+  Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
