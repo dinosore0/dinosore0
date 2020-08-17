@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Come, gentlemen, I hope we shall drink down all unkindness. 
+  Profit in business comes from repeat customers, customers that boast about your project or service, and that bring friends with them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
