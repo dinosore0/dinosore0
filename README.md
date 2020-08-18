@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell your heart that the fear of suffering is worse than the suffering itself. And no heart has ever suffered when it goes in search of its dream. 
+  In the middle of difficulty lies opportunity. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
