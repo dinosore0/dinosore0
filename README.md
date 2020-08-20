@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Business is always interfering with pleasure - but it makes other pleasures possible. 
+  A leader is one who knows the way, goes the way and shows the way. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
