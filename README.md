@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is one who knows the way, goes the way and shows the way. 
+  My goal has never been to dominate the market.  My goal has always just been to just make a living. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
