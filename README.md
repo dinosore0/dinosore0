@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-   Time is the only measure that I allow myself to envy 
+  The kind of people I look for to fill top management spots are the mavericks. These are the guys who try to do more than they're expected to do - they always reach. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
