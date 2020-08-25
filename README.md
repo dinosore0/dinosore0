@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength. 
+  Don't you stay at home of evenings? Don't you love a cushioned seat in a corner, by the fireside, with your slippers on your feet? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
