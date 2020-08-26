@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The starting point of all achievement is desire. 
+  The superior man is distressed by the limitations of his ability he is not distressed by the fact that men do not recognize the ability that he has. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
