@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are 2 things that will bring you success in life: 1) Don't tell everyone everything you know. 
+  I had a cat once, but every time I tried to give him a bath, the fur stuck to my tongue. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
