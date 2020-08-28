@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
+  If you tell people where to go, but not how to get there, you'll be amazed at the results. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
