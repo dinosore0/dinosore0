@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you tell people where to go, but not how to get there, you'll be amazed at the results. 
+  There are 2 things that will bring you success in life: 1) Don't tell everyone everything you know. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
