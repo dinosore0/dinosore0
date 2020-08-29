@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
+  Advertising is legalized lying. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
