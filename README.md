@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
+  Man, alone, has the power to transform his thoughts into physical reality; man, alone, can dream and make his dreams come true. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
