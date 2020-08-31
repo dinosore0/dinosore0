@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man, alone, has the power to transform his thoughts into physical reality; man, alone, can dream and make his dreams come true. 
+  If you pursue good with labor, the labor passes away but the good remains if you pursue evil with pleasure, the pleasure passes away and the evil remains. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
