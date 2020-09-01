@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. 
+  The path to success is to take massive, determined action. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
