@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  An eye for an eye will make the whole world blind. 
+  If you try and take a cat apart to see how it works, the first thing you have on your hands is a non-working cat. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
