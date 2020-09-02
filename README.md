@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you try and take a cat apart to see how it works, the first thing you have on your hands is a non-working cat. 
+  When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
