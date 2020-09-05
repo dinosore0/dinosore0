@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Agressive music can only shock you once. Afterwards its impact declines. It's inevitable. 
+  Nobody need wait a single moment before starting to improve the world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
