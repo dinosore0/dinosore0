@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best way out is always through. 
+  The secret to being a writer is that you have to write. It's not enough to think about writing or to study literature or plan a future life as an author. You really have to lock yourself away, alone, and get to work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
