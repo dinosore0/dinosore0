@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day. 
+  Wine hath drowned more men than the sea. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
