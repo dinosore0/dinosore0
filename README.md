@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The secret of success in life is for a man to be ready for his opportunity when it comes. 
+  Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
