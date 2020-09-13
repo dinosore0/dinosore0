@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. 
+  Keep your fears to yourself, but share your courage with others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
