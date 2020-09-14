@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wise leaders generally have wise counselors because it takes a wise person themselves to distinguish them. 
+  The secret of success in life is for a man to be ready for his opportunity when it comes. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
