@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before you embark on a journey of revenge, dig two graves. 
+  Ever tried. Ever failed. No matter. Try again. Fail again. Fail better. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
