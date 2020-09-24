@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be idle is a short road to death and to be diligent is a way of life foolish people are idle, wise people are diligent. 
+  I am not superstitious, but I am a little stitious. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
