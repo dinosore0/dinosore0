@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I may be as bad as the worst, but, thank God, I am as good as the best. 
+  Je connais mes limites. C'est pourquoi je vais au-delà. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
