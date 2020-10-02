@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our music's kind of about taking something ugly and making it beautiful. 
+  I may be as bad as the worst, but, thank God, I am as good as the best. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
