@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Lost time is never found again. 
+  The best thing to do is stare it in the face and move on. We have to face our fears and plow through. I think taking chances takes a lot more courage than staying stagnant and doing what's safe and comfortable. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
