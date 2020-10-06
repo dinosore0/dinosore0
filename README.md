@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There comes a pause, for human strength will not endure to dance without cessation and everyone must reach the point at length of absolute prostration. 
+  Peace is liberty in tranquillity. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
