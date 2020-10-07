@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
+  Poets utter great and wise things which they do not themselves understand. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
