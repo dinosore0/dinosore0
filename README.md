@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Who in the world am I? Ah, that's the great puzzle. 
+  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
