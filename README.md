@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
+  It is the ultimate luxury to combine passion and contribution.  It's also a very clear path to happiness. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
