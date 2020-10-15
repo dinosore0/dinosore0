@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness is secured through virtue; it is a good attained by man's own will. 
+  Love is composed of a single soul inhabiting two bodies. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
