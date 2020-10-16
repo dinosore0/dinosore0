@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. 
+  The only real progress lies in learning to be wrong all alone. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
