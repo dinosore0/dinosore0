@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've come to believe that all my past failure and frustration were actually laying the foundation for the understandings that have created the new level of living I now enjoy. 
+  You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
