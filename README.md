@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The older I grow the more I distrust the familiar doctrine that age brings wisdom. 
+  It is the supreme art of the teacher to awaken joy in creative expression and knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
