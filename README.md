@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would rather live my life as if there is a God and die to find out there isn't, than live my life as if there isn't and die to find out there is. 
+  Capitalism has always been a failure for the lower classes. It is now beginning to fail for the middle classes. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
