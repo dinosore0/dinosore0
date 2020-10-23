@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The older you get, the fewer things you really love. 
+  In most communities it is illegal to cry 'fire' in a crowded assembly. Should it not be considered serious international misconduct to manufacture a general war scare in an effort to achieve local political aims? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
