@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Age is an issue of mind over matter. If you don't mind, it doesn't matter. 
+  Courage is the art of being the only one who knows you're scared to death. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
