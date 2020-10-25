@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the art of being the only one who knows you're scared to death. 
+  A little knowledge is a dangerous thing, but a little want of knowledge is also a dangerous thing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
