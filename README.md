@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We've demonstrated a strong track record of being very disciplined with the use of our cash. We don't let it burn a hole in our pocket, we don't allow it to motivate us to do stupid acquisitions. And so I think that we'd like to continue to keep our powder dry, because we do feel that there are one or more strategic opportunities in the future. 
+  If the service is free, the product being sold is you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
