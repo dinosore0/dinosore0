@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Riches come forth from one who owns little, while another of material wealth turns penniless. 
+  Your manuscript is both good and original but the part that is good is not original, and the part that is original is not good. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
