@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many of life's failures are people who did not realize how close they were to success when they gave up. 
+  My experience has been that work is almost the best way to pull oneself out of the depths. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
