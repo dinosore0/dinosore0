@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Young love is a flame very pretty, often very hot and fierce, but still only light and flickering. The love of the older and disciplined heart is as coals, deep-burning, unquenchable. 
+  There's no business like show business, but there are several businesses like accounting. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
