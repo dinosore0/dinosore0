@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is always some madness in love. But there is also always some reason in madness. 
+  Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
