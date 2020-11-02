@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My books are like water; those of the great geniuses are wine. Everybody drinks water. 
+  There is no revenge so complete as forgiveness. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
