@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not life, but good life, is to be chiefly valued. 
+  My books are like water; those of the great geniuses are wine. Everybody drinks water. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
