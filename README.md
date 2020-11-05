@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  [Lisp is the] greatest single programming language ever designed. 
+  Every man must do two things alone; he must do his own believing and his own dying. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
