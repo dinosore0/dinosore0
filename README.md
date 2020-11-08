@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most great people have attained their greatest success just one step beyond their greatest failure. 
+  Liberty consists in the power of doing that which is permitted by the law. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
