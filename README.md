@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you think you can do a thing or think you can't do a thing, you're right. 
+  I'm a heroine addict. I need to have sex with women who have saved someone's life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
