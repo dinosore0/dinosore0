@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
+  If you pursue good with labor, the labor passes away but the good remains if you pursue evil with pleasure, the pleasure passes away and the evil remains. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
