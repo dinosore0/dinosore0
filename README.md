@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you pursue good with labor, the labor passes away but the good remains if you pursue evil with pleasure, the pleasure passes away and the evil remains. 
+  Some mischievous people always there. Last several thousand years, always there. In future, also. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
