@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
+  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
