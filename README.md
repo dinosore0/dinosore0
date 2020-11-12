@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
+  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
