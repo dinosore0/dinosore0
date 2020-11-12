@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tough times never last - tough people do. 
+  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
