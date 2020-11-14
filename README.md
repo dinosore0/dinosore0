@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Treat your men as you would your own beloved sons. And they will follow you into the deepest valley. 
+  All difficult things have their origin in that which is easy, and great things in that which is small. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
