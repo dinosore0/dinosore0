@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We'll try to cooperate fully with the IRS, because, as citizens, we feel a strong patriotic duty not to go to jail. 
+  If we don't know life, how can we know death? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
