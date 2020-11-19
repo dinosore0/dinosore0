@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before we acquire great power we must acquire wisdom to use it well. 
+  Beware of little expenses. A small leak will sink a great ship. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
