@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. 
+  There is no friendship, no love, like that of the parent for the child. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
