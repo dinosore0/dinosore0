@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The law will never make a man free; it is men who have got to make the law free. 
+  Science exists, moreover, only as a journey toward troth. Stifle dissent and you end that journey. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
