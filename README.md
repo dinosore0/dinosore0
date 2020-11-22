@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  From a child I was fond of reading, and all the little money that came into my hands was ever laid out in books. 
+  Life is what happens to you while you're making other plans. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
