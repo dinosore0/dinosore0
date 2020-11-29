@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
+  After climbing a great hill, one only finds that there are many more hills to climb. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
