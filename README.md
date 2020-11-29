@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
+  I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
