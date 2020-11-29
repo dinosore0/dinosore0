@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing. 
+  Nobody gets to live life backward. Look ahead, that is where your future lies. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
