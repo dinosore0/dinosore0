@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love all, trust a few, do wrong to none. 
+  “I’m not going to make it.”—Brand.<br>“Yes, you are.  Yes, you are.”—Cooper 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
