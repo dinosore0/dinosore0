@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In books lies the soul of the whole past time. 
+  There are more things in heaven and earth, Horatio,<br>Thank are dreamt of in your philosophy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
