@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is one of the beautiful compensations in this life that no one can sincerely try to help another without helping himself. 
+  ###Brief tip or insight### 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
