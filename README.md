@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Critics are men who sit and watch a battle from a high place and come down to shoot the survivors. 
+  It is one of the beautiful compensations in this life that no one can sincerely try to help another without helping himself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
