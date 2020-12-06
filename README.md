@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For awhile after you quit Keats all other poetry seems to be only whistling or humming. 
+  Critics are men who sit and watch a battle from a high place and come down to shoot the survivors. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
