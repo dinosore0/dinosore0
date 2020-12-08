@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When one has the feeling of dislike for evil, when one feels tranquil, one finds pleasure in listening to good teachings when one has these feelings and appreciates them, one is free of fear. 
+  All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
