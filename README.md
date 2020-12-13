@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
+  That man is richest whose pleasures are the cheapest. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
