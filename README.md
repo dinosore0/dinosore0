@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Computer science is no more about computers than astronomy is about telescopes. 
+  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
