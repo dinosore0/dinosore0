@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is error alone which needs the support of government. Truth can stand by itself. 
+  If I’ve learned anything from video games, it is that when you meet enemies, it means that you’re going in the right direction. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
