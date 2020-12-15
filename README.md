@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think frugality drives innovation, just like other constraints do. One of the only ways to get out of a tight box is to invent your way out. 
+  What would there be in a story of happiness? Only what prepares it, only what destroys it can be told. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
