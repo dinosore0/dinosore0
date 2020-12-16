@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many of life's failures are people who did not realize how close they were to success when they gave up. 
+  A person without a sense of humor is like a wagon without springs. It's jolted by every pebble on the road. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
