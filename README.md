@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
+  Your intellect may be confused, but your emotions will never lie to you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
