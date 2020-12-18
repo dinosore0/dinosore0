@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ladies, if you want to know the way to my heart... good spelling and good grammar, good punctuation, capitalize only where you are supposed to capitalize, it's done. 
+  The gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
