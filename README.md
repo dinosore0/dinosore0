@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're doing something you love, an hour feels like 5 minutes.  If you are doing something that doesn't resonate with your spirit, 5 minutes feels like an hour. 
+  Those whom we can love, we can hate to others we are indifferent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
