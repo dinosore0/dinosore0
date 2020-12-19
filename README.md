@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those whom we can love, we can hate to others we are indifferent. 
+  Good artists are skilled, but great artists convey an immense depth of feeling through their expertise. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
