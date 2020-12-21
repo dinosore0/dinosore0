@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The kind of people I look for to fill top management spots are the mavericks. These are the guys who try to do more than they're expected to do - they always reach. 
+  Wise leaders generally have wise counselors because it takes a wise person themselves to distinguish them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
