@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many iOS developers model App Store pricing after mass-market superhits. Would you enter the restaurant business by mimicking McDonalds? 
+  True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
