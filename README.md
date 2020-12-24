@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm not afraid of storms, for I'm learning how to sail my ship. 
+  Happiness is not something you postpone for the future; it is something you design for the present. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
