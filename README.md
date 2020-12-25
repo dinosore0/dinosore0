@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not often that someone comes along who is a true friend and a good writer. 
+  I am not a saint, unless you think of a saint as a sinner who keeps on trying. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
