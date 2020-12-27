@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
+  I have great hopes that we shall love each other all our lives as much as if we had never married at all. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
