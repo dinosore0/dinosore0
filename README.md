@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our liberty depends on the freedom of the press, and that cannot be limited without being lost. 
+  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
