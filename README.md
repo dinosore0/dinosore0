@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In a disordered mind, as in a disordered body, soundness of health is impossible. 
+  How incessant and great are the ills with which a prolonged old age is replete. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
