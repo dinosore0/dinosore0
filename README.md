@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How incessant and great are the ills with which a prolonged old age is replete. 
+  My mother said I must always be intolerant of ignorance but understanding of illiteracy. That some people, unable to go to school, were more educated and more intelligent than college professors. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
