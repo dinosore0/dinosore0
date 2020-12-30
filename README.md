@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let not your heart be offended with anyone… Beware! Beware! lest ye offend any heart. 
+  Management is doing things right; leadership is doing the right thing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
