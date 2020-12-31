@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I’ve failed over and over again in my life. And that is why I succeed. 
+  You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
