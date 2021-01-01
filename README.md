@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes just when I say hello the right way, I'm like, 'Whoa, I'm so cool.' 
+  I’ve failed over and over again in my life. And that is why I succeed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
