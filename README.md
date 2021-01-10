@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man cannot discover new oceans unless he has the courage to lose sight of the shore. 
+  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
