@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Positive, adj.: Mistaken at the top of one's voice. 
+  Analysis does not set out to make pathological reactions impossible, but to give the patient's ego freedom to decide one way or another. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
