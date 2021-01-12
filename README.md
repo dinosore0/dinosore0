@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We'll try to cooperate fully with the IRS, because, as citizens, we feel a strong patriotic duty not to go to jail. 
+  The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
