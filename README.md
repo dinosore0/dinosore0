@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow. 
+  Love is composed of a single soul inhabiting two bodies. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
