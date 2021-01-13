@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
+  To improve is to change; to be perfect is to change often. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
