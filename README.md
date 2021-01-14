@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He is happiest, be he king or peasant, who finds peace in his home. 
+  Never allow someone to be your priority while allowing yourself to be their option. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
