@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Health is the soul that animates all the enjoyments of life, which fade and are tasteless without it. 
+  The most splendid achievment of all is the constant striving to surpass yourself and to be worthy of your own approval. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
