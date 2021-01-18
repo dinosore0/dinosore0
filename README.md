@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It will be I, it will be the silence, where I am, I don't know, I'll never know, in the silence you don't know, you must go on, I can't go on, I'll go on. 
+  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
