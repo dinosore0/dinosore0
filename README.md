@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The art of art, the glory of expression and the sunshine of the light of letters, is simplicity. 
+  Marriage is an alliance entered into by a man who can't sleep with the window shut, and a woman who can't sleep with the window open. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
