@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who steals a little steals with the same wish as he who steals much, but with less power. 
+  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
