@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
+  I do not think there is any other quality so essential to success, of any kind, as perseverance. It overcomes almost everything. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
