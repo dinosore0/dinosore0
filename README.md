@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'd rather attempt to do something great and fail than to attempt to do nothing and succeed. 
+  He who steals a little steals with the same wish as he who steals much, but with less power. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
