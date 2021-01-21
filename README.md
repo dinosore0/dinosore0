@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Yo. Gatorade me, b---h! 
+  I'd rather attempt to do something great and fail than to attempt to do nothing and succeed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
