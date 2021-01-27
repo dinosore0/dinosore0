@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Right now it's only a notion, but I think I can get the money to make it into a concept, and later turn it into an idea. 
+  Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
