@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money. 
+  In order to carry a positive action we must develop here a positive vision. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
