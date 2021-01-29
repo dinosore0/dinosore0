@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
+  Microsoft didn't kill Linux on the Desktop... Apple did. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
