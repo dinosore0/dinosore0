@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't cry because it's over. Smile because it happened. 
+  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
