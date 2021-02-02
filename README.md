@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you can find a path with no obstacles, it probably doesn't lead anywhere. 
+  Some people will never learn anything, for this reason, because they understand everything too soon. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
