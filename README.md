@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We see past time in a telescope and present time in a microscope. Hence the apparent enormities of the present. 
+  I am easily satisfied with the very best. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
