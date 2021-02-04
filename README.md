@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones. 
+  The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
