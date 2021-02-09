@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Bashfulness is an ornament to youth, but a reproach to old age. 
+  Never contract friendship with a man that is not better than thyself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
