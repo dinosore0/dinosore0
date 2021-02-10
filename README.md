@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There aren't many downsides to being rich, other than paying taxes and having relatives asking for money. But being famous, that's a 24 hour job right there. 
+  The Universe is under no obligation to make sense to you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
