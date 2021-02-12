@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A good traveler has no fixed plans, and is not intent on arriving. 
+  We have wasted History like a bunch of drunks shooting dice back in the men's crapper of the local bar. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
