@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our nature consists in motion complete rest is death. 
+  I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
