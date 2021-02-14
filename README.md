@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'd rather be hated for who I am, than loved for who I am not. 
+  Opportunities are usually disguised as hard work, so most people don't recognize them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
