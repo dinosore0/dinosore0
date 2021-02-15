@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
+  I am not afraid of death, I just don't want to be there when it happens. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
