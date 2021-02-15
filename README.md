@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know of only one duty, and that is to love. 
+  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
