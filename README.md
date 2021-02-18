@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When men speak ill of thee, live so as nobody may believe them. 
+  My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
