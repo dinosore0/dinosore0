@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
+  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
