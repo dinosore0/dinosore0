@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
+  If God did not exist, it would be necessary to invent Him. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
