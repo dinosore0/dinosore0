@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't believe one grows older. I think that what happens early on in life is that at a certain age one stands still and stagnates. 
+  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
