@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Peace is liberty in tranquillity. 
+  I don't believe one grows older. I think that what happens early on in life is that at a certain age one stands still and stagnates. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
