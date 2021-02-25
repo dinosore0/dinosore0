@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I had a cat once, but every time I tried to give him a bath, the fur stuck to my tongue. 
+  Peace is liberty in tranquillity. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
