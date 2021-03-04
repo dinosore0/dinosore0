@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Now, God be praised, that to believing souls gives light in darkness, comfort in despair. 
+  It is not history which uses men as a means of achieving - as if it were an individual person - its own ends. History is nothing but the activity of men in pursuit of their ends. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
