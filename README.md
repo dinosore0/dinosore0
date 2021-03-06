@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything's about company.  A gourmet meal with an a-----e is a horrible meal. 
+  It is not in the stars to hold our destiny but in ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
