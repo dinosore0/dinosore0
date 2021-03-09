@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself. 
+  Courageous people do not fear forgiving, for the sake of peace. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
