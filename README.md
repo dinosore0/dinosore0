@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your edge is where you stop short, or where you compromise your fullest gift, and, instead, cater to your fears. 
+  I don't live in the past at all I'm always wanting to do something new. I make a point of constantly trying to forget and get things out of my mind. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
