@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A person without a sense of humor is like a wagon without springs. It's jolted by every pebble on the road. 
+  Your edge is where you stop short, or where you compromise your fullest gift, and, instead, cater to your fears. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
