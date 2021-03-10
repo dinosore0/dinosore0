@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long and the age of the great epics is past. 
+  The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
