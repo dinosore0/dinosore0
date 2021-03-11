@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. 
+  A person without a sense of humor is like a wagon without springs. It's jolted by every pebble on the road. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
