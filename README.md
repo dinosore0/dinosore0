@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Maturity: Be able to stick with a job until it is finished. Be able to bear an injustice without having to get even. Be able to carry money without spending it. Do your duty without being supervised. 
+  After my spectacular failures, I could not be satisfied with an ordinary success. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
