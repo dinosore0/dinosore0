@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  After my spectacular failures, I could not be satisfied with an ordinary success. 
+  The gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
