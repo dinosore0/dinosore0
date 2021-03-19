@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
+  They may not remember what you said. They may not remember what you did. But they will never forget how you made them feel. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
