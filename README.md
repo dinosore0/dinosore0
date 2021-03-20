@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be a good loser is to learn how to win. 
+  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
