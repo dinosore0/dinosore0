@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Death comes to all, but great achievements build a monument which shall endure until the sun grows cold. 
+  Silence is one of the great arts of conversation. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
