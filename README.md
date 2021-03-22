@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world is full of magical things patiently waiting for our wits to grow sharper. 
+  Death comes to all, but great achievements build a monument which shall endure until the sun grows cold. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
