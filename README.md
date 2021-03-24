@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The purpose of Compulsory Education is to deprive the common people of their commonsense. 
+  Never let yffour schooling intefdfdssrfere with your edusscatidsons. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
