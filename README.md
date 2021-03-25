@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Cowards die many times before their deaths; the valiant never taste of death but once. 
+  Man needs difficulties; they are necessary for health. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
