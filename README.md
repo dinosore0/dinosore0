@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wisdom, compassion, and courage are the three universally recognized moral qualities of men. 
+  For beautiful eyes, look for the good in others for beautiful lips, speak only words of kindness and for poise, walk with the knowledge that you are never alone. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
