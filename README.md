@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've come to believe that all my past failure and frustration were actually laying the foundation for the understandings that have created the new level of living I now enjoy. 
+  An excellent man; he has no enemies and none of his friends like him. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
