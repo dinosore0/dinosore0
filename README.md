@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is easier to find men who will volunteer to die, than to find those who are willing to endure pain with patience. 
+  Whenever you find yourself on the side of the majority, it is time to pause and reflect. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
