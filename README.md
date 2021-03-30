@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life and the procedure , the process is its own reward. 
+  And on top of that, when we work together we have a wonderful working relationship we push each other we challenge each other we laugh 80% of the time that we are together we're very fortunate. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
