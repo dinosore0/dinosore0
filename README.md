@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't want to be alone, I want to be left alone. 
+  Those who educate children well are more to be honored than they who produce them for these only gave them life, those the art of living well. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
