@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The more I think about it, the more I realize there is nothing more artistic than to love others. 
+  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
