@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
+  Our prime purpose in this life is to help others. And if you can't help them, at least don't hurt them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
