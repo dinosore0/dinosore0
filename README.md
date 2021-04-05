@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference. 
+  The more I think about it, the more I realize there is nothing more artistic than to love others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
