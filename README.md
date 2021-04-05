@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This is why I’m taking extra time to really try to get it right. I’ll have plenty of time to refine the style, but I want the basics solid. 
+  A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
