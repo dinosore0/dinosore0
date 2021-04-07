@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want me to do things only for ROI reasons, you should get out of this stock. 
+  Life is like riding a bicycle. To keep your balance, you must keep moving. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
