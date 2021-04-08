@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
+  I have a great respect for incremental improvement, and I've done that sort of thing in my life, but I've always been attracted to the more revolutionary changes. I don't know why. Because they're harder. They're much more stressful emotionally. And you usually go through a period where everybody tells you that you've completely failed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
