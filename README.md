@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Say not, 'I have found the truth,' but rather, 'I have found a truth.' 
+  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
