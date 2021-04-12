@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the long term, the problem we face may not be poverty, but too much wealth of the wrong kind. 
+  The troubles of this world pass, and what we have left is what we have made of our souls... 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
