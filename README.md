@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Opportunities are disguised by hard work, so most people don't recognize them. 
+  Do what makes u feel alive never belive anyone is for u cuz in the end u stand alone 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
