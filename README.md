@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have one life it soon will be past what we do for God is all that will last. 
+  If Bill Gates woke up with Oprah's money, he'd jump out the window. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
