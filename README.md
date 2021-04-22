@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is more from carelessness about truth than from intentionally lying that there is so much falsehood in the world. 
+  The only real failure in life is not to be true to the best one knows. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
