@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not only does God play dice, but... he sometimes throws them where they cannot be seen. 
+  A girl should be two things: classy and fabulous. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
