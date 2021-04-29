@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This world is but a canvas to our imagination. 
+  Everything you’ve ever wanted is on the other side of fear. — George Addair 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
