@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our greatest glory is not in never falling, but in rising every time we fall. 
+  All gods are homemade, and it is we who pull their strings, and so, give them the power to pull ours. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
