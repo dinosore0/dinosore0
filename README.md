@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All gods are homemade, and it is we who pull their strings, and so, give them the power to pull ours. 
+  Wonder is the desire for knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
