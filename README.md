@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Houston, it looks like we got us a Dragon by the tail. 
+  The sea speaks a language polite people never repeat. It is a colossal scavenger slang and has no respect. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
