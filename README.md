@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most courageous act is still to think for yourself. Aloud. 
+  Say not, 'I have found the truth,' but rather, 'I have found a truth.' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
