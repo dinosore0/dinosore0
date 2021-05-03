@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. 
+  I chose life over death for myself and my friends... I believe it is in our nature to explore, to reach out into the unknown. The only true failure would be not to explore at all. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
