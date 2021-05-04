@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't walk behind me; I may not lead. Don't walk in front of me; I may not follow. Just walk beside me and be my friend. 
+  The truth of things is the chief nutriment of superior intellects. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
