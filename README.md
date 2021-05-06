@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing in the world is more dangerous than sincere ignorance and conscientious stupidity. 
+  All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
