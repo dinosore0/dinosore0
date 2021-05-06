@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What it lies in our power to do, it lies in our power not to do. 
+  Nothing in the world is more dangerous than sincere ignorance and conscientious stupidity. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
