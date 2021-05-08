@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fear is pain arising from the anticipation of evil. 
+  We don't want tradition. We want to live in the present and the only history that is worth a tinker's dam is the history we make today. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
