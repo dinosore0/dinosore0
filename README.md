@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. 
+  Fear is pain arising from the anticipation of evil. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
