@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not just in commerce but in the world of ideas too our age is putting on a veritable clearance sale. Everything can be had so dirt cheap that one begins to wonder whether in the end anyone will want to make a bid. 
+  Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
