@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure perseverance. 
+  Success isn't owned; it's leased.  And rent is due every day. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
