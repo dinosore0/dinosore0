@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man needs his difficulties because they are necessary to enjoy success. 
+  I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
