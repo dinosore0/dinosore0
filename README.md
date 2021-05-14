@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. 
+  The man who makes no mistakes does not usually make anything. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
