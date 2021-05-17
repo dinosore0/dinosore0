@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Science may have found a cure for most evils but it has found no remedy for the worst of them all - the apathy of human beings. 
+  The way to see by faith, is to shut the eye of reason. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
