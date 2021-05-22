@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Intellectual growth should commence at birth and cease only at death. 
+  Everyone thinks of changing the world, but no one thinks of changing himself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
