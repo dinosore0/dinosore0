@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You are that vast thing that you see far, far off with great telescopes. 
+  If I'd listened to customers, I'd have given them a faster horse. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
