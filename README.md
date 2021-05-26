@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our goal is to make the best devices in the world, not to be the biggest. 
+  I would rather walk with a friend in the dark than walk alone in the light. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
