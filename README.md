@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
+  When one has not had a good father, one must create one. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
