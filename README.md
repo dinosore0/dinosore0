@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the world's a stage, and all the men and women merely players: they have their exits and their entrances and one man in his time plays many parts, his acts being seven ages. 
+  Death leaves a heartache no one can heal, love leaves a memory no one can steal. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
