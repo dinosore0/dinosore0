@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Home is where you feel at home and are treated well. 
+  Man cannot discover new oceans unless he has the courage to lose sight of the shore. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
