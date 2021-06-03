@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If success is a habit, it is a hard one to acquire. 
+  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
