@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Win as if you were used to it, lose as if you enjoyed it for a change. 
+  Computer science is no more about computers than astronomy is about telescopes. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
