@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Computer science is no more about computers than astronomy is about telescopes. 
+  Seize thy chance, for it will come to thee no more. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
