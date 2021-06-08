@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To live a pure unselfish life, one must count nothing as one's own in the midst of abundance. 
+  Positive, adj.: Mistaken at the top of one's voice. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
