@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life's most persistent and urgent question is, 'What are you doing for others?' 
+  If the machine of government is of such a nature that it requires you to be the agent of injustice to another, then, I say, break the law. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
