@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Friendship is the marriage of the soul, and this marriage is liable to divorce. 
+  Evil is committed without effort, naturally, fatally goodness is always the product of some art. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
