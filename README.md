@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Both read the Bible day and night, but thou read black where I read white. 
+  Let your life lightly dance on the edges of Time like dew on the tip of a leaf. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
