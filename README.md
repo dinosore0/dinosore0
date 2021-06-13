@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In three words I can sum up everything I've learned about life: it goes on. 
+  Both read the Bible day and night, but thou read black where I read white. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
