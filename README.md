@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing works better than just improving your product. 
+  The act of birth is the first experience of anxiety, and thus the source and prototype of the affect of anxiety. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
