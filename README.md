@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When a hundred men stand together, each of them loses his mind and gets another one. 
+  People love chopping wood. In this activity one immediately sees results. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
