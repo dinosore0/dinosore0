@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Death leaves a heartache no one can heal, love leaves a memory no one can steal. 
+  Whenever the people are well-informed, they can be trusted with their own government. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
