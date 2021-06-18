@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Imagination is the most marvelous, miraculous, inconceivably powerful force the world has ever known. 
+  I will admit, like Socrates and Aristotle and Plato and some other philosophers, that there are instances where the death penalty would seem appropriate. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
