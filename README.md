@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  An insincere and evil friend is more to be feared than a wild beast a wild beast may wound your body, but an evil friend will wound your mind. 
+  A person without a sense of humor is like a wagon without springs. It's jolted by every pebble on the road. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
