@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I forgot to shake hands and be friendly. It was an important lesson about leadership. 
+  Life and death are one thread, the same line viewed from different sides. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
