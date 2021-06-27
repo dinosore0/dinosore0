@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My mom and I have always been really close. She's always been the friend that was always there. There were times when, in middle school and junior high, I didn't have a lot of friends. But my mom was always my friend. Always. 
+  Babies don't need a vacation, but I still see them at the beach... it pisses me off! I'll go over to a little baby and say 'What are you doing here? You haven't worked a day in your life!' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
