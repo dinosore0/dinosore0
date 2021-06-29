@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Patriotism is not obedience to government.  Patriotism is obedience to the principals for which government is supposed to stand. 
+  The best way to get a bad law repealed is to enforce it strictly. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
