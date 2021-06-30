@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our greatest glory is not in never failing, but in rising up every time we fail. 
+  If we knew what it was we were doing, it would not be called research, would it? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
