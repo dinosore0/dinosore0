@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
+  Our greatest glory is not in never failing, but in rising up every time we fail. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
