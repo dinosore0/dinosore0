@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world is full of magical things patiently waiting for our wits to grow sharper. 
+  Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
