@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance. 
+  Violence is the last refuge of the incompetent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
