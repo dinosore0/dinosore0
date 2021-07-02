@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People are not judging YOU, they are telling you who THEY are. 
+  The impulse to cruelty is, in many people, almost as violent as the impulse to sexual love - almost as violent and much more mischievous. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
