@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
+  Patriotism is your conviction that this country is superior to all others because you were born in it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
