@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I followed my heart, and it led me to the beach. 
+  People with great gifts are easy to find, but symmetrical and balanced ones never. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
