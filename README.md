@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We can have no progress without change, whether it be basketball or anything else. 
+  Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
