@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People will stare. Make it worth their while. 
+  It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
