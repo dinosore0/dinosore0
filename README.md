@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As the poet said, 'Only God can make a tree,' probably because it's so hard to figure out how to get the bark on. 
+  Communists have always played an active role in the fight by colonial countries for their freedom, because the short-term objects of Communism would always correspond with the long-term objects of freedom movements. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
