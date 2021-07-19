@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The time is near at hand which must determine whether Americans are to be free men or slaves. 
+  Don't give up on your dreams, or your dreams will give up on you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
