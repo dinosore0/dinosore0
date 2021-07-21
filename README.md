@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It destroys one's nerves to be amiable every day to the same human being. 
+  If you accept the expectations of others, especially negative ones, then you never will change the outcome. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
