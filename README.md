@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I will admit, like Socrates and Aristotle and Plato and some other philosophers, that there are instances where the death penalty would seem appropriate. 
+  I'm well past the age where I'm acceptable. You get to a certain age and you are forbidden access. You're not going to get the kind of coverage that you would like in music magazines, you're not going to get played on radio and you're not going to get played on television. I have to survive on word of mouth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
