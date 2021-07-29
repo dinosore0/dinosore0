@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm a heroine addict. I need to have sex with women who have saved someone's life. 
+  He who falls in love with himself will have no rivals. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
