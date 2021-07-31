@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
+  If youth knew; if age could. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
