@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything you’ve ever wanted is on the other side of fear. — George Addair 
+  It is not clear that intelligence has any long-term survival value. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
