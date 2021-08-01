@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you are enthusiastic about what you do, you feel this positive energy. It's very simple. 
+  Everything you’ve ever wanted is on the other side of fear. — George Addair 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
