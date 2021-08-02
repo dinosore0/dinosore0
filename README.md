@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best. 
+  I am a child but I have to think and act like a woman, this business forces you to. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
