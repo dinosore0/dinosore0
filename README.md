@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God not only plays dice, but also sometimes throws them where they cannot be seen. 
+  Suffering becomes beautiful when anyone bears great calamities with cheerfulness, not through insensibility but through greatness of mind. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
