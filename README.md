@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Suffering becomes beautiful when anyone bears great calamities with cheerfulness, not through insensibility but through greatness of mind. 
+  Humility is a great quality of leadership which derives respect and not just fear or hatred. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
