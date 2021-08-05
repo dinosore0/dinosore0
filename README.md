@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime. 
+  God not only plays dice, but also sometimes throws them where they cannot be seen. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
