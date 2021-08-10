@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Slang is a language that rolls up its sleeves, spits on its hands and goes to work. 
+  You can be young without money; but you can't be old without it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
