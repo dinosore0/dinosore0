@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  [Lisp is the] greatest single programming language ever designed. 
+  Always bear in mind that your own resolution to succeed is more important than any other. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
