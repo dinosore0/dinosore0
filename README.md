@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “If we find ourselves with a desire that nothing in this world can satisfy, the most probable explanation is…we were made for another world.” 
+  Let us never negotiate out of fear. But let us never fear to negotiate. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
