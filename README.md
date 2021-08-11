@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let us never negotiate out of fear. But let us never fear to negotiate. 
+  Slang is a language that rolls up its sleeves, spits on its hands and goes to work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
