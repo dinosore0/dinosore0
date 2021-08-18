@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let your schooling interfere with your education. 
+  Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
