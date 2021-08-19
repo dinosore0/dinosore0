@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fall in love with the process and the results will come. 
+  Let everyone try and find that as a result of daily prayer he adds something new to his life, something with which nothing can be compared. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
