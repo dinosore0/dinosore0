@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beginning of knowledge is the discovery of something we do not understand. 
+  Time heals griefs and quarrels, for we change and are no longer the same persons. Neither the offender nor the offended are any more themselves. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
