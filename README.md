@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When power leads man toward arrogance, poetry reminds him of his limitations. When power narrows the area of man's concern, poetry reminds him of the richness and diversity of existence. When power corrupts, poetry cleanses. 
+  A man of courage is also full of faith. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
