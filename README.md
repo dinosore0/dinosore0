@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We deem those happy who from the experience of life have learnt to bear its ills without being overcome by them. 
+  Excuses change nothing, but make everyone feel better. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
