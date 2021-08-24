@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
+  We deem those happy who from the experience of life have learnt to bear its ills without being overcome by them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
