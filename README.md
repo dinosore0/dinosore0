@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want to go fast, go alone. If you want to go far, go together. 
+  There is no kind of dishonesty into which otherwise good people more easily and frequently fall than that of defrauding the government. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
