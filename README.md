@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. 
+  A man who views the world the same at fifty as he did at twenty has wasted thirty years of his life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
