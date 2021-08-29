@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It just seems awfully mean. But sometimes, the ends justify the mean. 
+  Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
