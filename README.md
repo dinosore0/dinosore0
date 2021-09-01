@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Even death is not to be feared by one who has lived wisely. 
+  We deem those happy who from the experience of life have learnt to bear its ills without being overcome by them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
