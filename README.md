@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The hottest place in Hell is reserved for those who remain neutral in times of great moral conflict. 
+  To conquer fear is the beginning of wisdom. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
