@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The lunatic, the lover, and the poet, are of imagination; all compact. 
+  The hottest place in Hell is reserved for those who remain neutral in times of great moral conflict. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
