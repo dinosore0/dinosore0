@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything will be okay in the end. If it's not okay, it's not the end. 
+  The lunatic, the lover, and the poet, are of imagination; all compact. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
