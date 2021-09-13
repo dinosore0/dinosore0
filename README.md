@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Speak low, if you speak love. 
+  Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
