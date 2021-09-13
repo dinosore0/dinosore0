@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The way you think, the way you behave, the way you eat, can influence your life by 30 to 50 years. 
+  Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
