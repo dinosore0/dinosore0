@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't you stay at home of evenings? Don't you love a cushioned seat in a corner, by the fireside, with your slippers on your feet? 
+  History doesn't crawl; it leaps. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
