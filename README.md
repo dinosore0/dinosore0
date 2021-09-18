@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Agressive music can only shock you once. Afterwards its impact declines. It's inevitable. 
+  Love and work... work and love, that's all there is. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
