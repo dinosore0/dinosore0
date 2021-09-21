@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Talent hits a target no one else can hit. Genius hits a target no one else can see. 
+  Of course, to have money is just great because you can do what you think is important to you. I always was a rich person because money's not related to happiness. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
