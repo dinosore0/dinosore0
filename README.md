@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think people should be allowed to do anything they want. We haven't tried that for a while. Maybe this time it'll work. 
+  Talent hits a target no one else can hit. Genius hits a target no one else can see. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
