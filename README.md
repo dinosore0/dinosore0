@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Irreligion - the principal one of the great faiths of the world. 
+  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
