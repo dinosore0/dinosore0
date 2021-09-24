@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A sense of humor is good for you. Have you ever heard of a laughing hyena with heart burn? 
+  Life itself is the proper binge. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
