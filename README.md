@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “I’m not going to make it.”—Brand.<br>“Yes, you are.  Yes, you are.”—Cooper 
+  A sense of humor is good for you. Have you ever heard of a laughing hyena with heart burn? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
