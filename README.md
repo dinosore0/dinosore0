@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To his dog, every man is Napoleon; hence the constant popularity of dogs. 
+  It will never rain roses: when we want to have more roses we must plant more trees. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
