@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When Thomas Edison worked late into the night on the electric light, he had to do it by gas lamp or candle. I'm sure it made the work seem that much more urgent. 
+  I have a lot of things to prove to myself. One is that I can live my life fearlessly. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
