@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our character is not so much the product of race and heredity as of those circumstances by which nature forms our habits, by which we are nurtured and live. 
+  Oh, The Places You'll Go! 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
