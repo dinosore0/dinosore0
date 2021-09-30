@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest deception men suffer is from their own opinions. 
+  Our character is not so much the product of race and heredity as of those circumstances by which nature forms our habits, by which we are nurtured and live. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
