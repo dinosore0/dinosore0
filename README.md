@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The German national character is a favorite subject of character experts, probably because the less mature a nation, the more she is an object of criticism and not of history. 
+  Marriage is an alliance entered into by a man who can't sleep with the window shut, and a woman who can't sleep with the window open. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
