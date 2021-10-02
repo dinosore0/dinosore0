@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the middle of difficulty lies opportunity. 
+  There are one hundred men seeking security to one able man who is willing to risk his fortune. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
