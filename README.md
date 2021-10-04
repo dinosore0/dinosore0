@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are several good protections against temptation, but the surest is cowardice. 
+  For awhile after you quit Keats all other poetry seems to be only whistling or humming. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
