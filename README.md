@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tis better to have loved and lost.<br>Than never to have loved at all. 
+  Virtue is persecuted more by the wicked than it is loved by the good. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
