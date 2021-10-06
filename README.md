@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are made wise not by the recollection of our past, but by the responsibility for our future. 
+  Tis better to have loved and lost.<br>Than never to have loved at all. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
