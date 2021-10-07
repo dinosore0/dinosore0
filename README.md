@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sage does not hoard. The more he helps others, the more he benefits himself, The more he gives to others, the more he gets himself. The Way of Heaven does one good but never does one harm. The Way of the sage is to act but not to compete. 
+  Hell, there are no rules here - we're trying to accomplish something. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
