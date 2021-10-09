@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Under all speech that is good for anything there lies a silence that is better, Silence is deep as Eternity speech is shallow as Time. 
+  Tell me and I forget. Teach me and I remember. Involve me and I learn. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
