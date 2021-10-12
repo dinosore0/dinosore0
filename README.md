@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The hardest thing to learn in life is which bridge to cross and which to burn. 
+  Dream as if you'll live forever. Live as if you'll die today. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
