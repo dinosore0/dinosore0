@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned. 
+  I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
