@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Je connais mes limites. C'est pourquoi je vais au-delà. 
+  An insincere and evil friend is more to be feared than a wild beast a wild beast may wound your body, but an evil friend will wound your mind. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
