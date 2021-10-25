@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The Word of fire burns today On the lips of our prophets in an evil age. 
+  Virtue is persecuted more by the wicked than it is loved by the good. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
