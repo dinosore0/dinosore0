@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think you can have 10,000 explanations for failure, but no good explanation for success. 
+  Every war when it comes, or before it comes, is represented not as a war but as an act of self-defense against a homicidal maniac. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
