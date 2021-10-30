@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Governing a great nation is like cooking a small fish - too much handling will spoil it. 
+  I think you can have 10,000 explanations for failure, but no good explanation for success. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
