@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be kind, for everyone you meet is fighting a hard battle. 
+  Governing a great nation is like cooking a small fish - too much handling will spoil it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
