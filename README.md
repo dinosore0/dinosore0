@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  After my spectacular failures, I could not be satisfied with an ordinary success. 
+  War is only a cowardly escape from the problems of peace. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
