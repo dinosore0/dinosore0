@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  War is only a cowardly escape from the problems of peace. 
+  I think people should be allowed to do anything they want. We haven't tried that for a while. Maybe this time it'll work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
