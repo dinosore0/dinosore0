@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The very word 'secrecy' is repugnant in a free and open society and we are as a people inherently and historically opposed to secret societies, to secret oaths, and to secret proceedings. 
+  After my spectacular failures, I could not be satisfied with an ordinary success. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
