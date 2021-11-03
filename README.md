@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Je connais mes limites. C'est pourquoi je vais au-delà. 
+  To conquer fear is the beginning of wisdom. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
