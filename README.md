@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nurture your minds with great thoughts. To believe in the heroic makes heroes. 
+  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
