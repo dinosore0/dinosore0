@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
+  A man loves the meat in his youth that he cannot endure in his age. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
