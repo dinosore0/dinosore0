@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “And now that you don’t have to be perfect, you can be good.” 
+  I am a child but I have to think and act like a woman, this business forces you to. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
