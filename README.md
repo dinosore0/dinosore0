@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering. 
+  We are made wise not by the recollection of our past, but by the responsibility for our future. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
