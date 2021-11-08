@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I followed my heart, and it led me to the beach. 
+  Cherish your visions and your dreams as they are the children of your soul, the blueprints of your ultimate achievements. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
