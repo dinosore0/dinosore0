@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you love life, don't waste time, for time is what life is made up of. 
+  Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
