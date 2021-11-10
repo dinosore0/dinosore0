@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Next to the Word of God, the noble art of music is the greatest treasure in the world. 
+  Nature hath framed strange fellows in her time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
