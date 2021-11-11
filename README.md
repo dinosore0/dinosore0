@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is better to keep your mouth shut and appear stupid than to open it and remove all doubt. 
+  If anyone is crazy enough to want to kill a president of the United States, he can do it. All he must be prepared to do is give his life for the president's. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
