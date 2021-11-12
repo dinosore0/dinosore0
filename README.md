@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
+  It is better to keep your mouth shut and appear stupid than to open it and remove all doubt. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
