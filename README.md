@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you love life, don't waste time, for time is what life is made up of. 
+  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
