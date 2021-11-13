@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You know the good part about all those executions in Texas? Fewer Texans. 
+  Patriotism is your conviction that this country is superior to all others because you were born in it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
