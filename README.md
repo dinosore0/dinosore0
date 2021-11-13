@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For every minute you remain angry, you give up sixty seconds of peace of mind. 
+  You know the good part about all those executions in Texas? Fewer Texans. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
