@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music, in performance, is a type of sculpture. The air in the performance is sculpted into something. 
+  If you love life, don't waste time, for time is what life is made up of. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
