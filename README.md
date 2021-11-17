@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Generally speaking, if a human being never shows anger, then I think something's wrong. He's not right in the brain. 
+  I am not a vegetarian because I love animals; I am a vegetarian because I hate plants. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
