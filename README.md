@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Elections are won by men and women chiefly because most people vote against somebody rather than for somebody. 
+  When the light turns green, don't race to the next one. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
