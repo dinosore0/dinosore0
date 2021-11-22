@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I fundamentally believe that if you are not learning new things, you stop doing great and useful things. 
+  Don't be too timid and squeamish about your actions. All life is an experiment. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
