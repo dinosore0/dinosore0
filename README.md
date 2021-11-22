@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing in the world is more dangerous than sincere ignorance and conscientious stupidity. 
+  I love deadlines. I like the whooshing sound they make as they fly by. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
