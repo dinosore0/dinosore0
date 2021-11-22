@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I love deadlines. I like the whooshing sound they make as they fly by. 
+  I fundamentally believe that if you are not learning new things, you stop doing great and useful things. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
