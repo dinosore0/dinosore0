@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We need to be the change we wish to see in the world. 
+  It is the ultimate luxury to combine passion and contribution.  It's also a very clear path to happiness. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
