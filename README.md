@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I start where the last man left off. 
+  The first sign of faith is love. The message of the holy, divine Manifestations is love; the phenomena of creation are based upon love; the radiance of the world is due to love; the well-being and happiness of the world depend upon it. Therefore, I admonish you that you must strive throughout the human world to diffuse the light of love... 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
