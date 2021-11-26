@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best revenge is to be unlike him who performed the injury. 
+  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
