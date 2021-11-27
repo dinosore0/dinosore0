@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You better cut the pizza in four pieces because I'm not hungry enough to eat six. 
+  The best revenge is to be unlike him who performed the injury. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
