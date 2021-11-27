@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness is not something you postpone for the future; it is something you design for the present. 
+  You better cut the pizza in four pieces because I'm not hungry enough to eat six. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
