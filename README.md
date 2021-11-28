@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want me to do things only for ROI reasons, you should get out of this stock. 
+  Happiness is not something you postpone for the future; it is something you design for the present. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
