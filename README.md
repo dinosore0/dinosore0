@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I remember straightening my hair because I wanted to be like everybody else, and now the fact that anybody would emulate what I do? It's just funny. 
+  The worst thing in this world, next to anarchy, is government. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
