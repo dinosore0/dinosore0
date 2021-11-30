@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The worst thing in this world, next to anarchy, is government. 
+  There are only two kinds of languages: the ones people complain about and the ones nobody uses. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
