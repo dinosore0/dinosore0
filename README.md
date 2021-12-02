@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. 
+  The history of the world is the record of the weakness, frailty and death of public opinion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
