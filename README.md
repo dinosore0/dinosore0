@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We sleep in separate rooms, we have dinner apart, we take separate vacations - we're doing everything we can to keep our marriage together. 
+  The best argument against democracy is a five-minute conversation with the average voter. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
