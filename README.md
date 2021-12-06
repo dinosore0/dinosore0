@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is generally recognised that women are better than men at languages, personal relations and multi-tasking, but less good at map-reading and spatial awareness. It is therefore not unreasonable to suppose that women might be less good at mathematics and physics. 
+  Concerning God, freewill and destiny: Of all that earth has been or yet may be, all that vain men imagine or believe, or hope can paint or suffering may achieve, we descanted. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
