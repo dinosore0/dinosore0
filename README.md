@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I suppose leadership at one time meant muscles but today it means getting along with people. 
+  Knowledge comes by taking things apart, but wisdom comes by putting things together. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
