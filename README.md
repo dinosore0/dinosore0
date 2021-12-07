@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
+  If you want to conquer fear, don't sit home and think about it. Go out and get busy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
