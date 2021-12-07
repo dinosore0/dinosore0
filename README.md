@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want to conquer fear, don't sit home and think about it. Go out and get busy. 
+  I suppose leadership at one time meant muscles but today it means getting along with people. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
