@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If Microsoft ever does applications for Linux it means I've won. 
+  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
