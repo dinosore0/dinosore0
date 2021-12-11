@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you wish to be a success in the world, promise everything, deliver nothing. 
+  There are one hundred men seeking security to one able man who is willing to risk his fortune. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
