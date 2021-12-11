@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would rather live my life as if there is a God and die to find out there isn't, than live my life as if there isn't and die to find out there is. 
+  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
