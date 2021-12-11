@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are one hundred men seeking security to one able man who is willing to risk his fortune. 
+  Keep your face to the sunshine and you cannot see the shadow. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
