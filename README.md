@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man of courage is also full of faith. 
+  If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
