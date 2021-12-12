@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you. 
+  Absence and death are the same - only that in death there is no suffering. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
