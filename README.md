@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
+  How sad it is that we give up on people who are just like us. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
