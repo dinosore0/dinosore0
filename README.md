@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the long term, the problem we face may not be poverty, but too much wealth of the wrong kind. 
+  If you want others to be happy, practice compassion. If you want to be happy, practice compassion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
