@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Justice is truth in action. 
+  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
