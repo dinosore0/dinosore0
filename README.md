@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Who would not give up wit for power and beauty? 
+  In the long term, the problem we face may not be poverty, but too much wealth of the wrong kind. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
