@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The present moment has always been available to spiritual seekers, but as long as you are seeking you are not available to the present moment. “Seeking” implies that you are looking to the future for some answer, or for some achievement, spiritual or otherwise. Everybody is in the seeking mode, seeking to add something to who they are, whether it be money, relationships, possessions, knowledge, status.. or spiritual attainment 
+  The stone age came to an end not for lack of stones. And the oil age will come to an end not for lack of oil. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
