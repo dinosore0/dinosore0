@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We’re just in the beginning stages of what will be a truly remarkable breakthrough for most people — as remarkable as the telephone. 
+  Never complain and never explain. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
