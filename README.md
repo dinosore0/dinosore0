@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any customer can have a car painted any color that he wants so long as it is black. 
+  We’re just in the beginning stages of what will be a truly remarkable breakthrough for most people — as remarkable as the telephone. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
