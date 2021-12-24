@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing. 
+  The traveler sees what he sees, the tourist sees what he has come to see. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
