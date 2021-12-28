@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There was never an angry man that thought his anger unjust. 
+  The first virtue in a soldier is endurance of fatigue; courage is only the second virtue. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
