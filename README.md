@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven. 
+  Women have simple tastes. They get pleasure out of the conversation of children in arms and men in love. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
