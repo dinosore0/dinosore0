@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Women have simple tastes. They get pleasure out of the conversation of children in arms and men in love. 
+  The Word of fire burns today On the lips of our prophets in an evil age. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
