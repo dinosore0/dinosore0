@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He that has a great nose, thinks everybody is speaking of it. 
+  We live in a Newtonian world of Einsteinian physics ruled by Frankenstein logic. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
