@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We live in a Newtonian world of Einsteinian physics ruled by Frankenstein logic. 
+  SUCCESS all depends on the second letter. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
