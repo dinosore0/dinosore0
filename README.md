@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only true wisdom is in knowing you know nothing. 
+  Complainers change their complaints, but they never reduce the amount of time spent in complaining. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
