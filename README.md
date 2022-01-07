@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When people gain the right knowledge, in such a way that they understand it completely, and then have the opportunity for effective instruction to apply what they comprehend then like magic, they can see the fruits of their efforts in the form of changes that serve us feedback in their lives. 
+  No one can arrive from being talented alone, work transforms talent into genius. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
