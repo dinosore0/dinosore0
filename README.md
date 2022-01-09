@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-   Time is the only measure that I allow myself to envy 
+  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
