@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
+  I drank some boiling water because I wanted to whistle. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
