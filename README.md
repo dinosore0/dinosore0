@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Marriage is an alliance entered into by a man who can't sleep with the window shut, and a woman who can't sleep with the window open. 
+  Success is never final, failure is never fatal. It's courage that counts. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
