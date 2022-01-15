@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Lost time is never found again, and what we call time enough always proves little enough. Let us then be up and doing, and doing to a purpose. 
+  Be interested in finding the best way, not in having it your way. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
