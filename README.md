@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I cannot make my days longer. So I strive to make them better. 
+  Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
