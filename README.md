@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The stone age came to an end not for lack of stones. And the oil age will come to an end not for lack of oil. 
+  The devil is in the details. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
