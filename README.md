@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man has, as it were, become a kind of prosthetic God. When he puts on all his auxiliary organs, he is truly magnificent but those organs have not grown on him and they still give him much trouble at times. 
+  The stone age came to an end not for lack of stones. And the oil age will come to an end not for lack of oil. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
