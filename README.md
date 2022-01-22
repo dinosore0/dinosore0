@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith - you can do very little with it, but you can do nothing without it. 
+  Man has, as it were, become a kind of prosthetic God. When he puts on all his auxiliary organs, he is truly magnificent but those organs have not grown on him and they still give him much trouble at times. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
