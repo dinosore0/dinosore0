@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge will give you power, but character respect. 
+  Say not, 'I have found the truth,' but rather, 'I have found a truth.' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
