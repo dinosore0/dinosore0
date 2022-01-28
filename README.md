@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A single dream is more powerful than a thousand realities. 
+  Don't be too timid and squeamish about your actions. All life is an experiment. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
