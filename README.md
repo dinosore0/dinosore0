@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many men go fishing all of their lives without knowing that it is not fish they are after. 
+  There's only one thing that can kill the movies, and that's education. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
