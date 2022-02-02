@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. 
+  Obstacles Can't Stop You, Problems Can't Stop You, People Can't Stop You. Only You Can Stop You! 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
