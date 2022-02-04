@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Evolution never looks to the future. 
+  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
