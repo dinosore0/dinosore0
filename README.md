@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Bad programmers worry about the code. Good programmers worry about data structures and their relationships. 
+  To be outspoken is easy when you do not wait to speak the complete truth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
