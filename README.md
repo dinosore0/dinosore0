@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you ever find happiness by hunting for it, you will find it, as the old woman did her lost spectacles, safe on her own nose all the time. 
+  There are good and bad times, but our mood changes more often than our fortune. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
