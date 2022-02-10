@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many iOS developers model App Store pricing after mass-market superhits. Would you enter the restaurant business by mimicking McDonalds? 
+  Fear clogs faith liberates. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
