@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It isn't about 'games', for me, personally, and it never really was. It was about creating something, anything, far bigger than yourself. 
+  “Perfection? Being the most human you can be” 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
