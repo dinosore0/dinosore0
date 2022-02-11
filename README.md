@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The price of anything is the amount of life you exchange for it. 
+  It isn't about 'games', for me, personally, and it never really was. It was about creating something, anything, far bigger than yourself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
