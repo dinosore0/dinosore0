@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music, in performance, is a type of sculpture. The air in the performance is sculpted into something. 
+  Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
