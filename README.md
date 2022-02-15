@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Change you mindset. Educate yourself. Stay positive. Cut toxic people off. Eat Healthy. Focus on your goals. Spend some time alone. Read books. Drink more water. Take care of your skin. 
+  To know oneself is to study oneself in action with another person. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
