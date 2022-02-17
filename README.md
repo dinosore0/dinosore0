@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Holding onto anger is like drinking poison and expecting the other person to die. 
+  Complexity is your enemy. Any fool can make something complicated. It is hard to make something simple. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
