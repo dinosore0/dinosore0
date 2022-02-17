@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You, yourself, as much as anybody in the entire universe, deserve your love and affection. 
+  Holding onto anger is like drinking poison and expecting the other person to die. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
