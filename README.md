@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't be too timid and squeamish about your actions. All life is an experiment. 
+  Nothing in the affairs of men is worthy of great anxiety. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
