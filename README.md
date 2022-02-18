@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm a heroine addict. I need to have sex with women who have saved someone's life. 
+  When you practice gratefulness, there is a sense of respect toward others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
