@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Politics is a profession a serious, complicated and, in its true sense, a noble one. 
+  Don't be too timid and squeamish about your actions. All life is an experiment. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
