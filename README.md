@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Eating rice cakes is like chewing on a foam coffee cup, only less filling. 
+  Politics is a profession a serious, complicated and, in its true sense, a noble one. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
