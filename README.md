@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many men go fishing all of their lives without knowing that it is not fish they are after. 
+  Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
