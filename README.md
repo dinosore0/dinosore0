@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long and the age of the great epics is past. 
+  The instruction we find in books is like fire. We fetch it from our neighbours, kindle it at home, communicate it to others, and it becomes the property of all. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
