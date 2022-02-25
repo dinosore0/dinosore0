@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music, in performance, is a type of sculpture. The air in the performance is sculpted into something. 
+  Who doesn't want to shortcut the greatness. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
