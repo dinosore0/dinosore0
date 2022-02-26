@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Money is the last enemy that shall never be subdued. While there is flesh there is money or the want of money, but money is always on the brain so long as there is a brain in reasonable order. 
+  Before I speak, I have something important to say. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
