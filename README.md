@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My best friend is the man who in wishing me well wishes it for my sake. 
+  The hottest place in Hell is reserved for those who remain neutral in times of great moral conflict. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
