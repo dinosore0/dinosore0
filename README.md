@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I saw few die of hunger of eating, a hundred thousand. 
+  The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
