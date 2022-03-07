@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My great hope is to laugh as much as I cry to get my work done and try to love somebody and have the courage to accept the love in return. 
+  Do your work with your whole heart, and you will succeed - there's so little competition. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
