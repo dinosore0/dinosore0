@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Run when you can, walk if you have to, crawl if you must; just never give up. 
+  A man's got to take a lot of punishment to write a really funny book. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
