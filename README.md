@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The virtues, like the Muses, are always seen in groups. A good principle was never found solitary in any breast. 
+  Run when you can, walk if you have to, crawl if you must; just never give up. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
