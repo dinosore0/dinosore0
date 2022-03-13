@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry. 
+  We must use time as a tool, not as a couch. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
