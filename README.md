@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ever tried. Ever failed. No matter. Try again. Fail again. Fail better. 
+  The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
