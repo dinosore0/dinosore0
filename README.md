@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Brave words. I've heard them before, from thousands of species across thousands of worlds, since long before you were created. But, now they are all Borg. 
+  Ever tried. Ever failed. No matter. Try again. Fail again. Fail better. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
