@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Advertising has us chasing cars and clothes, working jobs we hate so we can buy s--t we don't need. 
+  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
