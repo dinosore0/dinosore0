@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You, yourself, as much as anybody in the entire universe, deserve your love and affection. 
+  Advertising has us chasing cars and clothes, working jobs we hate so we can buy s--t we don't need. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
