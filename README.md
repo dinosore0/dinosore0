@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be interested in finding the best way, not in having it your way. 
+  If you can find a path with no obstacles, it probably doesn't lead anywhere. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
