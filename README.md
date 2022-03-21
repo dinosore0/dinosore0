@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
+  Be interested in finding the best way, not in having it your way. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
