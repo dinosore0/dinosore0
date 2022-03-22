@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  With guns you can kill terrorists, with education you can kill terrorism. 
+  Suffering becomes beautiful when anyone bears great calamities with cheerfulness, not through insensibility but through greatness of mind. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
