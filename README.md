@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is a great discovery still to be made in literature, that of paying literary men by the quantity they do not write. 
+  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
