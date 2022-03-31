@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The supreme happiness of life is the conviction that we are loved loved for ourselves, or rather in spite of ourselves. 
+  JUST DO IT！ 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
