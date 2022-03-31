@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The highest result of education is tolerance. 
+  The supreme happiness of life is the conviction that we are loved loved for ourselves, or rather in spite of ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
