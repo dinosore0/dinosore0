@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. 
+  Expectations are a form of first-class truth: If people believe it, it's true. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
