@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned. 
+  It is not length of life, but depth of life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
