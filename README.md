@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Death does not concern us, because as long as we exist, death is not here. And when it does come, we no longer exist. 
+  To refrain from imitation is the best revenge. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
