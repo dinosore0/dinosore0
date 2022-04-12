@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We can afford to lose money – even a lot of money.  But we can’t afford to lose reputation – even a shred of reputation. 
+  He that does good to another does good also to himself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
