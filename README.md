@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everyone has been made for some particular work, and the desire for that work has been put in every heart. 
+  Good education is not what fills your head with facts but what stimulates curiosity. You then learn for the rest of your life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
