@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good education is not what fills your head with facts but what stimulates curiosity. You then learn for the rest of your life. 
+  Never leave that till tomorrow which you can do today. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
