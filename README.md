@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are 2 things that will bring you success in life: 1) Don't tell everyone everything you know. 
+  Hell, there are no rules here - we're trying to accomplish something. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
