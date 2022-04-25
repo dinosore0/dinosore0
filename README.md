@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The meaning of life is to find your gift. The purpose of life is to give it away. 
+  To be positive is to be mistaken at the top of one's voice. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
