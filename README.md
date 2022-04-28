@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. 
+  If at first you don't succeed, destroy all evidence that you tried. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
