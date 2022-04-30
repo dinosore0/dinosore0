@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Surround yourself with the best people you can find, delegate authority, and don't interfere as long as the policy you've decided upon is being carried out. 
+  Men are disturbed not by things, but by the view which they take of them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
