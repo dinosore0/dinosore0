@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  History should be written as philosophy. 
+  Surround yourself with the best people you can find, delegate authority, and don't interfere as long as the policy you've decided upon is being carried out. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
