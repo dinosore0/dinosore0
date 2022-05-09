@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anxiety does not empty tomorrow of its sorrows, but only empties today of its strength. 
+  Compound interest is the eighth wonder of the world.  He who understands it, earns it ... he who doesn't ... pays it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
