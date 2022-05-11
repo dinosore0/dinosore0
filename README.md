@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are several good protections against temptation, but the surest is cowardice. 
+  Brave men rejoice in adversity, just as brave soldiers triumph in war. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
