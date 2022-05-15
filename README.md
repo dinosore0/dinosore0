@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best effort of a fine person is felt after we have left their presence. 
+  Life is meant to be a challenge, because challenges are what make you grow. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
