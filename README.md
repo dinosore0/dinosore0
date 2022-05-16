@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  yeah this could actually be a dope rap beat 
+  But who prays for Satan? Who in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
