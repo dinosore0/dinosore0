@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tweeting is like sending out cool telegrams to your friends once a week. 
+  Irreligion - the principal one of the great faiths of the world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
