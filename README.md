@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think you can have 10,000 explanations for failure, but no good explanation for success. 
+  Buddhas move freely through birth and death, appearing and disappearing at will. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
