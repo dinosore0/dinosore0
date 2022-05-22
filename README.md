@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring. 
+  Right now it's only a notion, but I think I can get the money to make it into a concept, and later turn it into an idea. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
