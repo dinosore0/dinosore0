@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Death is the solution to all problems. No man - no problem. 
+  Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
