@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A fanatic is one who can't change his mind and won't change the subject. 
+  People grow through experience if they meet life honestly and courageously. This is how character is built. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
