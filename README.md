@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ideal man bears the accidents of life with dignity and grace, making the best of circumstances. 
+  Our goal is to make the best devices in the world, not to be the biggest. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
