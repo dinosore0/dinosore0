@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you know how to read, you have a complete education about life, then you know how to vote within a democracy. But if you don't know how to read, you don't know how to decide. That's the great thing about our country - we're a democracy of readers, and we should keep it that way. 
+  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
