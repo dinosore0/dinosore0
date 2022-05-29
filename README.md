@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The shock of any trauma, I think changes your life. It's more acute in the beginning and after a little time you settle back to what you were. However it leaves an indelible mark on your psyche. 
+  Quand je n'ai pas de bleu, je mets du rouge. :) 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
