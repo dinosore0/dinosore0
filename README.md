@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Simulated disorder postulates perfect discipline; simulated fear postulates courage; simulated weakness postulates strength. 
+  Be yourself; everyone else is already taken. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
