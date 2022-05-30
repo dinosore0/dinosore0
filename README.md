@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those who love to be feared fear to be loved. 
+  Simulated disorder postulates perfect discipline; simulated fear postulates courage; simulated weakness postulates strength. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
