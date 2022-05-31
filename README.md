@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is really work unless you would rather be doing something else. 
+  Time rushes towards us with its hospital tray of infinitely varied narcotics, even while it is preparing us for its inevitably fatal operation. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
