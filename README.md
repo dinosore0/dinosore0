@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hate facts. I always say the chief end of man is to form general propositions - adding that no general proposition is worth a d--n. 
+  Happiness: an agreeable sensation arising from contemplating the misery of another. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
