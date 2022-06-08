@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness: an agreeable sensation arising from contemplating the misery of another. 
+  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
