@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
+  True terror is to wake up one morning and discover that your high school class is running the country. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
