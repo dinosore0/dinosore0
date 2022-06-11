@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One morning I shot an elephant in my pajamas. How he got into my pajamas I'll never know. 
+  Patriotism is not obedience to government.  Patriotism is obedience to the principals for which government is supposed to stand. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
