@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am only an average man but, by George, I work harder at it than the average man. 
+  Happiness doesn't depend on any external conditions, it is governed by our mental attitude. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
