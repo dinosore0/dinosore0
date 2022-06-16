@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is a sign of contraction of the mind when it is content, or of weariness. A spirited mind never stops within itself it is always aspiring and going beyond its strength. 
+  It's a very strange thing, love. You can't get rid of it. If you try to give it out, you get more back. If you try to hang onto it, you lose it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
