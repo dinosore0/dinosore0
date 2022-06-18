@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad. 
+  If opportunity doesn't knock, build a door. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
