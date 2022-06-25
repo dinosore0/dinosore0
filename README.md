@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is like music it must be composed by ear, feeling, and instinct, not by rule. 
+  The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
