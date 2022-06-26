@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good music is good music, and everything else can go to hell. 
+  The cost of freedom is always high, but Americans have always paid it. And one path we shall never choose, and that is the path of surrender, or submission. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
