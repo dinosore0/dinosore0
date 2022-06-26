@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man is relieved and gay when he has put his heart into his work and done his best but what he has said or done otherwise shall give him no peace. 
+  The best thing about the future is that it comes one day at a time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
