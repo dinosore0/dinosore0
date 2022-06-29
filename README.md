@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All great achievements require time. 
+  Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
