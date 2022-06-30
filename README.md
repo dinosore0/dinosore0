@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The formulation of a problem is often more essential than its solution, which may be merely a matter of mathematical or experimental skill. 
+  All great achievements require time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
