@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Gentlemen, my odds for success improve with each attempt. 
+  Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
