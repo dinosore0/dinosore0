@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One is never over-dressed or underdressed with a Little Black Dress. 
+  In rivers, the water that you touch is the last of what has passed and the first of that which comes so with present time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
