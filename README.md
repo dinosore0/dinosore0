@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In rivers, the water that you touch is the last of what has passed and the first of that which comes so with present time. 
+  Measuring programming progress by lines of code is like measuring aircraft building progress by weight. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
