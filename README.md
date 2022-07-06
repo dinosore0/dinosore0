@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  America is the most grandiose experiment the world has seen, but, I am afraid, it is not going to be a success. 
+  It is impossible to live without failing at something, unless you live so cautiously that you might has well not have lived at all, in which case you have failed by default. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
