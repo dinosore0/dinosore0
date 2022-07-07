@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not agree with what you have to say, but I'll defend to the death your right to say it. 
+  America is the most grandiose experiment the world has seen, but, I am afraid, it is not going to be a success. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
