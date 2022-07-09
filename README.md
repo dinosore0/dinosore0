@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is a wisdom in this beyond the rules of physic: a man's own observation what he finds good of and what he finds hurt of is the best physic to preserve health. 
+  I start where the last man left off. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
