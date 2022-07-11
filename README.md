@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So vast is art, so narrow human wit. 
+  It is one of the beautiful compensations in this life that no one can sincerely try to help another without helping himself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
