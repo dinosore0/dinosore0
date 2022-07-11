@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is one of the beautiful compensations in this life that no one can sincerely try to help another without helping himself. 
+  Neither the sun nor death can be looked at with a steady eye. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
