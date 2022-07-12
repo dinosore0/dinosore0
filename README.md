@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My great hope is to laugh as much as I cry to get my work done and try to love somebody and have the courage to accept the love in return. 
+  Sex at age 90 is like trying to shoot pool with a rope. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
