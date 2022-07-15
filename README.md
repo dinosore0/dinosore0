@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The taxpayer - that's someone who works for the federal government but doesn't have to take the civil service examination. 
+  If you want to conquer fear, don't sit home and think about it. Go out and get busy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
