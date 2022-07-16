@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If people think nature is their friend, then they sure don't need an enemy. 
+  The greatest way to live with honor in this world is to be what we pretend to be. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
