@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The art of art, the glory of expression and the sunshine of the light of letters, is simplicity. 
+  I don't pity any man who does hard work worth doing. I admire him. I pity the creature who does not work, at whichever end of the social scale he may regard himself as being. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
