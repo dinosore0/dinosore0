@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me and I forget; teach me and I may remember; involve me and I learn. 
+  Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
