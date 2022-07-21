@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work. 
+  In three words I can sum up everything I've learned about life: it goes on. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
