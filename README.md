@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No passion in the world is equal to the passion to alter someone else's draft. 
+  You have to learn the rules of the game. And then you have to play better than anyone else. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
