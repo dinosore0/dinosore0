@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. 
+  It is the supreme art of the teacher to awaken joy in creative expression and knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
