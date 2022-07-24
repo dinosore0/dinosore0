@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is the supreme art of the teacher to awaken joy in creative expression and knowledge. 
+  A wise man can learn more from a foolish question than a fool can learn from a wise answer. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
