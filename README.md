@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take control of your consistent emotions and begin to consciously and deliberately reshape your daily experience of life. 
+  The power of imagination makes us infinite. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
