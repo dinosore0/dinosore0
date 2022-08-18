@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I believe a leaf of grass is no less than the journey-work of the stars. 
+  The laws of nature are but the mathematical thoughts of God. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
