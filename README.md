@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy. 
+  I believe a leaf of grass is no less than the journey-work of the stars. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
