@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Earth teach me to forget myself as melted snow forgets its life. Earth teach me resignation as the leaves which die in the fall. Earth teach me courage as the tree which stands all alone. Earth teach me regeneration as the seed which rises in the spring. 
+  Wrinkles should merely indicate where smiles have been. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
