@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any fool can tell the truth, but it requires a man of some sense to know how to lie well. 
+  Earth teach me to forget myself as melted snow forgets its life. Earth teach me resignation as the leaves which die in the fall. Earth teach me courage as the tree which stands all alone. Earth teach me regeneration as the seed which rises in the spring. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
