@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Exultest thou over the treasures thou dost possess, knowing they shall perish? Rejoicest thou in that thou rulest a span of earth, when the whole world, in the estimation of the people of Bahá, is worth as much as the black in the eye of a dead ant? 
+  If there is anything I've learned from Linux, it's that projects have a life of their own, and you should not try to enforce your vision too strongly on them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
