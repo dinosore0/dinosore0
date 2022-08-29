@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
+  My goal has never been to dominate the market.  My goal has always just been to just make a living. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
