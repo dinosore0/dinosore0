@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My goal has never been to dominate the market.  My goal has always just been to just make a living. 
+  Youth is the gift of nature, but age is a work of art. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
