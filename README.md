@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without knowing what I am and why I am here, life is impossible. 
+  Death and life have their determined appointments riches and honors depend upon heaven. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
