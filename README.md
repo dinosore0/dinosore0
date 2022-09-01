@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is a person you will follow to a place you would not go by yourself. 
+  No one can arrive from being talented alone, work transforms talent into genius. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
