@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everybody talks about the weather, but nobody does anything about it. 
+  Microsoft didn't kill Linux on the Desktop... Apple did. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
