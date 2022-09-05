@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And if you don't believe the sun will rise, stand alone and greet the coming night in the last remaining light. 
+  Forgive your enemies, but never forget their names. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
