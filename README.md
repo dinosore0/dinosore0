@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Old men are dangerous: it doesn't matter to them what is going to happen to the world. 
+  Most people have never learned that one of the main aims in life is to enjoy it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
