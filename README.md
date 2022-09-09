@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Great is truth, but still greater, from a practical point of view, is silence about truth. By simply not mentioning certain subjects... totalitarian propagandists have influenced opinion much more effectively than they could have by the most eloquent denunciations. 
+  Average acting is like jerking without an orgasm 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
