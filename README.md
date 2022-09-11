@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't be afraid of death; be afraid of an unlived life. You don't have to live forever, you just have to live 
+  To be idle is a short road to death and to be diligent is a way of life foolish people are idle, wise people are diligent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
