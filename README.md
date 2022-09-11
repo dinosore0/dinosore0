@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A good end is the reward of the pious. 
+  Don't be afraid of death; be afraid of an unlived life. You don't have to live forever, you just have to live 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
