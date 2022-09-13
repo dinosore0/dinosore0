@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I make myself rich by making my wants few. 
+  A little knowledge is a dangerous thing, but a little want of knowledge is also a dangerous thing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
