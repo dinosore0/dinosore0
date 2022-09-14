@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Complainers change their complaints, but they never reduce the amount of time spent in complaining. 
+  Maturing is realizing how many things don’t require your comment. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
