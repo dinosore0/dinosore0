@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Clothes make the man. Naked people have little or no influence on society. 
+  Complainers change their complaints, but they never reduce the amount of time spent in complaining. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
