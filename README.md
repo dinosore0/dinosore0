@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Passion is momentary love is enduring. 
+  I arise in the morning torn between a desire to improve the world and a desire to enjoy the world. This makes it hard to plan the day. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
