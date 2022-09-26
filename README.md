@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best scientist is open to experience and begins with romance - the idea that anything is possible. 
+  Consumed with that which it was nourish'd by. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
