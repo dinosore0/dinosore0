@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you practice gratefulness, there is a sense of respect toward others. 
+  The best scientist is open to experience and begins with romance - the idea that anything is possible. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
