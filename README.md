@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Clever and attractive women do not want to vote they are willing to let men govern as long as they govern men. 
+  A good traveler has no fixed plans, and is not intent on arriving. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
