@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A society grows great when old men plant trees whose shade they know they shall never sit in. 
+  I never travel without my diary. One should always have something sensational to read in the train. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
