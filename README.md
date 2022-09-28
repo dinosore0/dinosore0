@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Motivation is the art of getting people to do what you want them to do because they want to do it. 
+  Clever and attractive women do not want to vote they are willing to let men govern as long as they govern men. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
