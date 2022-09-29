@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Here is the rule to remember in the future, When anything tempts you to be bitter: not, 'This is a misfortune' but 'To bear this worthily is good fortune.' 
+  I chose life over death for myself and my friends... I believe it is in our nature to explore, to reach out into the unknown. The only true failure would be not to explore at all. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
