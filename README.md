@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men can only be happy when they do not assume that the object of life is happiness. 
+  Try not to become a man of success, but rather try to become a man of value. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
