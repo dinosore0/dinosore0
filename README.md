@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In other words, a person who is fanatic in matters of religion, and clings to certain ideas about the nature of God and the universe, becomes a person who has no faith at all. 
+  I am only one; but still I am one. I cannot do everything; but still I can do something. I will not refuse to do the something I can do. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
