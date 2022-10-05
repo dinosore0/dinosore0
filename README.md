@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am only one; but still I am one. I cannot do everything; but still I can do something. I will not refuse to do the something I can do. 
+  Death comes to all, but great achievements build a monument which shall endure until the sun grows cold. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
