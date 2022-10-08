@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If anyone is crazy enough to want to kill a president of the United States, he can do it. All he must be prepared to do is give his life for the president's. 
+  This is my quote 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
