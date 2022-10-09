@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People in their handlings of affairs often fail when they are about to succeed. If one remains as careful at the end as he was at the beginning, there will be no failure. 
+  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
