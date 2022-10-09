@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The troubles of this world pass, and what we have left is what we have made of our souls... 
+  People in their handlings of affairs often fail when they are about to succeed. If one remains as careful at the end as he was at the beginning, there will be no failure. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
