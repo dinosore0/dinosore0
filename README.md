@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am still learning. 
+  Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
