@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All women become like their mothers. That is their tragedy. No man does. That's his. 
+  The role of leadership is to transform the complex situation into small pieces and prioritize them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
