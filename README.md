@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If the service is free, the product being sold is you. 
+  A business absolutely devoted to service will have only one worry about profits. They will be embarrassingly large. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
