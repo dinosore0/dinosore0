@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Keep your face to the sunshine and you cannot see the shadow. 
+  In the end, it's not the years in your life that count. It's the life in your years. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
