@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The laws of nature are but the mathematical thoughts of God. 
+  Every young man would do well to remember that all successful business stands on the foundation of morality. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
