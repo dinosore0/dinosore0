@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For every minute you remain angry, you give up sixty seconds of peace of mind. 
+  Keep your face to the sunshine and you cannot see the shadow. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
