@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is one who knows the way, goes the way and shows the way. 
+  The man who does not read good books has no advantage over the man who cannot read them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
