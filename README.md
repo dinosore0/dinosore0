@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It only takes 20 years for a liberal to become a conservative without changing a single idea. 
+  Chop your own wood and it will warm you twice. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
