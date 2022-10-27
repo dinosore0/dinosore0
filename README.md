@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The aim of art is to represent not the outward appearance of things, but their inward significance. 
+  It only takes 20 years for a liberal to become a conservative without changing a single idea. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
