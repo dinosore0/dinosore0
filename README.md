@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Peace cannot be achieved through violence, it can only be attained through understanding. 
+  Ever has it been that love knows not its own depth until the hour of separation. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
