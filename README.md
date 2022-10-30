@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A pair of powerful spectacles has sometimes sufficed to cure a person in love. 
+  Peace cannot be achieved through violence, it can only be attained through understanding. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
