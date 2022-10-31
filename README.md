@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tie your self worth to something that you will lose, and you'll be left with nothing. 
+  A strong argument for the religion of Christ is this - that offences against Charity are about the only ones which men on their death-beds can be made - not to understand - but to feel - as crime. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
