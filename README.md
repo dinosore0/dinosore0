@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A strong argument for the religion of Christ is this - that offences against Charity are about the only ones which men on their death-beds can be made - not to understand - but to feel - as crime. 
+  The words of truth are always paradoxical. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
