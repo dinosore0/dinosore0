@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Someone's sitting in the shade today because someone planted a tree a long time ago. 
+  Tie your self worth to something that you will lose, and you'll be left with nothing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
