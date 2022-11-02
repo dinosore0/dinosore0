@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The more that learn to read the less learn how to make a living. That's one thing about a little education. It spoils you for actual work. The more you know the more you think somebody owes you a living. 
+  He that will not apply new remedies must expect new evils for time is the greatest innovator. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
