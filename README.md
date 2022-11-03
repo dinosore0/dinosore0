@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Who doesn't want to shortcut the greatness. 
+  In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
