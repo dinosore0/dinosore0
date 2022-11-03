@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world? 
+  My mentality is that of a samurai. I would rather commit seppuku than fail. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
