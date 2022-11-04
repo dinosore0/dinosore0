@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have wasted History like a bunch of drunks shooting dice back in the men's crapper of the local bar. 
+  Nature is wont to hide herself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
