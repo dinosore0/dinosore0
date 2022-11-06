@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This world is but a canvas to our imagination. 
+  I am tormented with an everlasting itch for things remote. I love to sail forbidden seas. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
