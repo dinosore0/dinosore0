@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Adversity makes men, and prosperity makes monsters. 
+  Faced with what is right, to leave it undone shows a lack of courage. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
