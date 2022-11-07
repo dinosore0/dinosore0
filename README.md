@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faced with what is right, to leave it undone shows a lack of courage. 
+  The smallest act of kindness is worth more than the grandest intention. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
