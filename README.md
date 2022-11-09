@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is no disguise which can hide love for long where it exists, or simulate it where it does not. 
+  One should never forbid what one lacks the power to prevent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
