@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ceaseless labour of your life is to build the house of death. 
+  There is no disguise which can hide love for long where it exists, or simulate it where it does not. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
