@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A good traveler has no fixed plans, and is not intent on arriving. 
+  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
