@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In three words I can sum up everything I've learned about life: it goes on. 
+  Freedom is not worth having if it does not connote freedom to err. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
