@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sound of a kiss is not so loud as that of a cannon, but its echo lasts a great deal longer. 
+  In three words I can sum up everything I've learned about life: it goes on. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
