@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've written some poetry I don't understand myself. 
+  Opportunity is missed by most people because it is dressed in overalls and looks like work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
