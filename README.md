@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves. 
+  I've written some poetry I don't understand myself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
