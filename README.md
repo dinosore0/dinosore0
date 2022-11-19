@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everybody has something that chews them up and, for me, that thing was always loneliness. The cinema has the power to make you not feel lonely, even when you are. 
+  This world is but a canvas to our imagination. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
