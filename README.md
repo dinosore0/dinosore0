@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fortune, which has a great deal of power in other matters but especially in war, can bring about great changes in a situation through very slight forces. 
+  I have decided to stick with love. Hate is too great a burden to bear. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
