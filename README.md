@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God not only plays dice, but also sometimes throws them where they cannot be seen. 
+  We have no right to assume that any physical laws exist, or if they have existed up until now, that they will continue to exist in a similar manner in the future. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
