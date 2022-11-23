@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Choose a job you love, and you will never have to work a day in your life. 
+  God not only plays dice, but also sometimes throws them where they cannot be seen. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
