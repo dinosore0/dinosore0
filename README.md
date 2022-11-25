@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To succeed in life, you need two things: ignorance and confidence. 
+  We the unwilling.<br>Led by the unqualified.<br>To kill the unfortunate.<br>Die for the ungrateful. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
