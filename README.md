@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every day I try to be in communication with the universe in an unconscious way. 
+  One cool judgment is worth a thousand hasty counsels. The thing to do is to supply light and not heat. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
