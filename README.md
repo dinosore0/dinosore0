@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every time I see an adult on a bicycle, I no longer despair for the future of the human race. 
+  Nguồn mở là thứ tồn tại duy nhất. Mọi nguồn khác có hay không có, không quan trọng. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
