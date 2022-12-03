@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Winning is only half of it. Having fun is the other half. 
+  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
