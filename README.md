@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Change alone is eternal, perpetual, immortal. 
+  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
