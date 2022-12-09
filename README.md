@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. 
+  I hate women because they always know where things are. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
