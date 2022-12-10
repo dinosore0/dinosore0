@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A girl should be two things: classy and fabulous. 
+  As for style, there is something about the way musicians dress-they seem to be able to create their own world within their fashion alone. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
