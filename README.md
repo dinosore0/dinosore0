@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world needs dreamers and the world needs doers. But above all, the world needs dreamers who do. 
+  Don't spend time beating on a wall, hoping to transform it into a door. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
