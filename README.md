@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The chief enemy of creativity is 'good' sense. 
+  The world needs dreamers and the world needs doers. But above all, the world needs dreamers who do. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
