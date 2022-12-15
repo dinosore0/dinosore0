@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I find playwriting to be incredibly difficult compared to screenwriting. Part of it is that I grew up watching movies and not watching plays. 
+  Mathematics is the language with which God has written the universe. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
