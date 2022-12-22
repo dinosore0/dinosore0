@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is good to rub and polish our brain against that of others. 
+  I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
