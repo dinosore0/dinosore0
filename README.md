@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ignore what a man desires, and you ignore the very source of his power. 
+  Rebellion without truth is like spring in a bleak, arid desert. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
