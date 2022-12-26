@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Can you imagine what I would do if I could do all I can? 
+  If you want others to be happy, practice compassion. If you want to be happy, practice compassion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
