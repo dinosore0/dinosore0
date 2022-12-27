@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you. 
+  The great proof of madness is the disproportion of one's designs to one's means. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
