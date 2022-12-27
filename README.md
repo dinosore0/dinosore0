@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great proof of madness is the disproportion of one's designs to one's means. 
+  Perfecting oneself is as much unlearning as it is learning. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
