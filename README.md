@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is a person you will follow to a place you would not go by yourself. 
+  You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
