@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The key to everything is patience. You get the chicken by hatching the egg, not by smashing it. 
+  A leader is a person you will follow to a place you would not go by yourself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
