@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A nickel ain't worth a dime anymore. 
+  Eating rice cakes is like chewing on a foam coffee cup, only less filling. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
