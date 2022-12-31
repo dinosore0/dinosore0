@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In general, the art of government consists of taking as much money as possible from one class of citizens to give to another. 
+  Strength and growth come only through continuous effort and struggle. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
