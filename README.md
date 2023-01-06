@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is no kind of dishonesty into which otherwise good people more easily and frequently fall than that of defrauding the government. 
+  Failures are finger posts on the road to achievement. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
