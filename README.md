@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Worry does not empty tomorrow of its sorrow. It empties today of its strength. 
+  Life would be tragic if it weren't funny. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
