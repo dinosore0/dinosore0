@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anxiety does not empty tomorrow of its sorrows, but only empties today of its strength. 
+  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
