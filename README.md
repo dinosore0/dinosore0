@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I sometimes think that God in creating man somewhat overestimated his ability. 
+  Anxiety does not empty tomorrow of its sorrows, but only empties today of its strength. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
