@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  From a child I was fond of reading, and all the little money that came into my hands was ever laid out in books. 
+  Bad programmers worry about the code. Good programmers worry about data structures and their relationships. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
