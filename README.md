@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not death that a man should fear, but he should fear never beginning to live. 
+  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
