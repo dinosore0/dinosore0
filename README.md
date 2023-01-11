@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Learning to program teaches you how to think. Computer science is a liberal art. 
+  Why is Cloud 9 so amazing? What is wrong with Cloud 8? That joke came off the top of my head, and the top of my head ain't funny! 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
