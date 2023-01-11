@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once you get used to thinking about Unit Tests as you write code, you tend to write code in nice tight modular pieces. 
+  It is absurd to divide people into good and bad. People are either charming or tedious. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
