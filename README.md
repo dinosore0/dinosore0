@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The happiness of one's own heart alone cannot satisfy the soul one must try to include, as necessary to one's own happiness, the happiness of others. 
+  We are the only real aristocracy in the world: the aristocracy of money. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
