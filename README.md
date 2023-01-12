@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are the only real aristocracy in the world: the aristocracy of money. 
+  Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
