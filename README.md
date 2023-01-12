@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones. 
+  Once you get used to thinking about Unit Tests as you write code, you tend to write code in nice tight modular pieces. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
