@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One forgives to the degree that one loves. 
+  Aim for the sky, but move slowly, enjoying every step along the way. It is all those little steps that make the journey complete. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
