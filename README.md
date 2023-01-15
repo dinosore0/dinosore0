@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The troubles of this world pass, and what we have left is what we have made of our souls... 
+  First rule of programming " if it works, don't touch it". 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
