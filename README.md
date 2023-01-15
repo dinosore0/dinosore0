@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people. 
+  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
