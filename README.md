@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  First rule of programming " if it works, don't touch it". 
+  Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
