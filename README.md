@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The act of birth is the first experience of anxiety, and thus the source and prototype of the affect of anxiety. 
+  The troubles of this world pass, and what we have left is what we have made of our souls... 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
