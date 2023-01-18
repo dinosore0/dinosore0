@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've learned from experience that the greater part of our happiness or misery depends on our dispositions and not on our circumstances. 
+  When one has not had a good father, one must create one. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
