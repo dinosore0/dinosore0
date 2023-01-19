@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A positive attitude gives you power over your circumstances instead of circumstances having power over you. 
+  I've learned from experience that the greater part of our happiness or misery depends on our dispositions and not on our circumstances. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
