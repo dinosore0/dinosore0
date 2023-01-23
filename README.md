@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
+  Our scientific power has outrun our spiritual power. We have guided missiles and misguided men. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
