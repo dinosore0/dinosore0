@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I claim that human mind or human society is not divided into watertight compartments called social, political and religious. All act and react upon one another. 
+  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
