@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The art of living well and the art of dying well are one. 
+  I claim that human mind or human society is not divided into watertight compartments called social, political and religious. All act and react upon one another. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
