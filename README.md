@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you are enthusiastic about what you do, you feel this positive energy. It's very simple. 
+  I’m going to go down getting my data. That’s the only reason I chase. It’s for the data. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
