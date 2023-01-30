@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To his dog, every man is Napoleon; hence the constant popularity of dogs. 
+  Business can learn about new conditions the same way a gene pool does. I'm not claiming companies can get smarter, just that dumb ones will die. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
