@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There's a victory, and defeat the first and best of victories, the lowest and worst of defeats which each man gains or sustains at the hands not of another, but of himself. 
+  I want to be thoroughly used up when I die, for the harder I work the more I live. I rejoice in life for its own sake. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
