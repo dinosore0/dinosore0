@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Thou wilt find rest from vain fancies if thou doest every act in life as though it were thy last. 
+  Some people are so much sunshine to the square inch. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
