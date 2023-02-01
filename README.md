@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True terror is to wake up one morning and discover that your high school class is running the country. 
+  Thou wilt find rest from vain fancies if thou doest every act in life as though it were thy last. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
