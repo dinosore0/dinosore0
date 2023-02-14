@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care. 
+  Perfect happiness is a beautiful sunset, the giggle of a grandchild, the first snowfall. It’s the little things that make happy moments, not the grand events. Joy comes in sips, not gulps. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
