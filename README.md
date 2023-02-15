@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Forget the past. 
+  Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
