@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I, at any rate, am convinced that He does not throw dice. 
+  If there is anything I've learned from Linux, it's that projects have a life of their own, and you should not try to enforce your vision too strongly on them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
