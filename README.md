@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
+  The measure of a man is what he does with power. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
