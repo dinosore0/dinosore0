@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Advertising is legalized lying. 
+  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
