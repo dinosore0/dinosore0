@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're emotional about investment, you're not going to do well. You may have all these feelings about the stock. The stock has no feelings about you. 
+  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
