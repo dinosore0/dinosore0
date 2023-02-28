@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In God we trust. All others must bring data. 
+  If you're emotional about investment, you're not going to do well. You may have all these feelings about the stock. The stock has no feelings about you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
