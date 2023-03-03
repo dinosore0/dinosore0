@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sage does not hoard. The more he helps others, the more he benefits himself, The more he gives to others, the more he gets himself. The Way of Heaven does one good but never does one harm. The Way of the sage is to act but not to compete. 
+  Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
