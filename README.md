@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
+  Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
