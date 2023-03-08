@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him. 
+  Never leave that till tomorrow which you can do today. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
