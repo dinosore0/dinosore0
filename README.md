@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever words we utter should be chosen with care for people will hear them and be influenced by them for good or ill. 
+  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
