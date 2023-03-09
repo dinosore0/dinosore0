@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I want to be thoroughly used up when I die, for the harder I work the more I live. I rejoice in life for its own sake. 
+  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
