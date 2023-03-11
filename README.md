@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hell isn't merely paved with good intentions it's walled and roofed with them. Yes, and furnished too. 
+  Money is the last enemy that shall never be subdued. While there is flesh there is money or the want of money, but money is always on the brain so long as there is a brain in reasonable order. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
