@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. 
+  Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
