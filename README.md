@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Judgments, value judgments concerning life, for or against, can in the last resort never be true: they possess value only as symptoms, they come into consideration only as symptoms - in themselves such judgments are stupidities. 
+  The supreme art of war is to subdue the enemy without fighting. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
