@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The supreme art of war is to subdue the enemy without fighting. 
+  We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
