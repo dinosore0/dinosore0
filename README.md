@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
+  What is there more kindly than the feeling between host and guest? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
