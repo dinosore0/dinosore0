@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Perfecting oneself is as much unlearning as it is learning. 
+  I challenge you to make your life a masterpiece. I challenge you to join the ranks of those people who live what they teach, who walk their talk. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
