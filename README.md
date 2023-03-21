@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The 10,000 Hour Rule - All of us have some measure of greatness within us. But it has to be cultivated. It takes hours of hard work, usually about 10,000 hours, especially when one is young. 
+  Everything you can imagine is real. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
