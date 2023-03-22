@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every time I see an adult on a bicycle, I no longer despair for the future of the human race. 
+  The 10,000 Hour Rule - All of us have some measure of greatness within us. But it has to be cultivated. It takes hours of hard work, usually about 10,000 hours, especially when one is young. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
