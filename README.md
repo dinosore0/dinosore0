@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This console here was the best part of my life. And I spent almost 10 years at this console. It is my life, it will always be my life. And I will never leave it behind. 
+  You know, religion itself, Eastern and Western, is divisive and quarrelsome anyway. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
