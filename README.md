@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is better to keep your mouth shut and appear stupid than to open it and remove all doubt. 
+  Communism, like any other revealed religion, is largely made up of prophecies. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
