@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Doing well is the result of doing good. That's what capitalism is all about. 
+  A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
