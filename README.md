@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
+  Never let your schooling interfere with your education. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
