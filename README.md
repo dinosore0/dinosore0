@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If we knew what it was we were doing, it would not be called research, would it? 
+  Let us never negotiate out of fear. But let us never fear to negotiate. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
