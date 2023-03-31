@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The aim of art is to represent not the outward appearance of things, but their inward significance. 
+  There is a wisdom in this beyond the rules of physic: a man's own observation what he finds good of and what he finds hurt of is the best physic to preserve health. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
