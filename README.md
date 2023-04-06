@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It occurred to me that there was no difference between men, in intelligence or race, so profound as the difference between the sick and the well. 
+  Our greatest glory is not in never failing, but in rising up every time we fail. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
