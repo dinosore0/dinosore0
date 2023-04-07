@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Keep your face to the sunshine and you cannot see the shadow. 
+  It occurred to me that there was no difference between men, in intelligence or race, so profound as the difference between the sick and the well. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
