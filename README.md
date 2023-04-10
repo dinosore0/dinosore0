@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The first requisite of a good citizen in this republic of ours is that he shall be able and willing to pull his own weight. 
+  Life is what happens to you while you're making other plans. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
