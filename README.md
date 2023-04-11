@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't make positive choices for the rest of your life without an environment that makes those choices easy, natural, and enjoyable. 
+  Love is metaphysical gravity. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
