@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Bad programmers worry about the code. Good programmers worry about data structures and their relationships. 
+  Marriage is an adventure, like going to war. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
