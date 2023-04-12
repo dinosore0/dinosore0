@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Treat your men as you would your own beloved sons. And they will follow you into the deepest valley. 
+  Life is 10% what happens to you and 90% how you react to it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
