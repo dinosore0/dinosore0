@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Death is one moment, and life is so many of them. 
+  You can't make positive choices for the rest of your life without an environment that makes those choices easy, natural, and enjoyable. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
