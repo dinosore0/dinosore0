@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The supreme happiness of life is the conviction that we are loved loved for ourselves, or rather in spite of ourselves. 
+  Treat your men as you would your own beloved sons. And they will follow you into the deepest valley. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
