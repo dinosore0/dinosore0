@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There has to be evil so that good can prove its purity above it. 
+  On tension: "Instead of a surprise, tell them to it's coming over and over. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
