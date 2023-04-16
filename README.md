@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If Bill Gates woke up with Oprah's money, he'd jump out the window. 
+  I think it's crucial that young women learn to code as early as possible to ensure that we have a voice in what the world looks like. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
