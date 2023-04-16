@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same. 
+  If Bill Gates woke up with Oprah's money, he'd jump out the window. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
