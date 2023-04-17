@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
+  The time is always right to do what is right. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
