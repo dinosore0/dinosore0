@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What we hope ever to do with ease, we must learn first to do with diligence. 
+  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
