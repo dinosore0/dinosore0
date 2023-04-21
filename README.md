@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
+  The great city is that which has the greatest man or woman: if it be a few ragged huts, it is still the greatest city in the whole world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
