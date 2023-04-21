@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great city is that which has the greatest man or woman: if it be a few ragged huts, it is still the greatest city in the whole world. 
+  You can't build a reputation on what you are going to do. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
