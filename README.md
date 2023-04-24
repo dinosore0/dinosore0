@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I find playwriting to be incredibly difficult compared to screenwriting. Part of it is that I grew up watching movies and not watching plays. 
+  Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
