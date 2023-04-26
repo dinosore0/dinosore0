@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Work is a necessary evil to be avoided. 
+  Elections are won by men and women chiefly because most people vote against somebody rather than for somebody. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
