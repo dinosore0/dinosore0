@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Old age is fifteen years older than I am. 
+  Everything you’ve ever wanted is on the other side of fear. — George Addair 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
