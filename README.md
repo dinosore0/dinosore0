@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People disparage knowing and the intellectual life, and urge doing. I am content with knowing, if only I could know. 
+  I had a cat once, but every time I tried to give him a bath, the fur stuck to my tongue. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
