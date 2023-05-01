@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Genius is one percent inspiration, ninety-nine percent perspiration. 
+  People disparage knowing and the intellectual life, and urge doing. I am content with knowing, if only I could know. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
