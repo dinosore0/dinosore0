@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few. 
+  Speak only if it improves upon the silence. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
