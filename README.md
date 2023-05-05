@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Chains of habit are too light to be felt until they are too heavy to be broken. 
+  Sex at age 90 is like trying to shoot pool with a rope. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
