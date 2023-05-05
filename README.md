@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sex at age 90 is like trying to shoot pool with a rope. 
+  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
