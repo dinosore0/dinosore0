@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One should not pursue goals that are easily achieved. One must develop an instinct for what one can just barely achieve through one's greatest efforts. 
+  It is a sign of contraction of the mind when it is content, or of weariness. A spirited mind never stops within itself it is always aspiring and going beyond its strength. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
