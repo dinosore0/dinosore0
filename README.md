@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So you know cats are interesting. They are kind of like girls. If they come and talk to you it's great. But if you try to talk to them it doesn't always go so well. 
+  He who is the author of a war lets loose the whole contagion of hell and opens a vein that bleeds a nation to death. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
