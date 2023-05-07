@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sound of a kiss is not so loud as that of a cannon, but its echo lasts a great deal longer. 
+  So you know cats are interesting. They are kind of like girls. If they come and talk to you it's great. But if you try to talk to them it doesn't always go so well. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
