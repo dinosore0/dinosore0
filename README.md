@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fox has many tricks. The hedgehog has but one. But that is the best of all. 
+  A society grows great when old men plant trees whose shade they know they shall never sit in. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
