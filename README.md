@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is easy to hate and it is difficult to love. This is how the whole scheme of things works. All good things are difficult to achieve and bad things are very easy to get. 
+  Don't walk behind me; I may not lead. Don't walk in front of me; I may not follow. Just walk beside me and be my friend. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
