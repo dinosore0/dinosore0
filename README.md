@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me and I forget. Teach me and I remember. Involve me and I learn. 
+  Knowing yourself is the beginning of all wisdom. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
