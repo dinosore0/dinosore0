@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
+  Tell me and I forget. Teach me and I remember. Involve me and I learn. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
