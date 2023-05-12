@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you dream of something worth doing and then simply go to work on it and don't think anything of personalities, or emotional conflicts, or of money, or of family distractions it is amazing how quickly you get through those 5,000 steps. 
+  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
