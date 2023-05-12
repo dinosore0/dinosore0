@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The history of the world is the record of the weakness, frailty and death of public opinion. 
+  If at first you don't succeed, destroy all evidence that you tried. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
