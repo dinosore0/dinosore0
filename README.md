@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is a scientific fact that your body will not absorb cholesterol if you take it from another person's plate. 
+  Whatever words we utter should be chosen with care for people will hear them and be influenced by them for good or ill. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
