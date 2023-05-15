@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To live a pure unselfish life, one must count nothing as one's own in the midst of abundance. 
+  It is a scientific fact that your body will not absorb cholesterol if you take it from another person's plate. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
