@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fear defeats more people than any other one thing in the world. 
+  No b-----d ever won a war by dying for his country. He won it by making the other poor dumb b-----d die for his country. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
