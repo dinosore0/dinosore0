@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bird cannot walk as fast as a person and never will.   It is made to fly. 
+  Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
