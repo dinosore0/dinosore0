@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are worse crimes than burning books. One of them is not reading them. 
+  A bird cannot walk as fast as a person and never will.   It is made to fly. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
