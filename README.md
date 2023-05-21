@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be grateful for luck, but don't depend on it. 
+  Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
