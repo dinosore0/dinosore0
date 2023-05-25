@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is error alone which needs the support of government. Truth can stand by itself. 
+  Life is like music it must be composed by ear, feeling, and instinct, not by rule. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
