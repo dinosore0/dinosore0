@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Being entirely honest with oneself is a good exercise. 
+  A life is like a garden. Perfect moments can be had, but not preserved, except in memory. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
