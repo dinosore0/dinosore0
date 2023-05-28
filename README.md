@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Microsoft didn't kill Linux on the Desktop... Apple did. 
+  Every sunset brings the promise of a new dawn. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
