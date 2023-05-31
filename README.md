@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are worse things in life than death. Have you ever spent an evening with an insurance salesman? 
+  The time is near at hand which must determine whether Americans are to be free men or slaves. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
