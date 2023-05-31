@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me and I forget; teach me and I may remember; involve me and I learn. 
+  There are worse things in life than death. Have you ever spent an evening with an insurance salesman? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
