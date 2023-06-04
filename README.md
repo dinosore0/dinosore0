@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing in the affairs of men is worthy of great anxiety. 
+  The best way to convince a fool that he is wrong is to let him have his own way. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
