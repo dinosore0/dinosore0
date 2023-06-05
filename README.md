@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every great dream begins with a dreamer. Always remember, you have within you the strength, patience, and passion to reach for the stars and change the world. 
+  Nothing in the affairs of men is worthy of great anxiety. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
