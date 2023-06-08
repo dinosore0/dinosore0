@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The means of defense against foreign danger historically have become the instruments of tyranny at home. 
+  Do the thing you fear most and the death of fear is certain. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
