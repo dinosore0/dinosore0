@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would believe only in a God that knows how to Dance. 
+  To be idle is a short road to death and to be diligent is a way of life foolish people are idle, wise people are diligent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
