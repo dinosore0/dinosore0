@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God not only plays dice, but also sometimes throws them where they cannot be seen. 
+  If they want peace, nations should avoid the pin-pricks that precede cannon shots. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
