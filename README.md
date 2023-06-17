@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned. 
+  Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
