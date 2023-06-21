@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Say not, 'I have found the truth,' but rather, 'I have found a truth.' 
+  The young man knows the rules, but the old man knows the exceptions. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
