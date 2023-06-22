@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Zeal without knowledge is fire without light. 
+  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
