@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Own Less, Live More 
+  It is easy to hate and it is difficult to love. This is how the whole scheme of things works. All good things are difficult to achieve and bad things are very easy to get. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
