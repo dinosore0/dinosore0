@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not think there is any other quality so essential to success, of any kind, as perseverance. It overcomes almost everything. 
+  He who is not courageous enough to take risks will accomplish nothing in life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
