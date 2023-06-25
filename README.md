@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No man ever believes that the Bible means what it says:  He is always convinced that it says what he means. 
+  The voice of the intellect is a soft one, but it does not rest until it has gained a hearing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
