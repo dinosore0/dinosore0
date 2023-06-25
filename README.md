@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  From the moment I picked your book up until I laid it down I was convulsed with laughter. Someday I intend reading it. 
+  No man ever believes that the Bible means what it says:  He is always convinced that it says what he means. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
