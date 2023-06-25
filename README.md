@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The voice of the intellect is a soft one, but it does not rest until it has gained a hearing. 
+  The greatest thing about being a scientist is you never have to grow up. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
