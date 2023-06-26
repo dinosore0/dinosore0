@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The night is darkest just before the dawn. And I promise you the dawn is coming. 
+  From the moment I picked your book up until I laid it down I was convulsed with laughter. Someday I intend reading it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
