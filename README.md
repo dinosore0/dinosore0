@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. 
+  Nothing in the affairs of men is worthy of great anxiety. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
