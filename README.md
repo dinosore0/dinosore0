@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only the wisest and stupidest of men never change. 
+  Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
