@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Real difficulties can be overcome; it is only the imaginary ones that are unconquerable 
+  Only the wisest and stupidest of men never change. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
