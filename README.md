@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All great truths begin as blasphemies. 
+  Real difficulties can be overcome; it is only the imaginary ones that are unconquerable 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
