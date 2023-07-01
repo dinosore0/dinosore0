@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
+  All great truths begin as blasphemies. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
