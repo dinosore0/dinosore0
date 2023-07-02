@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Motivation is the art of getting people to do what you want them to do because they want to do it. 
+  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
