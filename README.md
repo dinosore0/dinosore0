@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
+  To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
