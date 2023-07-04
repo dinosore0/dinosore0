@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is in true beauty, as in courage, something which narrow souls cannot dare to admire. 
+  A people that values its privileges above its principles soon loses both. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
