@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A goal is not always meant to be reached, it often serves simply as something to aim at. 
+  I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
