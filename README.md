@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.' 
+  Excuses change nothing, but make everyone feel better. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
