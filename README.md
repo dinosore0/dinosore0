@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. 
+  I never travel without my diary. One should always have something sensational to read in the train. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
