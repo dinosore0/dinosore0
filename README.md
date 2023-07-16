@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For every minute you remain angry, you give up sixty seconds of peace of mind. 
+  Everyone has been made for some particular work, and the desire for that work has been put in every heart. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
