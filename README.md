@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The conscious mind may be compared to a fountain playing in the sun and falling back into the great subterranean pool of subconscious from which it rises. 
+  If you never want to be criticized, for goodness' sake don't do anything new. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
