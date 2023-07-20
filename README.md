@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives. 
+  First rule of programming " if it works, don't touch it". 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
