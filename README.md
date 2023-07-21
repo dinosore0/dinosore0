@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you can find a path with no obstacles, it probably doesn't lead anywhere. 
+  Kindness is a mark of faith, and whoever has no kindness has not faith. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
