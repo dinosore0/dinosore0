@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Women must tell men always that they are the strong ones. They are the big, the strong, the wonderful. In truth, women are the strong ones. It is just my opinion, I am not a professor. 
+  No b-----d ever won a war by dying for his country. He won it by making the other poor dumb b-----d die for his country. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
