@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No b-----d ever won a war by dying for his country. He won it by making the other poor dumb b-----d die for his country. 
+  Knowing yourself is the beginning of all wisdom. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
