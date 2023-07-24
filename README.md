@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy. 
+  Women must tell men always that they are the strong ones. They are the big, the strong, the wonderful. In truth, women are the strong ones. It is just my opinion, I am not a professor. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
