@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A positive attitude gives you power over your circumstances instead of circumstances having power over you. 
+  When we are born we cry that we are come to this great stage of fools. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
