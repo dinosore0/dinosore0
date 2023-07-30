@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
+  Mystical explanations are thought to be deep; the truth is that they are not even shallow. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
