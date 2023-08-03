@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Compassion and happiness are not a sign of weakness but a sign of strength. 
+  You know, religion itself, Eastern and Western, is divisive and quarrelsome anyway. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
