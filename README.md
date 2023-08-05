@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Strength and growth come only through continuous effort and struggle. 
+  No amount of experimentation can ever prove me right a single experiment can prove me wrong. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
