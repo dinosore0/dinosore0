@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Either you think, or else others have to think for you and take power from you, pervert and discipline your natural tastes, civilize and sterilize you. 
+  A good leader takes a little more than his share of the blame, a little less than his share of the credit. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
