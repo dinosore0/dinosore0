@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it. 
+  Either you think, or else others have to think for you and take power from you, pervert and discipline your natural tastes, civilize and sterilize you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
