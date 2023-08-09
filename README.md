@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best. 
+  The purpose of Compulsory Education is to deprive the common people of their commonsense. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
