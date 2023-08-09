@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fool doth think he is wise, but the wise man knows himself to be a fool. 
+  I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
