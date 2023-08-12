@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you ever find happiness by hunting for it, you will find it, as the old woman did her lost spectacles, safe on her own nose all the time. 
+  I have long known that it is part of God's plan for me to spend a little time with each of the most stupid people on earth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
