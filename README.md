@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have long known that it is part of God's plan for me to spend a little time with each of the most stupid people on earth. 
+  Never stop dreaming big 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
