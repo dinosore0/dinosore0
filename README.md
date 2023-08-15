@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't study comedy; it's within you. It's a personality. My humor is an attitude. 
+  Youth is the gift of nature, but age is a work of art. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
