@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If the machine of government is of such a nature that it requires you to be the agent of injustice to another, then, I say, break the law. 
+  The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
