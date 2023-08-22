@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives. 
+  I fundamentally believe that if you are not learning new things, you stop doing great and useful things. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
