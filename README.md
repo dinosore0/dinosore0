@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness. 
+  Enthusiasm is the mother of effort, and without it nothing great was ever achieved. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
