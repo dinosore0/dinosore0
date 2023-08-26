@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The superior man is distressed by the limitations of his ability he is not distressed by the fact that men do not recognize the ability that he has. 
+  We can change our lives. We can do, have, and be exactly what we wish. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
