@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The German national character is a favorite subject of character experts, probably because the less mature a nation, the more she is an object of criticism and not of history. 
+  Don't forget what I discovered that over ninety percent of all national deficits from 1921 to 1939 were caused by payments for past, present, and future wars. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
