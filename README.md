@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If God treats you well by teaching you a disastrous lesson, you never forget it. 
+  The German national character is a favorite subject of character experts, probably because the less mature a nation, the more she is an object of criticism and not of history. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
