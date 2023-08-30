@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music is the mediator between the spiritual and the sensual life. 
+  If God treats you well by teaching you a disastrous lesson, you never forget it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
