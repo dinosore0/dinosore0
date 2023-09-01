@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most important thing to us is that our customers love our products. Not just buy them, but love them. 
+  A people that values its privileges above its principles soon loses both. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
