@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're emotional about investment, you're not going to do well. You may have all these feelings about the stock. The stock has no feelings about you. 
+  History doesn't crawl; it leaps. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
