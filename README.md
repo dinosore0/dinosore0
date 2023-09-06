@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A friend to all is a friend to none. 
+  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
