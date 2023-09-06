@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have a lot of things to prove to myself. One is that I can live my life fearlessly. 
+  All men's miseries derive from not being able to sit in a quiet room alone. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
