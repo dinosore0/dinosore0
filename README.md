@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I miss one day of practice, I notice it. If I miss two days, the critics notice it. If I miss three days, the audience notices it. 
+  I have a lot of things to prove to myself. One is that I can live my life fearlessly. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
