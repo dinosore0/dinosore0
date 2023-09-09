@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
+  He who has overcome his fears will truly be free. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
