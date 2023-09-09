@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take a chance! All life is a chance. The man who goes farthest is generally the one who is willing to do and dare. 
+  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
