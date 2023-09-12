@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be willing to be a begineer every single morning. 
+  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
