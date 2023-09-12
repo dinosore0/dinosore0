@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
+  Peace is its own reward. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
