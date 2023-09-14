@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whenever you find yourself on the side of the majority, it is time to pause and reflect. 
+  Be kind whenever possible. It is always possible. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
