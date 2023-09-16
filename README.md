@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nixon is one of the few in the history of this country to run for high office talking out of both sides of his mouth at the same time and lying out of both sides. 
+  Never let your schooling interfere with your education. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
