@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In Republics, the great danger is, that the majority may not sufficiently respect the rights of the minority. 
+  If a business does well, the stock eventually follows. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
