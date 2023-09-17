@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When one has the feeling of dislike for evil, when one feels tranquil, one finds pleasure in listening to good teachings when one has these feelings and appreciates them, one is free of fear. 
+  In Republics, the great danger is, that the majority may not sufficiently respect the rights of the minority. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
