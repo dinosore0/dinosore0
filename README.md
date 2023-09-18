@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing. 
+  Treat those who are good with goodness, and also treat those who are not good with goodness. Thus goodness is attained. Be honest to those who are honest, and be also honest to those who are not honest. Thus honesty is attained. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
