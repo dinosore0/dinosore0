@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Treat those who are good with goodness, and also treat those who are not good with goodness. Thus goodness is attained. Be honest to those who are honest, and be also honest to those who are not honest. Thus honesty is attained. 
+  When one has the feeling of dislike for evil, when one feels tranquil, one finds pleasure in listening to good teachings when one has these feelings and appreciates them, one is free of fear. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
