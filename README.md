@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Freedom is the freedom to say that two plus two make four. If that is granted, all else follows. 
+  God will never direct us to be prideful, arrogant and unforgiving, immoral or slothful or full of fear. We step into these things because we are insensitive to the leadership of the Holy Spirit within us. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
