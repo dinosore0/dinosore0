@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved. 
+  When I was young, I thought that money was the most important thing in life; now that I am old, I know that it is. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
