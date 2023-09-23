@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. 
+  Believe you can and you're halfway there. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
