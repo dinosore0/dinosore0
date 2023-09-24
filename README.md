@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is good? All that heightens the feeling of power, the will to power, power itself in man. 
+  If someone commits an error and wrong toward you, you must instantly forgive him. Do not complain of others. Refrain from reprimanding them, and if you wish to give admonition or advice, let it be offered in such a way that it will not burden the bearer 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
