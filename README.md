@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best evaluation I can make of a player is to look in his eyes and see how scared they are. 
+  Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
