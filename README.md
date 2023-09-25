@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It’s not what you look at that matters, it’s what you see. 
+  What is good? All that heightens the feeling of power, the will to power, power itself in man. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
