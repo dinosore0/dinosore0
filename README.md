@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are worse things in life than death. Have you ever spent an evening with an insurance salesman? 
+  It’s not what you look at that matters, it’s what you see. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
