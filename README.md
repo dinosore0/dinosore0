@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven. 
+  Behold the child, by Nature's kindly law pleased with a rattle, tickled with a straw. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
