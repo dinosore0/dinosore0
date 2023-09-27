@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs. 
+  Our best thoughts come from others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
