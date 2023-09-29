@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What we achieve inwardly will change outer reality. 
+  Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
