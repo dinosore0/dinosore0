@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The function of leadership is to produce more leaders, not more followers. 
+  The meaning of life is to find your gift. The purpose of life is to give it away. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
