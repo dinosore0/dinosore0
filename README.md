@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let your schooling interfere with your education. 
+  Courage is the greatest of all virtues, because if you haven't courage, you may not have an opportunity to use any of the others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
