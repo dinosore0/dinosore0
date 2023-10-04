@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one is master of one thing and understands one thing well, one has at the same time, insight into and understanding of many things. 
+  If you don't understand the details of your business you are going to fail. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
