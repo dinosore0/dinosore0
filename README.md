@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It’s not what you look at that matters, it’s what you see. 
+  If one is master of one thing and understands one thing well, one has at the same time, insight into and understanding of many things. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
