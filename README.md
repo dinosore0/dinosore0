@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True art is characterized by an irresistible urge in the creative artist. 
+  Some men see things as they are and ask why. Others dream things that never were and ask why not. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
