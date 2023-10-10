@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't be afraid of death; be afraid of an unlived life. You don't have to live forever, you just have to live 
+  Of course, to have money is just great because you can do what you think is important to you. I always was a rich person because money's not related to happiness. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
