@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are only two kinds of languages: the ones people complain about and the ones nobody uses. 
+  Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
