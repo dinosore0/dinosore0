@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who is the author of a war lets loose the whole contagion of hell and opens a vein that bleeds a nation to death. 
+  It is impossible to love and to be wise. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
