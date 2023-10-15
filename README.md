@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Govern a great nation as you would cook a small fish. Do not overdo it. 
+  Company cultures are like country cultures. Never try to change one. Try, instead, to work with what you've got. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
