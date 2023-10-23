@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Analysis does not set out to make pathological reactions impossible, but to give the patient's ego freedom to decide one way or another. 
+  You know, religion itself, Eastern and Western, is divisive and quarrelsome anyway. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
