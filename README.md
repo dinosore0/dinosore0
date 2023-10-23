@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “A room without books is like a body without a soul.” 
+  Analysis does not set out to make pathological reactions impossible, but to give the patient's ego freedom to decide one way or another. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
