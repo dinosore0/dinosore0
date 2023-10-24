@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love. 
+  You can't build a reputation on what you are going to do. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
