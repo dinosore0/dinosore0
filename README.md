@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most great people have attained their greatest success just one step beyond their greatest failure. 
+  I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
