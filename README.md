@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. 
+  Get busy living or get busy dying 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
