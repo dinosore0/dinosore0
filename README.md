@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fear is stupid. So are regrets. 
+  The face you have at age 25 is the face God gave you, but the face you have after 50 is the face you earned. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
