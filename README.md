@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
+  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
