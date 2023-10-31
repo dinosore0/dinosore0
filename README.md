@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
+  The hardest thing to learn in life is which bridge to cross and which to burn. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
