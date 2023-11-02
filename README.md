@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All difficult things have their origin in that which is easy, and great things in that which is small. 
+  Every war when it comes, or before it comes, is represented not as a war but as an act of self-defense against a homicidal maniac. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
