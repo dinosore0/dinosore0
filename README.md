@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
+  I know of no safe depository of the ultimate powers of the society but the people themselves and if we think them not enlightened enough to exercise their control with a wholesome discretion, the remedy is not to take it from them but to inform their discretion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
