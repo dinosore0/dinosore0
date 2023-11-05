@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know of only one duty, and that is to love. 
+  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
