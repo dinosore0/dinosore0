@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never look at the brass. It only encourages them. 
+  I love sleep. My life has the tendency to fall apart when I'm awake, you know? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
