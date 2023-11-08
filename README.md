@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Of course, to have money is just great because you can do what you think is important to you. I always was a rich person because money's not related to happiness. 
+  Truth is the silliest thing under the sun. Try to get a living by the Truth and go to the Soup Societies. Heavens! Let any clergyman try to preach the Truth from its very stronghold, the pulpit, and they would ride him out of his church on his own pulpit bannister. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
