@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great proof of madness is the disproportion of one's designs to one's means. 
+  I want to be thoroughly used up when I die, for the harder I work the more I live. I rejoice in life for its own sake. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
