@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hatred does not cease by hatred, but only by love this is the eternal rule. 
+  Patriotism is not obedience to government.  Patriotism is obedience to the principals for which government is supposed to stand. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
