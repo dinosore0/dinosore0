@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
+  Show me a thoroughly satisfied man and I will show you a failure. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
