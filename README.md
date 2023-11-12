@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Show me a thoroughly satisfied man and I will show you a failure. 
+  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
