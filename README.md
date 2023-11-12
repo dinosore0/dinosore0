@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
+  One is never over-dressed or underdressed with a Little Black Dress. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
