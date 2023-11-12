@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One is never over-dressed or underdressed with a Little Black Dress. 
+  Man alone is born crying, lives complaining, and dies disappointed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
