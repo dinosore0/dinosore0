@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tragedy is a tool for the living to gain wisdom, not a guide by which to live. 
+  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
