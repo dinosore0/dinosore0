@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Half the lies they tell about me aren't true. 
+  Tragedy is a tool for the living to gain wisdom, not a guide by which to live. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
