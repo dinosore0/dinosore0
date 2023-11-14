@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never had a policy; I have just tried to do my very best each and every day. 
+  Happiness doesn't depend on any external conditions, it is governed by our mental attitude. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
