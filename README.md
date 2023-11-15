@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness. 
+  The key to everything is patience. You get the chicken by hatching the egg, not by smashing it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
