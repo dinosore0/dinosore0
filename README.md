@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The key to everything is patience. You get the chicken by hatching the egg, not by smashing it. 
+  Proverbs are always platitudes until you have personally experienced the truth of them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
