@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Politics is the entertainment branch of industry. 
+  The key is to keep company only with people who uplift you, whose presence calls forth your best. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
