@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't connect the dots looking forward; you can only connect them looking backward 
+  A man's got to take a lot of punishment to write a really funny book. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
