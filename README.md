@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Winning is half the battle.  Losing is the other half. 
+  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
