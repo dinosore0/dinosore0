@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
+  Success is often achieved by those who don't know that failure is inevitable. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
