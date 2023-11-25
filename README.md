@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
+  Youth is a wonderful thing. What a crime to waste it on children. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
