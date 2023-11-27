@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are only two tragedies in life: one is not getting what one wants, and the other is getting it. 
+  If you think you can do a thing or think you can't do a thing, you're right. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
