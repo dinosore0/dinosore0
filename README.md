@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't sweat the petty things and don't pet the sweaty things. 
+  There are only two tragedies in life: one is not getting what one wants, and the other is getting it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
