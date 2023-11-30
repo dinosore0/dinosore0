@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you don't like something, change it. If you can't change it, change your attitude. 
+  Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
