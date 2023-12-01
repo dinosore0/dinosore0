@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Show me a thoroughly satisfied man and I will show you a failure. 
+  If you don't like something, change it. If you can't change it, change your attitude. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
