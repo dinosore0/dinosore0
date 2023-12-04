@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some people think that doctors and nurses can put scrambled eggs back in the shell. 
+  Because tomorrow, the sun will rise. Who knows what the tide may bring. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
