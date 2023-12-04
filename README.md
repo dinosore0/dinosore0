@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You have to take risks. We will only understand the miracle of life fully when we allow the unexpected to happen. 
+  The best preparation for tomorrow is doing your best today. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
