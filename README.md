@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our goal is to make the best devices in the world, not to be the biggest. 
+  Contradiction is not a sign of falsity, nor the lack of contradiction a sign of truth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
