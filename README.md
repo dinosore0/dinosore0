@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are made wise not by the recollection of our past, but by the responsibility for our future. 
+  No one was ever great without some portion of divine inspiration. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
