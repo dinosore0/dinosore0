@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Either you think, or else others have to think for you and take power from you, pervert and discipline your natural tastes, civilize and sterilize you. 
+  A man who views the world the same at fifty as he did at twenty has wasted thirty years of his life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
