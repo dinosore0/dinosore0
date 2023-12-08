@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who views the world the same at fifty as he did at twenty has wasted thirty years of his life. 
+  We are made wise not by the recollection of our past, but by the responsibility for our future. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
