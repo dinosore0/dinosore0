@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Natural ability without education has more often attained to glory and virtue than education without natural ability. 
+  A bird perched on a branch is never afraid of the branch breaking.  Her trust is in her wings. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
