@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have no right to assume that any physical laws exist, or if they have existed up until now, that they will continue to exist in a similar manner in the future. 
+  Natural ability without education has more often attained to glory and virtue than education without natural ability. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
