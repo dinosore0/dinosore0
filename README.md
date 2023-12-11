@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bird perched on a branch is never afraid of the branch breaking.  Her trust is in her wings. 
+  Because of your smile, you make life more beautiful. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
