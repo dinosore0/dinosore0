@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Obviously one must hold oneself responsible for the evil impulses of one's dreams. In what other way can one deal with them? Unless the content of the dream rightly understood is inspired by alien spirits, it is part of my own being. 
+  Never stop dreaming big 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
