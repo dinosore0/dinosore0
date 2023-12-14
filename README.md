@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Character is higher than intellect. A great soul will be strong to live as well as think. 
+  Obstacles Can't Stop You, Problems Can't Stop You, People Can't Stop You. Only You Can Stop You! 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
