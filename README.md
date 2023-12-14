@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself. 
+  Character is higher than intellect. A great soul will be strong to live as well as think. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
