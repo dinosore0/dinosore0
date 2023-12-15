@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are disturbed not by things, but by the view which they take of them. 
+  Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
