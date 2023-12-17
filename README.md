@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How sad it is that we give up on people who are just like us. 
+  I met Woz when I was 13, at a friend's garage. He was about 18. He was, like, the first person I met who knew more electronics than I did at that point. We became good friends, because we shared an interest in computers and we had a sense of humor. We pulled all kinds of pranks together. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
