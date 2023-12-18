@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I wake up every morning at nine and grab for the morning paper. Then I look at the obituary page. If my name is not on it, I get up. 
+  Be brave. Take risks. Nothing can substitute experience. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
