@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Telling a teenager the facts of life is like giving a fish a bath. 
+  God's dream is that you and I and all of us will realize that we are family, that we are made for togetherness, for goodness, and for compassion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
