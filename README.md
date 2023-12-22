@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is more despicable than respect based on fear. 
+  At his best, man is the noblest of all animals; separated from law and justice, he is the worst. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
