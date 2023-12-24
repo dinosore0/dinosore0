@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Natural ability without education has more often raised a man to glory and virtue than education without natural ability. 
+  Always do your best. What you plant now, you will harvest later. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
