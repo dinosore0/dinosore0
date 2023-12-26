@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let your schooling interfere with your education. 
+  Thou wilt find rest from vain fancies if thou doest every act in life as though it were thy last. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
