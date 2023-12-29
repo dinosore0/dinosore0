@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is an exciting business, and most exciting when it is lived for others. 
+  I do not believe in the God of theology who rewards good and punishes evil. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
