@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Crime and bad lives are the measure of a State's failure, all crime in the end is the crime of the community. 
+  The momentous thing in human life is the art of winning the soul to good or evil. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
