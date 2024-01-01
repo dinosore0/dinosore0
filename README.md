@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God's most lordly gift to man is decency of mind. 
+  Capitalism has always been a failure for the lower classes. It is now beginning to fail for the middle classes. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
