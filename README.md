@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A dog is the only thing on earth that loves you more than you love yourself. 
+  Hard choices, easy life. Easy choices, hard life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
