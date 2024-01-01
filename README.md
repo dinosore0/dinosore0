@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whether you think you can or think you can't – you are right. 
+  To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
