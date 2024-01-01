@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Capitalism has always been a failure for the lower classes. It is now beginning to fail for the middle classes. 
+  Whether you think you can or think you can't – you are right. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
