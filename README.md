@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I had a cat once, but every time I tried to give him a bath, the fur stuck to my tongue. 
+  Next to the Word of God, the noble art of music is the greatest treasure in the world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
