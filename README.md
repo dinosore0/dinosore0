@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Genius is one percent inspiration, ninety-nine percent perspiration. 
+  Everyone enjoys doing the kind of work for which he is best suited. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
