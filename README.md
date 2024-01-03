@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The older I grow the more I distrust the familiar doctrine that age brings wisdom. 
+  If you’ve never met the devil on the road of life, it's because you’re both heading in the same direction. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
