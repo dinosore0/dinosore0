@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nurture your minds with great thoughts. To believe in the heroic makes heroes. 
+  A man's got to take a lot of punishment to write a really funny book. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
