@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hell isn't merely paved with good intentions it's walled and roofed with them. Yes, and furnished too. 
+  Everything's about company.  A gourmet meal with an a-----e is a horrible meal. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
