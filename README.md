@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's a very strange thing, love. You can't get rid of it. If you try to give it out, you get more back. If you try to hang onto it, you lose it. 
+  It is error alone which needs the support of government. Truth can stand by itself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
