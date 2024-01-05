@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is error alone which needs the support of government. Truth can stand by itself. 
+  Hell isn't merely paved with good intentions it's walled and roofed with them. Yes, and furnished too. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
