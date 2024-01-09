@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man of courage is also full of faith. 
+  We're living in a time when the world has suddenly discovered India because it's run out of raw material for its imagination. The raw materials for imagination are inexhaustible here. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
