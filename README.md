@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What do I think of Western civilization? I think it would be a very good idea. 
+  If at first you don't succeed, destroy all evidence that you tried. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
