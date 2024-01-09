@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The time is near at hand which must determine whether Americans are to be free men or slaves. 
+  Faith, there hath been many great men that have flattered the people who ne'er loved them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
