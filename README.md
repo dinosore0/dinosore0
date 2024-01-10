@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People really don’t like to hear success explained away as luck — especially successful people. 
+  The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
