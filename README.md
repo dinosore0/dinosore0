@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't have no fear of death. My only fear is coming back reincarnated. 
+  Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
