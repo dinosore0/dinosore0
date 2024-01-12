@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ever has it been that love knows not its own depth until the hour of separation. 
+  The best argument against democracy is a five-minute conversation with the average voter. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
