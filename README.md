@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best argument against democracy is a five-minute conversation with the average voter. 
+  He is greatest whose strength carries up the most hearts by the attraction of his own. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
