@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As regards the individual nature, woman is defective and misbegotten, for the active power of the male seed tends to the production of a perfect likeness in the masculine sex while the production of a woman comes from defect in the active power. 
+  The whole secret of existence is to have no fear. Never fear what will become of you, depend on no one. Only the moment you reject all help are you freed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
-## 🌟 Experiences (890 days)
+## 🌟 Experiences (889 days)
 
 ### 🧮 Programming languages
 
