@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When the light turns green, don't race to the next one. 
+  Although strength should fail, the effort will deserve praise. In great enterprises the attempt is enough. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
