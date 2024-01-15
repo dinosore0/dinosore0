@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let it be your constant method to look into the design of people's actions, and see what they would be at, as often as it is practicable and to make this custom the more significant, practice it first upon yourself. 
+  When the light turns green, don't race to the next one. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
