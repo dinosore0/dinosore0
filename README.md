@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I didn't have time to write a short letter, so I wrote a long one instead. 
+  Our prime purpose in this life is to help others. And if you can't help them, at least don't hurt them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
