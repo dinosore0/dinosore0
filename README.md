@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
+  Sometimes you just gotta pet the whales. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
