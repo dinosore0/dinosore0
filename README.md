@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's only after we've lost everything that we're free to do anything. 
+  Motivation is the art of getting people to do what you want them to do because they want to do it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
