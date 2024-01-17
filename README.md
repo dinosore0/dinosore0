@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you try and take a cat apart to see how it works, the first thing you have on your hands is a non-working cat. 
+  My experience has been that work is almost the best way to pull oneself out of the depths. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
