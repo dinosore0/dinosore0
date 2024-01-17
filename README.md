@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
+  Home is where you feel at home and are treated well. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
