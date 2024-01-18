@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards. 
+  Millions of men have lived to fight, build palaces and boundaries, shape destinies and societies but the compelling force of all times has been the force of originality and creation profoundly affecting the roots of human spirit. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
