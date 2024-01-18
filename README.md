@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
+  Elections are won by men and women chiefly because most people vote against somebody rather than for somebody. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
