@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Better is the enemy of good. 
+  Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
