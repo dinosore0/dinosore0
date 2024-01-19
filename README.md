@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our prime purpose in this life is to help others. And if you can't help them, at least don't hurt them. 
+  Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
