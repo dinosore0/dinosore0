@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Shun no toil to make yourself remarkable by some talent or other yet do not devote yourself to one branch exclusively. Strive to get clear notions about all. Give up no science entirely for science is but one. 
+  Change you mindset. Educate yourself. Stay positive. Cut toxic people off. Eat Healthy. Focus on your goals. Spend some time alone. Read books. Drink more water. Take care of your skin. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
