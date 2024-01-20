@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry. 
+  When a hundred men stand together, each of them loses his mind and gets another one. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
