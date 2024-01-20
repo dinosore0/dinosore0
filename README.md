@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything you can imagine is real. 
+  Millions of men have lived to fight, build palaces and boundaries, shape destinies and societies but the compelling force of all times has been the force of originality and creation profoundly affecting the roots of human spirit. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
