@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Change you mindset. Educate yourself. Stay positive. Cut toxic people off. Eat Healthy. Focus on your goals. Spend some time alone. Read books. Drink more water. Take care of your skin. 
+  Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
