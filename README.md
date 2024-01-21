@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If they want peace, nations should avoid the pin-pricks that precede cannon shots. 
+  Zeal without knowledge is fire without light. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
