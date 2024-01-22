@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing in the world is more dangerous than sincere ignorance and conscientious stupidity. 
+  I am not afraid of death, I just don't want to be there when it happens. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
