@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. 
+  Dream no small dreams for they have no power to move the hearts of men. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
