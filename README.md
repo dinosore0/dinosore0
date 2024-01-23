@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Americans play to win at all times. I wouldn't give a hoot and hell for a man who lost and laughed. That's why Americans have never lost nor ever lose a war. 
+  Rebellion against tyrants is obedience to God. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
