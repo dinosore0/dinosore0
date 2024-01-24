@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The opposite of a fact is falsehood, but the opposite of one profound truth may very well be another profound truth. 
+  Man is only great when he acts from passion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
