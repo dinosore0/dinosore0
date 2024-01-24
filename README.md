@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To think is to practice brain chemistry. 
+  If someone commits an error and wrong toward you, you must instantly forgive him. Do not complain of others. Refrain from reprimanding them, and if you wish to give admonition or advice, let it be offered in such a way that it will not burden the bearer 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
