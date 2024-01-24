@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  On a level plain, simple mounds look like hills and the insipid flatness of our present bourgeoisie is to be measured by the altitude of its great intellects. 
+  To think is to practice brain chemistry. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
