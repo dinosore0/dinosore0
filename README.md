@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man is only great when he acts from passion. 
+  Americans play to win at all times. I wouldn't give a hoot and hell for a man who lost and laughed. That's why Americans have never lost nor ever lose a war. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
