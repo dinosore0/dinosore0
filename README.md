@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everyone went donuts over them 
+  I'm convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure perseverance. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
