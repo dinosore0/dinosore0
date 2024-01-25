@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The taxpayer - that's someone who works for the federal government but doesn't have to take the civil service examination. 
+  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
