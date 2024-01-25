@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I like refried beans. That's why I wanna try fried beans, because maybe they're just as good and we're just wasting time. You don't have to fry them again after all. 
+  On a level plain, simple mounds look like hills and the insipid flatness of our present bourgeoisie is to be measured by the altitude of its great intellects. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
