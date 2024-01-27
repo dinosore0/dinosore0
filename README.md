@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? 
+  One forgives to the degree that one loves. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
