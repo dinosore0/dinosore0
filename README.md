@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success comes when people act together; failure tends to happen alone. 
+  If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
