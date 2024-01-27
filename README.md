@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy. 
+  Non-violence and truth are inseparable and presuppose one another. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
