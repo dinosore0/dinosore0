@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People who don't take risks generally make about two big mistakes a year. People who do take risks generally make about two big mistakes a year. 
+  What it lies in our power to do, it lies in our power not to do. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
