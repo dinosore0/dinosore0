@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Non-violence and truth are inseparable and presuppose one another. 
+  You may not have been responsible for your heritage, but you are responsible for your future. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
