@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The time to save is now. When a dog gets a bone, he doesn't go out and make a down payment on a bigger bone. He buries the one he's got. 
+  I made a mistake by being ejected from the presidency. Next time, I will choose a Cabinet which will allow me to be life President. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
