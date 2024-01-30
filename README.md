@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people have never learned that one of the main aims in life is to enjoy it. 
+  Love is the word used to label the sexual excitement of the young, the habituation of the middle-aged, and the mutual dependence of the old. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
