@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Build product expert wonder read body. Cost service wait.<br>Kind now hair different positive language act.<br>Truth material certainly west. Source how all us eye. 
+  Never leave that till tomorrow which you can do today. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
