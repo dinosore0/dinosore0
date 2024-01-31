@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Simulated disorder postulates perfect discipline; simulated fear postulates courage; simulated weakness postulates strength. 
+  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
