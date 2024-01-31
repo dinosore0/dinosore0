@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art. 
+  Fear cannot be without hope nor hope without fear. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
