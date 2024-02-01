@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Well-timed silence is the most commanding expression. 
+  Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
