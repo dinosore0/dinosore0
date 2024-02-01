@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Darkness cannot drive out darkness only light can do that. Hate cannot drive out hate only love can do that. 
+  Our scientific power has outrun our spiritual power. We have guided missiles and misguided men. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
