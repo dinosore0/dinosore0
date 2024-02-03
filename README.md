@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
+  You wouldn't have won if we'd beaten you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
