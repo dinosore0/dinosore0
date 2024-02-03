@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Quality is earned long after midnight the night before a major launch, pouring over details that no one will notice but you. 
+  Shallow men believe in luck. Strong men believe in cause and effect. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
