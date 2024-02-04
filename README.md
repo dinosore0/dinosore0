@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Profit in business comes from repeat customers, customers that boast about your project or service, and that bring friends with them. 
+  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
