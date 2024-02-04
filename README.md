@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Science may have found a cure for most evils but it has found no remedy for the worst of them all - the apathy of human beings. 
+  Art is parasitic on life, just as criticism is parasitic on art. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
