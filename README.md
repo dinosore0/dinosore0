@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When the best leader's work is done the people say, 'We did it ourselves.' 
+  I have no other view than to promote the public good, and am unambitious of honors not founded in the approbation of my Country. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
