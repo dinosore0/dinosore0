@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is the strange fate of man, that even in the greatest of evils the fear of the worst continues to haunt him. 
+  You walk the way for yourself, only for yourself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
