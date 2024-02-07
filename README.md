@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Rule No.1: Never lose money. Rule No.2: Never forget rule No.1. 
+  Life is like riding a bicycle. To keep your balance, you must keep moving. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
