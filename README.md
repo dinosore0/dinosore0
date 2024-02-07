@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is, generally, in the season of prosperity that men discover their real temper, principles, and designs. 
+  You have to take risks. We will only understand the miracle of life fully when we allow the unexpected to happen. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
