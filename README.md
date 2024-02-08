@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I met in the street a very poor young man who was in love. His hat was old, his coat worn, his cloak was out at the elbows, the water passed through his shoes, - and the stars through his soul. 
+  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
