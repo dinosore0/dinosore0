@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
+  Strength does not come from physical capacity. It comes from an indomitable will. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
