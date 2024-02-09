@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I love it when a plan comes together. 
+  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
