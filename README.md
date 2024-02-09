@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
+  The time to repair the roof is when the sun is shining. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
