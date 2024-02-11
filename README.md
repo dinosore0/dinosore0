@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is nothing in the dark that isn't there when the lights are on. 
+  Often when you think you’re at the end of something, you’re at the beginning of something else. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
