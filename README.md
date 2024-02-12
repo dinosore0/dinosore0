@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bird perched on a branch is never afraid of the branch breaking.  Her trust is in her wings. 
+  Quality is earned long after midnight the night before a major launch, pouring over details that no one will notice but you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
