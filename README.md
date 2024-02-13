@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
+  Education is a weapon whose effects depend on who holds it in his hands and at whom it is aimed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
