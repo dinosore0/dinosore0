@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I cannot be awake, for nothing looks to me as it did before, Or else I am awake, for the first time, and all before has been a mean sleep. 
+  It all starts with the will to do something 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
