@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “I’m not going to make it.”—Brand.<br>“Yes, you are.  Yes, you are.”—Cooper 
+  I cannot be awake, for nothing looks to me as it did before, Or else I am awake, for the first time, and all before has been a mean sleep. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
