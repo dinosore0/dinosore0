@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love is composed of a single soul inhabiting two bodies. 
+  Success is full of promise till one gets it, and then it seems like a nest from which the bird has flown. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
