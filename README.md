@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great question that has never been answered, and which I have not yet been able to answer, despite my thirty years of research into the feminine soul, is 'What does a woman want?' 
+  I am not superstitious, but I am a little stitious. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
