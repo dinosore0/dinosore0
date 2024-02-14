@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't be afraid of death; be afraid of an unlived life. You don't have to live forever, you just have to live 
+  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
