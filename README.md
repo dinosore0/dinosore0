@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
+  I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
