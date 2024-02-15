@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The years teach much which the days never know. 
+  If there is anything I've learned from Linux, it's that projects have a life of their own, and you should not try to enforce your vision too strongly on them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
