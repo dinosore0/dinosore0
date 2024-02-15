@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nature has planted in our minds an insatiable longing to see the truth. 
+  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
