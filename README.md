@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be outspoken is easy when you do not wait to speak the complete truth. 
+  I don't understand it. Jack will spend any amount of money to buy votes but he balks at investing a thousand dollars in a beautiful painting. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
