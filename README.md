@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You could rattle the stars. You could do anything, if you only dared. And deep down, you know it too, and that’s what scares you the most 
+  A man growing old becomes a child again. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
