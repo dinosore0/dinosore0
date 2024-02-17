@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
+  Complexity is your enemy. Any fool can make something complicated. It is hard to make something simple. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
