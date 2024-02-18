@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am tormented with an everlasting itch for things remote. I love to sail forbidden seas. 
+  What the mind of man can conceive and believe, it can achieve. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
