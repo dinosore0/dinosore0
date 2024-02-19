@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias. 
+  You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
