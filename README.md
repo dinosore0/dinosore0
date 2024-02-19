@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy. 
+  Poetry is what gets lost in translation. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
