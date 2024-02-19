@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Poetry is what gets lost in translation. 
+  Three rules for a career: 1) Don’t sell anything you wouldn’t buy yourself; 2) Don’t work for anyone you don’t respect and admire; and 3) Work only with people you enjoy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
