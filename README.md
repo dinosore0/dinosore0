@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love is the word used to label the sexual excitement of the young, the habituation of the middle-aged, and the mutual dependence of the old. 
+  No Ads! No Games! No Gimmicks! 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
