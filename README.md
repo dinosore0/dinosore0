@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Obviously one must hold oneself responsible for the evil impulses of one's dreams. In what other way can one deal with them? Unless the content of the dream rightly understood is inspired by alien spirits, it is part of my own being. 
+  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
