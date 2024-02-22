@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is moral is what you feel good after, and what is immoral is what you feel bad after. 
+  You can't apply the rules of a club to people who are not members of that club. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
