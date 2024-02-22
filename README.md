@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “Nothing is more fruitful for man than the knowledge of his own shortcomings.” 
+  He who is not courageous enough to take risks will accomplish nothing in life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
