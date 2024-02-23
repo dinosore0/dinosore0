@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never travel without my diary. One should always have something sensational to read in the train. 
+  What is moral is what you feel good after, and what is immoral is what you feel bad after. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
