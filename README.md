@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beginning of knowledge is the discovery of something we do not understand. 
+  I never travel without my diary. One should always have something sensational to read in the train. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
