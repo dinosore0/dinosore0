@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The voice of the intellect is a soft one, but it does not rest until it has gained a hearing. 
+  The way to see by faith, is to shut the eye of reason. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
