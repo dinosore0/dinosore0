@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the world's a stage, and all the men and women merely players: they have their exits and their entrances and one man in his time plays many parts, his acts being seven ages. 
+  Growth for the sake of growth is the ideology of the cancer cell. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
