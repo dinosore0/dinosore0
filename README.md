@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you wish to make an apple pie from scratch, you must first create the universe. 
+  The voice of the intellect is a soft one, but it does not rest until it has gained a hearing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
