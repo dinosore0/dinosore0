@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success is not final, failure is not fatal: it is the courage to continue that counts. 
+  Governing a great nation is like cooking a small fish - too much handling will spoil it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
