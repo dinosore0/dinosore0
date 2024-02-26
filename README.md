@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are more things in heaven and earth, Horatio,<br>Thank are dreamt of in your philosophy. 
+  The secret of getting ahead is getting started. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
