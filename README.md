@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one plays good music, people don't listen and if one plays bad music people don't talk. 
+  Measuring programming progress by lines of code is like measuring aircraft building progress by weight. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
