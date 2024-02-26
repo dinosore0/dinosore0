@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the middle of difficulty lies opportunity. 
+  There are more things in heaven and earth, Horatio,<br>Thank are dreamt of in your philosophy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
