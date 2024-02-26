@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Who doesn't want to shortcut the greatness. 
+  If you can find a path with no obstacles, it probably doesn't lead anywhere. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
