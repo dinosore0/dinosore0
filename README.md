@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
+  I think you can have 10,000 explanations for failure, but no good explanation for success. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
