@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness. 
+  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
