@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Complexity is your enemy. Any fool can make something complicated. It is hard to make something simple. 
+  You cannot dream yourself into a character; you must hammer and forge yourself one. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
