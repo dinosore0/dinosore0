@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The happiness and greatness, the rank and station, the pleasure and peace, of an individual have never consistent in his personal wealth, but rather in his excellent character, his high resolve, the breadth of his learning, and his ability to solve difficult problems. 
+  Anybody can become angry - that is easy, but to be angry with the right person and to the right degree and at the right time and for the right purpose, and in the right way - that is not within everybody's power and is not easy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
