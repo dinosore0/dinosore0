@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success isn't owned; it's leased.  And rent is due every day. 
+  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
