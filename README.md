@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have not failed, I've just found 10,000 ways that won't work. 
+  Success isn't owned; it's leased.  And rent is due every day. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
