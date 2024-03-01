@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
+  I have not failed, I've just found 10,000 ways that won't work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
