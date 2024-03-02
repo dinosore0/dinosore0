@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad. 
+  True terror is to wake up one morning and discover that your high school class is running the country. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
