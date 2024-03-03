@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people wouldn't know music if it came up and bit them on the a-s. 
+  Never in the field of human conflict was so much owed by so many to so few. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
