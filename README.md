@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. 
+  Not life, but good life, is to be chiefly valued. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
