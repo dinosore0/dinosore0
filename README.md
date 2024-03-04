@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is 10% what happens to you and 90% how you react to it. 
+  Many men go fishing all of their lives without knowing that it is not fish they are after. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
