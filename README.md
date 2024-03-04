@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I have seen further it is only by standing on the shoulders of giants. 
+  My mama always said, 'Life was like a box of chocolates; you never know what you're gonna get.' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
