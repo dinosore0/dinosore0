@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Education is the ability to listen to almost anything without losing your temper or your self-confidence. 
+  Bad programmers worry about the code. Good programmers worry about data structures and their relationships. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
