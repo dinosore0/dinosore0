@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fathers should be neither seen nor heard. That is the only proper basis for family life. 
+  Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
