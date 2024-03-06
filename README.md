@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People assume when my hair is long, that I'm a lot cooler than I actually am. I'm not opposed to this misconception. 
+  The best way to create the future is to: Act. Learn. Build. Repeat. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
