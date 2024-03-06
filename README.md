@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either. 
+  A President needs political understanding to run the government, but he may be elected without it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
