@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I like anywhere with a beach. A beach and warm weather are all I really need. 
+  I had rather have a fool to make me merry than experience to make me sad and to travel for it too! 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
