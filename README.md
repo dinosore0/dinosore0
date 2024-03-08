@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. 
+  My mom and I have always been really close. She's always been the friend that was always there. There were times when, in middle school and junior high, I didn't have a lot of friends. But my mom was always my friend. Always. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
