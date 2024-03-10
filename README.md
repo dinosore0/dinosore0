@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Just as a candle cannot burn without fire, men cannot live without a spiritual life. 
+  It is more from carelessness about truth than from intentionally lying that there is so much falsehood in the world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
