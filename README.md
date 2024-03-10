@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's a poor sort of memory that only works backwards," the Queen remarked. 
+  He, who every morning plans the transactions of the day, and follows that plan, carries a thread that will guide him through a labyrinth of the most busy life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
