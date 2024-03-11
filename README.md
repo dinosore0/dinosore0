@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only time you really live fully is from thirty to sixty. The young are slaves to dreams the old servants of regrets. Only the middle-aged have all their five senses in the keeping of their wits. 
+  Art is not a handicraft, it is the transmission of feeling the artist has experienced. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
