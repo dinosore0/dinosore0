@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is not a handicraft, it is the transmission of feeling the artist has experienced. 
+  It's a poor sort of memory that only works backwards," the Queen remarked. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
