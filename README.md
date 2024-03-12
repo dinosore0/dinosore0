@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day. 
+  Clever and attractive women do not want to vote they are willing to let men govern as long as they govern men. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
