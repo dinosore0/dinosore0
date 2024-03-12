@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
+  I didn't have time to write a short letter, so I wrote a long one instead. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
