@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
+  When the best leader's work is done the people say, 'We did it ourselves.' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
