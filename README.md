@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
+  Now, God be praised, that to believing souls gives light in darkness, comfort in despair. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
