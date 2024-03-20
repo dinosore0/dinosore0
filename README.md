@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is never a traffic jam on the extra mile. 
+  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
