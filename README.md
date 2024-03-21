@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have a lot of things to prove to myself. One is that I can live my life fearlessly. 
+  You wouldn't have won if we'd beaten you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
