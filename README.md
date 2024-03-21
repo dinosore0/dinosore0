@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
+  Get busy living or get busy dying 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
