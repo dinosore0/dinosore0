@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Great tragedy has come to us, and we are meeting it with the best that is in our country, with courage and concern for others because this is America. This is who we are. 
+  Love all, trust a few, do wrong to none. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
