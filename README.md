@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best thing about the future is that it comes one day at a time. 
+  Death comes to all, but great achievements build a monument which shall endure until the sun grows cold. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
