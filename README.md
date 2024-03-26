@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I had a cat once, but every time I tried to give him a bath, the fur stuck to my tongue. 
+  Great tragedy has come to us, and we are meeting it with the best that is in our country, with courage and concern for others because this is America. This is who we are. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
