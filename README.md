@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't sweat the petty things and don't pet the sweaty things. 
+  I had a cat once, but every time I tried to give him a bath, the fur stuck to my tongue. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
