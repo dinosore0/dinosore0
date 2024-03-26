@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A little knowledge is a dangerous thing, but a little want of knowledge is also a dangerous thing. 
+  The best thing about the future is that it comes one day at a time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
