@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look within. Within is the fountain of good, and it will ever bubble up, if thou wilt ever dig. 
+  There's plenty of money to be made in the center of the court. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
