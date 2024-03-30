@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
+  Look within. Within is the fountain of good, and it will ever bubble up, if thou wilt ever dig. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
