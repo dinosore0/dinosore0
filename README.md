@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All men are prepared to accomplish the incredible if their ideals are threatened. 
+  There are more things in heaven and earth, Horatio,<br>Thank are dreamt of in your philosophy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
