@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A positive attitude gives you power over your circumstances instead of circumstances having power over you. 
+  The most important thing to us is that our customers love our products. Not just buy them, but love them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
