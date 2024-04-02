@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never had a policy; I have just tried to do my very best each and every day. 
+  You're just left with yourself all the time, whatever you do anyway. You've got to get down to your own God in your own temple. It's all down to you, mate. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
