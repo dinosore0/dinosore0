@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Genius is one percent inspiration, ninety-nine percent perspiration. 
+  If one day the speed kills me, do not cry because I was smiling. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
