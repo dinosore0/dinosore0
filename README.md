@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success is walking from failure to failure with no loss of enthusiasm. 
+  Genius is one percent inspiration, ninety-nine percent perspiration. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
