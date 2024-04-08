@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When we are born we cry that we are come to this great stage of fools. 
+  You have to learn the rules of the game. And then you have to play better than anyone else. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
