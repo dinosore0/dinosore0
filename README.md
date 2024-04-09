@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Woman is fine for her own satisfaction alone. No man will admire her the more, no woman will like her the better for it. Neatness and fashion are enough for the former, and a something of shabbiness or impropriety will be most endearing to the latter. 
+  People who don't take risks generally make about two big mistakes a year. People who do take risks generally make about two big mistakes a year. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
