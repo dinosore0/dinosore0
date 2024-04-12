@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Flattery is like cologne; water, to be smelt, not swallowed. 
+  I drank some boiling water because I wanted to whistle. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
