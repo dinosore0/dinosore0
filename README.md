@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes just when I say hello the right way, I'm like, 'Whoa, I'm so cool.' 
+  A well-spent day brings happy sleep. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
