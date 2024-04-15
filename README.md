@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
+  Because tomorrow, the sun will rise. Who knows what the tide may bring. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
