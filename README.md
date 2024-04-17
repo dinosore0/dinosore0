@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs. 
+  Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
