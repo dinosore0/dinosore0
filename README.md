@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The meaning of life is to find your gift. The purpose of life is to give it away. 
+  Good artists are skilled, but great artists convey an immense depth of feeling through their expertise. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
