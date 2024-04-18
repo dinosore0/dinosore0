@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Keep your face to the sunshine and you cannot see the shadow. 
+  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
