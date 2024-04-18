@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern. 
+  Chop your own wood and it will warm you twice. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
