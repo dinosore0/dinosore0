@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. 
+  The meaning of life is to find your gift. The purpose of life is to give it away. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
