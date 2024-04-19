@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We choose to go to the moon in this decade and do the other things, not because they are easy, but because they are hard. 
+  I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
