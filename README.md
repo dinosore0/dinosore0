@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hate facts. I always say the chief end of man is to form general propositions - adding that no general proposition is worth a d--n. 
+  Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
