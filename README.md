@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest way to live with honor in this world is to be what we pretend to be. 
+  I hate facts. I always say the chief end of man is to form general propositions - adding that no general proposition is worth a d--n. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
