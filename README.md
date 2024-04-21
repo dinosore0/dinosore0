@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people are about as happy as they make up their minds to be. 
+  I am at peace with God. My conflict is with Man. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
