@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Holding onto anger is like drinking poison and expecting the other person to die. 
+  Protecting the rights of even the least individual among us is basically the only excuse the government has for even existing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
