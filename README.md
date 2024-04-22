@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every day I try to be in communication with the universe in an unconscious way. 
+  I have been complimented many times and they always embarrass me; I always feel that they have not said enough. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
