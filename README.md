@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I hear music, I fear no danger. I am invulnerable. I see no foe. I am related to the earliest times, and to the latest. 
+  We're living in a time when the world has suddenly discovered India because it's run out of raw material for its imagination. The raw materials for imagination are inexhaustible here. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
