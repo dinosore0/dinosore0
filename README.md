@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles. 
+  Were there no women, men might live like gods. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
