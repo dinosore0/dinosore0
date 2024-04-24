@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By all means let's be open-minded, but not so open-minded that our brains drop out. 
+  Death is the solution to all problems. No man - no problem. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
