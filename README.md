@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him. 
+  What is moral is what you feel good after, and what is immoral is what you feel bad after. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
