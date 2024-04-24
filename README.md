@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is moral is what you feel good after, and what is immoral is what you feel bad after. 
+  By all means let's be open-minded, but not so open-minded that our brains drop out. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
