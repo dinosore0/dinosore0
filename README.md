@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't limit a child to your own learning, for he was born in another time. 
+  Natural ability without education has more often attained to glory and virtue than education without natural ability. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
