@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Natural ability without education has more often attained to glory and virtue than education without natural ability. 
+  Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
