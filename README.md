@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fourscore and seven years ago our fathers brought forth on this continent, a new nation, conceived in Liberty, and dedicated to the proposition that all men are created equal. 
+  So I've seen life as one long learning process. And if I see - you know, if I fly on somebody else's airline and find the experience is not a pleasant one, which it wasn't in - 21 years ago, then I'd think, well, you know, maybe I can create the kind of airline that I'd like to fly on. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
