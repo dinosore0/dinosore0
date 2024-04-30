@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The words were on their way, and when they arrived, she would hold them in her hands like clouds, and she would ring them out like the rain. 
+  If there is something to pardon in everything, there is also something to condemn. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
