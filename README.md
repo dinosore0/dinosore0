@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You may not have been responsible for your heritage, but you are responsible for your future. 
+  The bad gains respect through imitation, the good loses it especially in art. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
