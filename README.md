@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Religion is more than life. Remember that his own religion is the truest to every man even if it stands low in the scales of philosophical comparison. 
+  You may not have been responsible for your heritage, but you are responsible for your future. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
