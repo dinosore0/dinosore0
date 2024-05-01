@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing great was ever achieved without enthusiasm. 
+  Religion is more than life. Remember that his own religion is the truest to every man even if it stands low in the scales of philosophical comparison. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
