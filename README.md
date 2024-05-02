@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We’re just in the beginning stages of what will be a truly remarkable breakthrough for most people — as remarkable as the telephone. 
+  The present moment has always been available to spiritual seekers, but as long as you are seeking you are not available to the present moment. “Seeking” implies that you are looking to the future for some answer, or for some achievement, spiritual or otherwise. Everybody is in the seeking mode, seeking to add something to who they are, whether it be money, relationships, possessions, knowledge, status.. or spiritual attainment 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
