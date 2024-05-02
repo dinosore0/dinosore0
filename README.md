@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Strength and growth come only through continuous effort and struggle. 
+  My mom and I have always been really close. She's always been the friend that was always there. There were times when, in middle school and junior high, I didn't have a lot of friends. But my mom was always my friend. Always. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
