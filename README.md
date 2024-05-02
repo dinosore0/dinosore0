@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't believe in the after life, although I am bringing a change of underwear. 
+  If you're emotional about investment, you're not going to do well. You may have all these feelings about the stock. The stock has no feelings about you. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
