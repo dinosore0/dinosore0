@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not say, 'It is morning,' and dismiss it with a name of yesterday. See it for the first time as a newborn child that has no name. 
+  Poetry is the synthesis of hyacinths and biscuits. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
