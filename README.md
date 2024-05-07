@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. 
+  Destiny is not a matter of chance, it is a matter of choice. It is not something to be waited for, but something to be achieved. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
