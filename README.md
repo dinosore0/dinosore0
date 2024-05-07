@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever you want to do in this world, it is achievable. The most important thing that I've found, that perhaps you could use, is be passionate and enthusiastic in the direction that you choose in life, and you'll be a winner. 
+  Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
