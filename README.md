@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one plays good music, people don't listen and if one plays bad music people don't talk. 
+  As the poet said, 'Only God can make a tree,' probably because it's so hard to figure out how to get the bark on. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
