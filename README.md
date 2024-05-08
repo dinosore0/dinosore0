@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
+  What you do not want done to yourself, do not do to others. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
