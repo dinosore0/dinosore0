@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Govern a great nation as you would cook a small fish. Do not overdo it. 
+  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
