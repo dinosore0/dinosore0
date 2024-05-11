@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be positive is to be mistaken at the top of one's voice. 
+  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
