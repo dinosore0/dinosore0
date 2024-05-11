@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Write it on your heart that every day is the best day in the year. 
+  If you wish to make an apple pie from scratch, you must first create the universe. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
