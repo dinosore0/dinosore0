@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The night is darkest just before the dawn. And I promise you the dawn is coming. 
+  God's most lordly gift to man is decency of mind. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
