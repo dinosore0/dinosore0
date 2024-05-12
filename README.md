@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The wise are wise only because they love. The fool are fools only because they think they can understand love. 
+  Write it on your heart that every day is the best day in the year. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
