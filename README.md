@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In other words, a person who is fanatic in matters of religion, and clings to certain ideas about the nature of God and the universe, becomes a person who has no faith at all. 
+  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
