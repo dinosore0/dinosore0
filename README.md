@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
+  Hope is a waking dream. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
