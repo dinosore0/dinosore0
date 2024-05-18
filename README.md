@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is like riding a bicycle. To keep your balance, you must keep moving. 
+  Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
