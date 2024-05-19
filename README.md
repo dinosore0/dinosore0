@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I was young, I thought that money was the most important thing in life; now that I am old, I know that it is. 
+  Take a chance! All life is a chance. The man who goes farthest is generally the one who is willing to do and dare. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
