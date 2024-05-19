@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be idle is a short road to death and to be diligent is a way of life foolish people are idle, wise people are diligent. 
+  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
