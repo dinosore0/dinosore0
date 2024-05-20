@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When people give you their money they tell you the truth. 
+  Music is the mediator between the spiritual and the sensual life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
