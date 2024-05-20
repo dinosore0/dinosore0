@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music is the mediator between the spiritual and the sensual life. 
+  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
