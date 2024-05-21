@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The line between failure and success is so fine that we scarcely know when we pass it: so fine that we are often on the line and do not know it. 
+  All our dreams can come true, if we have the courage to pursue them. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
