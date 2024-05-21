@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If God treats you well by teaching you a disastrous lesson, you never forget it. 
+  Virtue is persecuted more by the wicked than it is loved by the good. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
