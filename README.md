@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you make any money, the government shoves you in the creek once a year with it in your pockets, and all that don't get wet you can keep. 
+  If God treats you well by teaching you a disastrous lesson, you never forget it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
