@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think it's crucial that young women learn to code as early as possible to ensure that we have a voice in what the world looks like. 
+  If you make any money, the government shoves you in the creek once a year with it in your pockets, and all that don't get wet you can keep. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
