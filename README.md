@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't apply the rules of a club to people who are not members of that club. 
+  The line between failure and success is so fine that we scarcely know when we pass it: so fine that we are often on the line and do not know it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
