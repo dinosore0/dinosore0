@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am the greatest, I said that even before I knew I was. 
+  Contradiction is not a sign of falsity, nor the lack of contradiction a sign of truth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
