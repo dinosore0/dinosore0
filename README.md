@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
+  Courage is doing what you're afraid to do.  There can be no courage unless you're scared. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
