@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be idle is a short road to death and to be diligent is a way of life foolish people are idle, wise people are diligent. 
+  Don't forget what I discovered that over ninety percent of all national deficits from 1921 to 1939 were caused by payments for past, present, and future wars. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
