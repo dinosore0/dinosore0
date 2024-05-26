@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not agree with what you have to say, but I'll defend to the death your right to say it. 
+  Design is a funny word. Some people think design means how it looks. But of course, if you dig deeper, it's really how it works. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
