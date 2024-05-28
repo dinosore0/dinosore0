@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws. 
+  People really don’t like to hear success explained away as luck — especially successful people. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
