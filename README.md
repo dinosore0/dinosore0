@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work. 
+  I'm not comfortable being around too many people. I don't like being out in public too much. I don't like going to bars. I don't like doing celebrity stuff. So most of the characters I play are people who don't always feel comfortable beyond their small circle of friends. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
