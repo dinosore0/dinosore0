@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm not comfortable being around too many people. I don't like being out in public too much. I don't like going to bars. I don't like doing celebrity stuff. So most of the characters I play are people who don't always feel comfortable beyond their small circle of friends. 
+  The desire to write grows with writing. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
