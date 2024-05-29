@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great proof of madness is the disproportion of one's designs to one's means. 
+  It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
