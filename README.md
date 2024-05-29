@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People grow through experience if they meet life honestly and courageously. This is how character is built. 
+  Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
