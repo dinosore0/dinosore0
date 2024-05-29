@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
+  People grow through experience if they meet life honestly and courageously. This is how character is built. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
