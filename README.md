@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No one was ever great without some portion of divine inspiration. 
+  People assume when my hair is long, that I'm a lot cooler than I actually am. I'm not opposed to this misconception. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
