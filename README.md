@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Cowards die many times before their deaths; the valiant never taste of death but once. 
+  Education is a weapon whose effects depend on who holds it in his hands and at whom it is aimed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
