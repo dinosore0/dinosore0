@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
+  Do the thing we fear, and death of fear is certain. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
