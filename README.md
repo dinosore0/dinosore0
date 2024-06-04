@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you don't like something, change it. If you can't change it, change your attitude. 
+  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
