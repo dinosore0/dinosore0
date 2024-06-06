@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So long as the memory of certain beloved friends lives in my heart, I shall say that life is good. 
+  Too great haste to repay an obligation is a kind of ingratitude. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
