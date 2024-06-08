@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'd rather entrust the government of the United States to the first 400 people listed in the Boston telephone directory than to the faculty of Harvard University. 
+  Never let your schooling interfere with your education. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
