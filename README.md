@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
+  I'm a heroine addict. I need to have sex with women who have saved someone's life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
