@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
+  There's only one thing that can kill the movies, and that's education. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
