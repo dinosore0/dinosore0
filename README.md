@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Measuring programming progress by lines of code is like measuring aircraft building progress by weight. 
+  Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
