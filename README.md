@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Forgiveness is the fragrance that the violet sheds on the heel that has crushed it. 
+  I was a peripheral visionary. I could see the future, but only way off to the side. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
