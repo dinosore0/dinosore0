@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We come altogether fresh and raw into the several stages of life, and often find ourselves without experience, despite our years. 
+  Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
