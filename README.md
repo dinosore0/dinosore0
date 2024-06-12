@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
+  Forgiveness is the fragrance that the violet sheds on the heel that has crushed it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
