@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I always looked really young for my age. And once I hit 23, 24 and 25, I was then allowed to play the cool 18-year-olds and stuff. 
+  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
