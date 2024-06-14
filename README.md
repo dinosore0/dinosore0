@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What you do not want done to yourself, do not do to others. 
+  It just seems awfully mean. But sometimes, the ends justify the mean. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
