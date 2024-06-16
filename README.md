@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is only one religion, though there are a hundred versions of it. 
+  Our past is not the thing that matters so much in this world as what we intend to do with our future. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
