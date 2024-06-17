@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great fun in my life has been getting up every morning and rushing to the typewriter because some new idea has hit me. 
+  Anxiety does not empty tomorrow of its sorrows, but only empties today of its strength. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
