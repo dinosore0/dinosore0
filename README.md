@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anxiety does not empty tomorrow of its sorrows, but only empties today of its strength. 
+  The older you get, the fewer things you really love. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
