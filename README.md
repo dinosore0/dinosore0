@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Woman is fine for her own satisfaction alone. No man will admire her the more, no woman will like her the better for it. Neatness and fashion are enough for the former, and a something of shabbiness or impropriety will be most endearing to the latter. 
+  “If we find ourselves with a desire that nothing in this world can satisfy, the most probable explanation is…we were made for another world.” 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
