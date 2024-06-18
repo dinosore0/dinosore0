@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “If we find ourselves with a desire that nothing in this world can satisfy, the most probable explanation is…we were made for another world.” 
+  Success is never final, failure is never fatal. It's courage that counts. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
