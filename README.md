@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
+  Some people will never learn anything, for this reason, because they understand everything too soon. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
