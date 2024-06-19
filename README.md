@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many people take no care of their money till they come nearly to the end of it, and others do just the same with their time. 
+  A pair of powerful spectacles has sometimes sufficed to cure a person in love. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
