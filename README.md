@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To lengthen thy life, lessen thy meals. 
+  Education is a weapon whose effects depend on who holds it in his hands and at whom it is aimed. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
