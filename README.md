@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When art critics get together, they talk about Form and Structure and Meaning. When artists get together, they talk about where you can buy cheap turpentine. 
+  Success is getting what you want. Happiness is wanting what you get. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
