@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Education is a weapon whose effects depend on who holds it in his hands and at whom it is aimed. 
+  The time to save is now. When a dog gets a bone, he doesn't go out and make a down payment on a bigger bone. He buries the one he's got. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
