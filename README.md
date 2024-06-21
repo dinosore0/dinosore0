@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you've been playing poker for half an hour and you still don't know who the patsy is, you're the patsy. 
+  Irreligion - the principal one of the great faiths of the world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
