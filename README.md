@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Work Is the Signal, Email Is the Noise 
+  When art critics get together, they talk about Form and Structure and Meaning. When artists get together, they talk about where you can buy cheap turpentine. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
