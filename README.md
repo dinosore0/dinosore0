@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't test courage cautiously. 
+  If you've been playing poker for half an hour and you still don't know who the patsy is, you're the patsy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
