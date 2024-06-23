@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is not perfect. It never will be. You just have to make the very best of it.  And you have to open your heart to what the world can show you. And sometimes it's terrifying. And sometimes it's incredibly beautiful. And I'll take both, thanks. 
+  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
