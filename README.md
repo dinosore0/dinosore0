@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most of us do not consciously look at movies. 
+  Man, alone, has the power to transform his thoughts into physical reality; man, alone, can dream and make his dreams come true. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
