@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I could explain it to the average person, I wouldn't have been worth the Nobel Prize. 
+  One death is a tragedy one million is a statistic. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
