@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The first virtue in a soldier is endurance of fatigue; courage is only the second virtue. 
+  If I could explain it to the average person, I wouldn't have been worth the Nobel Prize. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
