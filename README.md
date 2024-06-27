@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our greatest glory is not in never failing, but in raising up every time we fail. 
+  Campaign behavior for wives: Always be on time. Do as little talking as humanly possible. Lean back in the parade car so everybody can see the president. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
