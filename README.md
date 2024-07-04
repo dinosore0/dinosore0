@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One cool judgment is worth a thousand hasty counsels. The thing to do is to supply light and not heat. 
+  If you love life, don't waste time, for time is what life is made up of. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
