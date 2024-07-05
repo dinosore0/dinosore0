@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A vow is a purely religious act which cannot be taken in a fit of passion. It can be taken only with a mind purified and composed and with God as witness. 
+  When you think about quitting, think about why you started 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
