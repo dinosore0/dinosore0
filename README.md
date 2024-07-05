@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How incessant and great are the ills with which a prolonged old age is replete. 
+  Death leaves a heartache no one can heal, love leaves a memory no one can steal. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
