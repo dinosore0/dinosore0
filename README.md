@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are what we repeatedly do. Excellence, then, is not an act, but a habit. 
+  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
