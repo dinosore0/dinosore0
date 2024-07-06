@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I consider myself the end user.  I make movies that I would like. 
+  How incessant and great are the ills with which a prolonged old age is replete. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
