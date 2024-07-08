@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is not a handicraft, it is the transmission of feeling the artist has experienced. 
+  It is not often that someone comes along who is a true friend and a good writer. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
