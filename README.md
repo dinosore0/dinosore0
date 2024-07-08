@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. 
+  Love and compassion are necessities, not luxuries. Without them humanity cannot survive. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
