@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Each age, it is found, must write its own books or rather, each generation for the next succeeding. 
+  Most great people have attained their greatest success just one step beyond their greatest failure. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
