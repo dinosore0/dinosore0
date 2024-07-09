@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
+  Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
