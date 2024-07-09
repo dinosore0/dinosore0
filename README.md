@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The golden age is before us, not behind us. 
+  In order to find truth we must give up our prejudices, our own small trivial notions; an open receptive mind is essential. If our chalice is full of self, there is no room in it for the water of life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
