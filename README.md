@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man. 
+  Bashfulness is an ornament to youth, but a reproach to old age. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
