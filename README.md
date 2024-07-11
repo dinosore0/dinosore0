@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once you get used to thinking about Unit Tests as you write code, you tend to write code in nice tight modular pieces. 
+  Talent alone won't make you a success. Neither will being in the right place at the right time, unless you are ready. The most important question is: 'Are your ready?' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
