@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
+  Once you get used to thinking about Unit Tests as you write code, you tend to write code in nice tight modular pieces. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
