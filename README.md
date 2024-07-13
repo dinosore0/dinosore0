@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The hottest place in Hell is reserved for those who remain neutral in times of great moral conflict. 
+  Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
