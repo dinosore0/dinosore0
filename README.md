@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Imagination decides everything. 
+  It is generally recognised that women are better than men at languages, personal relations and multi-tasking, but less good at map-reading and spatial awareness. It is therefore not unreasonable to suppose that women might be less good at mathematics and physics. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
