@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  First rule of programming " if it works, don't touch it". 
+  In poverty and other misfortunes of life, true friends are a sure refuge. The young they keep out of mischief to the old they are a comfort and aid in their weakness, and those in the prime of life they incite to noble deeds. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
