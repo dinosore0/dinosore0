@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In poverty and other misfortunes of life, true friends are a sure refuge. The young they keep out of mischief to the old they are a comfort and aid in their weakness, and those in the prime of life they incite to noble deeds. 
+  If you've been playing poker for half an hour and you still don't know who the patsy is, you're the patsy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
