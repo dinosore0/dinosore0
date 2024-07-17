@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My great concern is not whether you have failed, but whether you are content with your failure. 
+  Broadly speaking, the short words are the best, and the old words best of all. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
