@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Broadly speaking, the short words are the best, and the old words best of all. 
+  First rule of programming " if it works, don't touch it". 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
