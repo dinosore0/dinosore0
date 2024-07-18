@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
+  We acquire the strength we have overcome. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
