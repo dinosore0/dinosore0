@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
+  Fear cannot be without hope nor hope without fear. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
