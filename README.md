@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
+  There is little success where there is little laughter. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
