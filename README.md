@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. 
+  Death is frightening, and so is Eternal Life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
