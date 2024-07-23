@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The cost of freedom is always high, but Americans have always paid it. And one path we shall never choose, and that is the path of surrender, or submission. 
+  Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
