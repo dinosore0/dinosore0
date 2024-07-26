@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
+  Who is wise in love, love most, say least. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
