@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is better to be violent, if there is violence in our hearts, than to put on the cloak of nonviolence to cover impotence. 
+  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
