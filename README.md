@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever you are, be a good one. 
+  Change you mindset. Educate yourself. Stay positive. Cut toxic people off. Eat Healthy. Focus on your goals. Spend some time alone. Read books. Drink more water. Take care of your skin. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
