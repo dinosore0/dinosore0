@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is not a handicraft, it is the transmission of feeling the artist has experienced. 
+  I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
