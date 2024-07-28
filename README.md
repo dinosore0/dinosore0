@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is more despicable than respect based on fear. 
+  It is better to be violent, if there is violence in our hearts, than to put on the cloak of nonviolence to cover impotence. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
