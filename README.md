@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The time is near at hand which must determine whether Americans are to be free men or slaves. 
+  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
