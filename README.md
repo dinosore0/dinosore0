@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you set goals and go after them with all the determination you can muster, your gifts will take you places that will amaze you. 
+  Contradiction is not a sign of falsity, nor the lack of contradiction a sign of truth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
