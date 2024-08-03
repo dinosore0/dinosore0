@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Although strength should fail, the effort will deserve praise. In great enterprises the attempt is enough. 
+  If you do not change direction, you may end up where you are heading. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
