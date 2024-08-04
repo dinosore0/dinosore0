@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few. 
+  Art is not a handicraft, it is the transmission of feeling the artist has experienced. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
