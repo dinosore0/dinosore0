@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Agressive music can only shock you once. Afterwards its impact declines. It's inevitable. 
+  Children are educated by what the grown-up is and not by his talk. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
