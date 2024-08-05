@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When art dresses in worn-out material it is most easily recognized as art. 
+  Truthful words are not beautiful beautiful words are not truthful. Good words are not persuasive persuasive words are not good. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
