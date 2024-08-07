@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. 
+  Some mischievous people always there. Last several thousand years, always there. In future, also. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
