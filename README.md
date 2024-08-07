@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some mischievous people always there. Last several thousand years, always there. In future, also. 
+  Music should strike fire from the heart of man, and bring tears form the eyes of woman. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
