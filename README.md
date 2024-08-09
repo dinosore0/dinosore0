@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We see past time in a telescope and present time in a microscope. Hence the apparent enormities of the present. 
+  To know God better is only to realize how impossible it is that we should ever know him at all. I know not which is more childish to deny him, or define him. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
