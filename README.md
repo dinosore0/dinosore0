@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Today, do not use the words "Kind of", "Sort of" or "Maybe". It either is or it isn't.
+- **Today’s Tip:** The most delicious cocktails often have the highest alcohol content. Always pace yourself to preserve your dignity.
 
 ## 🌟 Experiences (731 days)
 
