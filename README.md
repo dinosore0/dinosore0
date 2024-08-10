@@ -17,7 +17,7 @@
 ### 💡 Daily Tip
 - **Today’s Tip:** [Brief tip or insight]
 
-## 🌟 Experiencessss
+## 🌟 Experiences
 
 ### 🧮 Programming languages
 
