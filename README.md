@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** One of the top five regrets people have is that they didn't have the courage to be their true self.
+- **Today’s Tip:** Today, do not use the words "Kind of", "Sort of" or "Maybe". It either is or it isn't.
 
 ## 🌟 Experiences (731 days)
 
