@@ -4,17 +4,12 @@
 </h3>
 
 <p align="center">
-  <a href="https://github.com/dino-dev"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experiences+in+diverse+technologies&center=true&width=380&height=45"></a>
+  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experiences+in+diverse+technologies&center=true&width=380&height=45"></a>
 </p>
 
 ## 🙋‍♂️ Connect with me
 
 <p align="left">
-<!--   <a href="https://www.youtube.com/channel/dinotube"><img alt="Youtube" title="Youtube" src="https://img.shields.io/badge/-YouTube-red?style=for-the-badge&logo=youtube&logoColor=white"/></a> -->
-<!--   <a href="https://dinodev.blog"><img alt="My blog" title="Blog" src="https://img.shields.io/badge/My website-FF5722.svg?style=for-the-badge&logo=blogger&logoColor=white"/></a>
-  <a href="https://twitter.com/dino-dev"><img alt="Twitter" title="Twitter" src="https://img.shields.io/badge/-Twitter-1DA1F2?style=for-the-badge&logo=twitter&logoColor=white"/></a>
-  <a href="https://discord.gg/"><img alt="Discord" title="Discord" src="https://img.shields.io/badge/-Discord-7289DA?style=for-the-badge&logoColor=white&logo=discord"/></a>
-  <a href="https://dev.to/"><img alt="Dev.to" title="Dino Dev Dev.to" src="https://img.shields.io/badge/DEV.TO-3835D3.svg?&style=for-the-badge&logo=dev.to&logoColor=white"></a> -->
   <a href="#"><img alt="Dev.to" title="LinkedIn " src="https://img.shields.io/badge/LinkedIn-0077b5.svg?&style=for-the-badge&logo=0077b5&logoColor=white"></a> 
 </p>
 
@@ -59,7 +54,6 @@
     <a href="#"><img alt="MySQL" src="https://img.shields.io/badge/MySQL-%2300f.svg?logo=mysql&logoColor=white"></a>
     <a href="#"><img alt="Amazon AWS" src="https://img.shields.io/badge/Amazon%20AWS-%23232F3E.svg?logo=amazon%20aws&logoColor=white"></a>
     <a href="#"><img alt="Amazon S3" src="https://img.shields.io/badge/Amazon%20S3-%23569A31.svg?logo=amazon%20s3&logoColor=white"></a>
-<!--     <a href="#"><img alt="Amazon DynamoDB" src ="https://img.shields.io/badge/Amazon%20DynamoDB-%23316192.svg?logo=amazon%20dynamodb&logoColor=white"></a> -->
 </p>
 
 ### 💻 DevOps and tools
