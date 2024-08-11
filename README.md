@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** If you get stuck, try doing the opposite of what the solution requires.
+- **Today’s Tip:** Don't be afraid to ask questions.
 
 ## 🌟 Experiences (731 days)
 
