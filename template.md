@@ -15,7 +15,7 @@
 
 ## 💡 Daily Quote
 <pre>
-   ###Brief tip or insight### 
+   Today's Quote: ###Brief tip or insight### 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences ###Experienced days###
