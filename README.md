@@ -13,11 +13,11 @@
   <a href="www.linkedin.com/in/dino-truong-356547322"><img alt="LinkedIn" title="LinkedIn " src="https://img.shields.io/badge/LinkedIn-0077b5.svg?&style=for-the-badge&logo=0077b5&logoColor=white"></a> 
 </p>
 
-## 💡 Daily Tip
+## 💡 Daily Quote
 <pre>
-  Today’s Tip:  A man's got to take a lot of punishment to write a really funny book. 
+   A President needs political understanding to run the government, but he may be elected without it. 
 </pre>
-The Daily Tip will be updated automatically every 20 minutes!!
+The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
 
 ### 🧮 Programming languages
