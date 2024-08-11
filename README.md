@@ -15,7 +15,7 @@
 
 ## 💡 Daily Quote
 <pre>
-   Today's insight: A man who dares to waste one hour of life has not discovered the value of life. 
+   Today's insight: “A room without books is like a body without a soul.” 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
