@@ -13,9 +13,11 @@
   <a href="www.linkedin.com/in/dino-truong-356547322"><img alt="LinkedIn" title="LinkedIn " src="https://img.shields.io/badge/LinkedIn-0077b5.svg?&style=for-the-badge&logo=0077b5&logoColor=white"></a> 
 </p>
 
-### 💡 Daily Tip
-- **Today’s Tip:** ###Brief tip or insight###
-
+## 💡 Daily Tip
+<pre>
+  Today’s Tip:  ###Brief tip or insight### 
+</pre>
+The Daily Tip will be updated automatically every 20 minutes!!
 ## 🌟 Experiences ###Experienced days###
 
 ### 🧮 Programming languages
