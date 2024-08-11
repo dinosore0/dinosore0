@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Things are just things. Don't get too attached to them.
+- **Today’s Tip:** Gratitude is said to be the secret to happiness.
 
 ## 🌟 Experiences (731 days)
 
