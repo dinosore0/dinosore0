@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One of life's greatest pleasures is accomplishing what others say you cannot. 
+  The invariable mark of wisdom is to see the miraculous in the common. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
