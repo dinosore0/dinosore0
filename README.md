@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you wait until you see the robin, spring will be over. 
+  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
