@@ -14,9 +14,9 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Always bet on black.
+- **Today’s Tip:** Enjoy a little nonsense now and then.
 
-## 🌟 Experiences (731 days)
+## 🌟 Experiences (708 days)
 
 ### 🧮 Programming languages
 
