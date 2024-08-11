@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Try using an old idea.
+- **Today’s Tip:** Things are just things. Don't get too attached to them.
 
 ## 🌟 Experiences (731 days)
 
