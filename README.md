@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** True happiness always resides in the quest.
+- **Today’s Tip:** A common regret in life is wishing one hadn't worked so hard.
 
 ## 🌟 Experiences (731 days)
 
