@@ -79,10 +79,13 @@ The Daily Quote will be updated automatically every 20 minutes!!
 
 > [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dino-claw&theme=radical&hide_border=true)](https://github.com/dino-claw)
 
-<!-- 
+
 ## 📊 Github stats
- <details>
+
+[![wakatime](https://wakatime.com/badge/user/73fbb789-32b7-490f-aaa7-b8b31a96c603.svg)](https://wakatime.com/@73fbb789-32b7-490f-aaa7-b8b31a96c603)
+
+<!--   <details>
   <summary>💻 GitHub Profile Stats</summary>
   <br/>
-   <a href="https://github.com/dinodev"><img alt="Dino's Github Stats" src="https://denvercoder1-github-readme-stats.vercel.app/api?username=dinodev&show_icons=true&count_private=true&theme=react&hide_border=true&bg_color=1F222E&title_color=F85D7F&icon_color=F8D866" /></a>
+  <a href="https://github.com/dino-claw"><img alt="Dino's Github Stats" src="https://denvercoder1-github-readme-stats.vercel.app/api?username=dino-claw&show_icons=true&count_private=true&theme=react&hide_border=true&bg_color=1F222E&title_color=F85D7F&icon_color=F8D866" /></a>
 </details> -->
