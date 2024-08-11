@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No man should bring children into the world who is unwilling to persevere to the end in their nature and education. 
+  With guns you can kill terrorists, with education you can kill terrorism. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
