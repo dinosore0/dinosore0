@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are here to change. We are here to grow, develop and unfold. We are progressive beings that have infinite capacity. 
+  No man should bring children into the world who is unwilling to persevere to the end in their nature and education. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
