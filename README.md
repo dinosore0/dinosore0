@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I fear not the man who has practiced 10,000 kicks once, but I fear the man who has practiced one kick 10,000 times. 
+  In this journey you must become a lover of your enemies, so that the purity of your love may attract the hearts. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
