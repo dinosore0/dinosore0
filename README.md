@@ -15,7 +15,8 @@
 
 ## 💡 Daily Quote
 <pre>
-   Today's insight: The kind of people I look for to fill top management spots are the mavericks. These are the guys who try to do more than they're expected to do - they always reach. 
+Today's insight:  
+  I'm convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure perseverance. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
