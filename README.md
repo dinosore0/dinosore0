@@ -15,7 +15,7 @@
 
 ## 💡 Daily Tip
 <pre>
-  Today’s Tip:  body513003 
+  Today’s Tip:  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
 </pre>
 The Daily Tip will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
