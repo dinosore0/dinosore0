@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** When you look around and don't see anyone you respect, its time to leave.
+- **Today’s Tip:** If you get stuck, try doing the opposite of what the solution requires.
 
 ## 🌟 Experiences (731 days)
 
