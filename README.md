@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** It's wrong to be right.
+- **Today’s Tip:** There's no art to find the mind's construction in the face.
 
 ## 🌟 Experiences (886 days)
 
