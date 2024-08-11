@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who is not a good servant will not be a good master. 
+  When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
