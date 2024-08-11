@@ -15,7 +15,7 @@
 
 ## 💡 Daily Tip
 <pre>
-  Today’s Tip:  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
+  Today’s Tip:  A man's got to take a lot of punishment to write a really funny book. 
 </pre>
 The Daily Tip will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
