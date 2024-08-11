@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  With guns you can kill terrorists, with education you can kill terrorism. 
+  I want my food dead. Not sick, not dying, dead. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
