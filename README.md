@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Don't take life too seriously.
+- **Today’s Tip:** When you look around and don't see anyone you respect, its time to leave.
 
 ## 🌟 Experiences (731 days)
 
