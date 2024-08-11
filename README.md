@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best of artists has no conception that the marble alone does not contain within itself. 
+  We are here to change. We are here to grow, develop and unfold. We are progressive beings that have infinite capacity. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
