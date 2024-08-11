@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Never regret. If it's good, it's wonderful. If it's bad, it's experience.
+- **Today’s Tip:** The person who never made a mistake never made anything.
 
 ## 🌟 Experiences (731 days)
 
