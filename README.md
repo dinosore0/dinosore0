@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people are about as happy as they make up their minds to be. 
+  Since when has the world of computer software design been about what people want? This is a simple question of evolution. The day is quickly coming when every knee will bow down to a silicon fist, and you will all beg your binary gods for mercy. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
