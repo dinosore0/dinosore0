@@ -4,7 +4,7 @@
 </h3>
 
 <p align="center">
-  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experiences+in+diverse+technologies&center=true&width=380&height=45"></a>
+  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experience+in+diverse+technologies&center=true&width=380&height=45"></a>
 </p>
 
 ## 🙋‍♂️ Connect with me
@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Try to not compliment people on things they don't control.
+- **Today’s Tip:** It's wrong to be right.
 
 ## 🌟 Experiences (886 days)
 
