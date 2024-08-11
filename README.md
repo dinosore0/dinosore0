@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You're just left with yourself all the time, whatever you do anyway. You've got to get down to your own God in your own temple. It's all down to you, mate. 
+  The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
-## 🌟 Experiences (886 days)
+## 🌟 Experiences (887 days)
 
 ### 🧮 Programming languages
 
