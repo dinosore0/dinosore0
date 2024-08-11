@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are worse crimes than burning books. One of them is not reading them. 
+  I have long known that it is part of God's plan for me to spend a little time with each of the most stupid people on earth. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
