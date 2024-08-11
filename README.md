@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Winter is coming.
+- **Today’s Tip:** It's not about who likes you, it's about who you like.
 
 ## 🌟 Experiences (886 days)
 
