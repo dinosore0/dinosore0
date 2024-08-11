@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Gratitude is said to be the secret to happiness.
+- **Today’s Tip:** Try going commando to an important meeting, NB: don't wear a skirt.
 
 ## 🌟 Experiences (731 days)
 
