@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  America is the most grandiose experiment the world has seen, but, I am afraid, it is not going to be a success. 
+  Babies don't need a vacation, but I still see them at the beach... it pisses me off! I'll go over to a little baby and say 'What are you doing here? You haven't worked a day in your life!' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
