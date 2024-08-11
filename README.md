@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life's most persistent and urgent question is, 'What are you doing for others?' 
+  Seize thy chance, for it will come to thee no more. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
