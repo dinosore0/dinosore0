@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Happiness is a journey, not a destination.
+- **Today’s Tip:** Try to not compliment people on things they don't control.
 
 ## 🌟 Experiences (886 days)
 
