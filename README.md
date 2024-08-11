@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. 
+  Life's most persistent and urgent question is, 'What are you doing for others?' 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
