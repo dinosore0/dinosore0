@@ -15,7 +15,7 @@
 
 ## 💡 Daily Quote
 <pre>
-   Today's insight: “A room without books is like a body without a soul.” 
+   Today's insight: I would rather live my life as if there is a God and die to find out there isn't, than live my life as if there isn't and die to find out there is. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
