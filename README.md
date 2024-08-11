@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. 
+  Never let yffour schooling intefdfdssrfere with your edusscatidsons. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
