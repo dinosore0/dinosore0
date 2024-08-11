@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When the light turns green, don't race to the next one. 
+  The formulation of a problem is often more essential than its solution, which may be merely a matter of mathematical or experimental skill. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
