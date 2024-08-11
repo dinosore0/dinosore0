@@ -10,7 +10,7 @@
 ## 🙋‍♂️ Connect with me
 
 <p align="left">
-  <a href="#"><img alt="Dev.to" title="LinkedIn " src="https://img.shields.io/badge/LinkedIn-0077b5.svg?&style=for-the-badge&logo=0077b5&logoColor=white"></a> 
+  <a href="#"><img alt="LinkedIn" title="LinkedIn " src="https://img.shields.io/badge/LinkedIn-0077b5.svg?&style=for-the-badge&logo=0077b5&logoColor=white"></a> 
 </p>
 
 ### 💡 Daily Tip
@@ -75,7 +75,7 @@
 
 ## 🔥 Streak stats
 
-> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dinodev&theme=radical&hide_border=true)](https://github.com/dinodev)
+> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dino-claw&theme=radical&hide_border=true)](https://github.com/dino-claw)
 
 <!-- 
 ## 📊 Github stats
