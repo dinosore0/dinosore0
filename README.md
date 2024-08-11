@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In this journey you must become a lover of your enemies, so that the purity of your love may attract the hearts. 
+  I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
