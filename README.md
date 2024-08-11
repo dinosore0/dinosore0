@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The time to save is now. When a dog gets a bone, he doesn't go out and make a down payment on a bigger bone. He buries the one he's got. 
+  You could rattle the stars. You could do anything, if you only dared. And deep down, you know it too, and that’s what scares you the most 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
