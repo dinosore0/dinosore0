@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** A common regret in life is wishing one hadn't worked so hard.
+- **Today’s Tip:** Never regret. If it's good, it's wonderful. If it's bad, it's experience.
 
 ## 🌟 Experiences (731 days)
 
