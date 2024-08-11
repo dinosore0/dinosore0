@@ -15,7 +15,7 @@
 
 ## 💡 Daily Quote
 <pre>
-   A President needs political understanding to run the government, but he may be elected without it. 
+   Today's insight: A man who dares to waste one hour of life has not discovered the value of life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
