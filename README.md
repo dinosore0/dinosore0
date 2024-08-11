@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The formulation of a problem is often more essential than its solution, which may be merely a matter of mathematical or experimental skill. 
+  Nobody gets to live life backward. Look ahead, that is where your future lies. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (886 days)
