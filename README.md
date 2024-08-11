@@ -14,7 +14,7 @@
 </p>
 
 ### 💡 Daily Tip
-- **Today’s Tip:** Try going commando to an important meeting, NB: don't wear a skirt.
+- **Today’s Tip:** When hugging, hug with both arms and apply reasonable, affectionate pressure.
 
 ## 🌟 Experiences (731 days)
 
