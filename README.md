@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A problem shared is a problem halved. 
+  If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
