@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't limit a child to your own learning, for he was born in another time. 
+  I chose life over death for myself and my friends... I believe it is in our nature to explore, to reach out into the unknown. The only true failure would be not to explore at all. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
