@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you cannot unscrew the lid of a jar, try placing a rubber band around its circumference for extra grip. 
+  A common regret in life is wishing one hadn't worked so hard. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
