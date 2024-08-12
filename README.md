@@ -4,7 +4,7 @@
 </h3>
 
 <p align="center">
-  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experience+in+diverse+technologies&center=true&width=380&height=45"></a>
+  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experienced+in+diverse+technologies&center=true&width=450&height=45"></a>
 </p>
 
 ## 🙋‍♂️ Connect with me
@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The secret of my success is a two word answer: Know people. 
+  There are one hundred men seeking security to one able man who is willing to risk his fortune. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
