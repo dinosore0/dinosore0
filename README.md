@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Remedy tickly coughs with a drink of honey, lemon and water as hot as you can take. 
+  Accentuate the positive, eliminate the negative. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
