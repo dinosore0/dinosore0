@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When hugging, hug with both arms and apply reasonable, affectionate pressure. 
+  If you're feeling tired or anxious, a pint of water will almost always make you feel better. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
