@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It always seems impossible, until it's done. 
+  Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
