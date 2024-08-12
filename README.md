@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God is not on the side of the big battalions, but on the side of those who shoot best. 
+  Motivation is the art of getting people to do what you want them to do because they want to do it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
