@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Microsoft didn't kill Linux on the Desktop... Apple did. 
+  The Word of fire burns today On the lips of our prophets in an evil age. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
