@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your edge is where you stop short, or where you compromise your fullest gift, and, instead, cater to your fears. 
+  Nothing great was ever achieved without enthusiasm. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
