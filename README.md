@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet. 
+  Give up your seat for someone who needs it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
