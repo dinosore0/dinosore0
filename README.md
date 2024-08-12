@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated. 
+  A problem shared is a problem halved. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
