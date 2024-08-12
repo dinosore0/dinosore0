@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Truthful words are not beautiful beautiful words are not truthful. Good words are not persuasive persuasive words are not good. 
+  Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
