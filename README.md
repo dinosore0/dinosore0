@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Share positive energy. 
+  You spend half your life asleep or in bed. It's worth spending money on a good mattress, decent pillows and a comfy duvet. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
