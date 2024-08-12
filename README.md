@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are one hundred men seeking security to one able man who is willing to risk his fortune. 
+  Don't limit a child to your own learning, for he was born in another time. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
