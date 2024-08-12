@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Government of the people, by the people, for the people, shall not perish from the Earth. 
+  Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world? 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
