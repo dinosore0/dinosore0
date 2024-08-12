@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing great was ever achieved without enthusiasm. 
+  We the unwilling.<br>Led by the unqualified.<br>To kill the unfortunate.<br>Die for the ungrateful. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
