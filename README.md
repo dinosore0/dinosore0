@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The number of vampires in the average home, is directly proportional to the amount of garlic bread in the fridge. 
+  If you don't ask, you don't get. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
