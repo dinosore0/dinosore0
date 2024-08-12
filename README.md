@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't always rely on your comforts. 
+  Take time once in a while to look up at the stars for at least 5 minutes, in order to comprehend your cosmic significance. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
