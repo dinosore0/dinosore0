@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes, you just need to say sorry. Even if it's not your fault. 
+  Remedy tickly coughs with a drink of honey, lemon and water as hot as you can take. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
