@@ -4,7 +4,7 @@
 </h3>
 
 <p align="center">
-  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experience+in+diverse+technologies&center=true&width=450&height=45"></a>
+  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experienced+in+diverse+technologies&center=true&width=450&height=45"></a>
 </p>
 
 ## 🙋‍♂️ Connect with me
