@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you think nobody cares if you're alive, try missing a few payments. 
+  Walking is a perfectly valid solution to traffic congestion problems. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
