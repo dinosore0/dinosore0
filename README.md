@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship. 
+  Choose a job you love, and you will never have to work a day in your life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (887 days)
