@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty. 
+  It may be that the satisfaction I need depends on my going away, so that when I've gone and come back, I'll find it at home. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
