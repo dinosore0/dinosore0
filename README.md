@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No man should marry until he has studied anatomy and dissected at least one woman. 
+  Irreligion - the principal one of the great faiths of the world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
