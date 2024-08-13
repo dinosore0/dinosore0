@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Respect other people's opinions, even when they differ from your own. 
+  Avoid mixing Ginger Nuts with other biscuits, they contaminate. Keep separated. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
