@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the middle of difficulty lies opportunity. 
+  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
