@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry. 
+  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
