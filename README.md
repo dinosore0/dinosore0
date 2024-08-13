@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A dog is the only thing on earth that loves you more than you love yourself. 
+  If you think you can do a thing or think you can't do a thing, you're right. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
