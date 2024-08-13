@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My goal has never been to dominate the market.  My goal has always just been to just make a living. 
+  A dog is the only thing on earth that loves you more than you love yourself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
