@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music is the mediator between the spiritual and the sensual life. 
+  The man who views the world at 50 the same he did at 20 has wasted thirty years of his life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
