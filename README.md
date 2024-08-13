@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The function of leadership is to produce more leaders, not more followers. 
+  Man needs his difficulties because they are necessary to enjoy success. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
