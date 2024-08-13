@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be interested in finding the best way, not in having it your way. 
+  No man can walk out on his own story. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
-## 🌟 Experiences (888 days)
+## 🌟 Experiences (889 days)
 
 ### 🧮 Programming languages
 
