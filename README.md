@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Accept nothing, challenge everything. 
+  I find playwriting to be incredibly difficult compared to screenwriting. Part of it is that I grew up watching movies and not watching plays. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
