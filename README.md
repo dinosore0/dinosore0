@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the art of being the only one who knows you're scared to death. 
+  The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
