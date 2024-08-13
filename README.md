@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ceaseless labour of your life is to build the house of death. 
+  If you want a vision of the future, imagine a boot stamping on a human face - forever. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
