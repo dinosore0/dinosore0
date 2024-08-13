@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man needs his difficulties because they are necessary to enjoy success. 
+  No man should marry until he has studied anatomy and dissected at least one woman. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
