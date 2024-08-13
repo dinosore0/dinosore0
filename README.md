@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
+  Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
