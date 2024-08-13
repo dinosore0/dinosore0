@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love and work are the cornerstones of our humanness. 
+  Don’t forget: beautiful sunsets need cloudy skies. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
