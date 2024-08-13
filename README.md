@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
+  Success is full of promise till one gets it, and then it seems like a nest from which the bird has flown. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
