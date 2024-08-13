@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When one has the feeling of dislike for evil, when one feels tranquil, one finds pleasure in listening to good teachings when one has these feelings and appreciates them, one is free of fear. 
+  I have to be alone very often. I'd be quite happy if I spent from Saturday night until Monday morning alone in my apartment. That's how I refuel. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (888 days)
