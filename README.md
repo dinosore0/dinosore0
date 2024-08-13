@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. 
+  I cannot make my days longer. So I strive to make them better. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
