@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Just because something doesn't do what you planned it to do doesn't mean it's useless. 
+  The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
-## 🌟 Experiences (889 days)
+## 🌟 Experiences (890 days)
 
 ### 🧮 Programming languages
 
