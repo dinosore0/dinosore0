@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is doing what you're afraid to do.  There can be no courage unless you're scared. 
+  I thank God for my handicaps, for through them I have found myself, my work and my God. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
