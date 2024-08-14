@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Expectations are a form of first-class truth: If people believe it, it's true. 
+  Education comes from within; you get it by struggle and effort and thought. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
