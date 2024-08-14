@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One death is a tragedy one million is a statistic. 
+  I am not a vegetarian because I love animals; I am a vegetarian because I hate plants. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
