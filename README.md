@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I thank God for my handicaps, for through them I have found myself, my work and my God. 
+  It isn't about 'games', for me, personally, and it never really was. It was about creating something, anything, far bigger than yourself. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
