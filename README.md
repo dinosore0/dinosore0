@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ladies, if you want to know the way to my heart... good spelling and good grammar, good punctuation, capitalize only where you are supposed to capitalize, it's done. 
+  The sensitivity of men to small matters, and their indifference to great ones, indicates a strange inversion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
@@ -82,8 +82,9 @@ The Daily Quote will be updated automatically every 20 minutes!!
 
 
 ## 📊 Github stats
-
-[![wakatime](https://wakatime.com/badge/user/73fbb789-32b7-490f-aaa7-b8b31a96c603.svg)](https://wakatime.com/@73fbb789-32b7-490f-aaa7-b8b31a96c603)
+<!--   green snake -->
+![Dino-claw's github activity graph](https://raw.githubusercontent.com/dino-claw/dino-claw/output/github-snake.svg)  
+[![wakatime](https://wakatime.com/badge/user/73fbb789-32b7-490f-aaa7-b8b31a96c603.svg)](https://wakatime.com/@73fbb789-32b7-490f-aaa7-b8b31a96c603)  
 
 <!--   <details>
   <summary>💻 GitHub Profile Stats</summary>
