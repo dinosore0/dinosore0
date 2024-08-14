@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If Bill Gates woke up with Oprah's money, he'd jump out the window. 
+  Nurture your minds with great thoughts. To believe in the heroic makes heroes. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
