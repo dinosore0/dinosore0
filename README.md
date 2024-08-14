@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I was young, I thought that money was the most important thing in life; now that I am old, I know that it is. 
+  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
