@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Edible, adj.: Good to eat, and wholesome to digest, as a worm to a toad, a toad to a snake, a snake to a pig, a pig to a man, and a man to a worm. 
+  As regards the individual nature, woman is defective and misbegotten, for the active power of the male seed tends to the production of a perfect likeness in the masculine sex while the production of a woman comes from defect in the active power. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
-## 🌟 Experiences (889 days)
+## 🌟 Experiences (890 days)
 
 ### 🧮 Programming languages
 
