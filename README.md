@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I only wish that ordinary people had an unlimited capacity for doing harm then they might have an unlimited power for doing good. 
+  Change alone is eternal, perpetual, immortal. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (889 days)
