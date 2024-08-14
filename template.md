@@ -82,8 +82,9 @@ The Daily Quote will be updated automatically every 20 minutes!!
 
 
 ## 📊 Github stats
-
-[![wakatime](https://wakatime.com/badge/user/73fbb789-32b7-490f-aaa7-b8b31a96c603.svg)](https://wakatime.com/@73fbb789-32b7-490f-aaa7-b8b31a96c603)
+<!--   green snake -->
+![Dino-claw's github activity graph](https://raw.githubusercontent.com/dino-claw/dino-claw/output/github-snake.svg)  
+[![wakatime](https://wakatime.com/badge/user/73fbb789-32b7-490f-aaa7-b8b31a96c603.svg)](https://wakatime.com/@73fbb789-32b7-490f-aaa7-b8b31a96c603)  
 
 <!--   <details>
   <summary>💻 GitHub Profile Stats</summary>
