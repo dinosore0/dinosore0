@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am a child of God, an inheritor of a fragment of the mind that created all worlds. 
+  All women become like their mothers. That is their tragedy. No man does. That's his. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
