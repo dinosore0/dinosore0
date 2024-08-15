@@ -10,8 +10,8 @@ git config user.name "dino"
 git config user.email "cuongtruong2015@gmail.com"
 
 # Define file paths and start date
-TEMPLATE_FILE="template.md"
-README_FILE="README.md"
+TEMPLATE_FILE="../../template.md"
+README_FILE="../../README.md"
 START_DATE="03/09/2022"
 
 # Copy the template to the README file
