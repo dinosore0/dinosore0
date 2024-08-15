@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Because of your smile, you make life more beautiful. 
+  It is not because angels are holier than men or devils that makes them angels, but because they do not expect holiness from one another, but from God only. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
