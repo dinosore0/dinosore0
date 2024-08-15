@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you wait until you see the robin, spring will be over. 
+  There are fathers who do not love their children; there is no grandfather who does not adore his grandson. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
