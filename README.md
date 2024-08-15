@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tis better to have loved and lost.<br>Than never to have loved at all. 
+  I am a child of God, an inheritor of a fragment of the mind that created all worlds. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
