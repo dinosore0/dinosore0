@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
+  It is not because angels are holier than men or devils that makes them angels, but because they do not expect holiness from one another, but from God only. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
