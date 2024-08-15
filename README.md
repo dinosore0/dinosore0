@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only way to get the best of an argument is to avoid it. 
+  Progress is impossible without change, and those who cannot change their minds cannot change anything. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
