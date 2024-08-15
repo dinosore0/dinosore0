@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anyone with a new idea is a crank... until the idea succeeds. 
+  As the poet said, 'Only God can make a tree,' probably because it's so hard to figure out how to get the bark on. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
