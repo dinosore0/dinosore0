@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A nickel ain't worth a dime anymore. 
+  It’s a funny thing about life; if you refuse to accept anything but the best, you very often get it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
