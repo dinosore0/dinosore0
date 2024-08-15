@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Time, which alone makes the reputation of men, ends by making their defects respectable. 
+  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
