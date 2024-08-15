@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In a thousand different ways, we are taught to think small.  We are taught to think we can’t change the status quo.  That does not have to be. 
+  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
