@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He is greatest whose strength carries up the most hearts by the attraction of his own. 
+  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
