@@ -9,7 +9,7 @@ on:
   # pull_request:
   #   branches: [ "main" ]
   schedule:
-    - cron: '* * * * *'
+    - cron: '0 */2 * * *'
 
 # # This command allows us to run the Action automatically from the Actions tab.
 #   workflow_dispatch:
