@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The supreme art of war is to subdue the enemy without fighting. 
+  Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
-## 🌟 Experiences (890 days)
+## 🌟 Experiences (891 days)
 
 ### 🧮 Programming languages
 
