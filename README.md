@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A goal is not always meant to be reached, it often serves simply as something to aim at. 
+  I don't think much of a man who is not wiser today than he was yesterday. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
