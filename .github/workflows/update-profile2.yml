@@ -25,8 +25,8 @@ jobs:
     steps:
       - name: Clone repo
         uses: actions/checkout@v3
-
-   # show the status of the build. Makes it easier for debugging (if there's any issues).
+      - name: ls
+        run:  ls
       - name: bash update.sh
         run:  bash update.sh
 
