@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I had rather have a fool to make me merry than experience to make me sad and to travel for it too! 
+  body513003 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (891 days)
+## 🌟 Experiences (890 days)
 
 ### 🧮 Programming languages
 
