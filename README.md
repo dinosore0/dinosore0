@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The hate of men will pass, and dictators die, and the power they took from the people will return to the people. And so long as men die, liberty will never perish. 
+  I had rather have a fool to make me merry than experience to make me sad and to travel for it too! 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
