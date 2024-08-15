@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man. 
+  I have great faith in fools; self-confidence my friends call it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (890 days)
