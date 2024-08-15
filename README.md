@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
+  If you want a vision of the future, imagine a boot stamping on a human face - forever. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
