@@ -1,13 +1,13 @@
 #!/bin/bash
 
 # Set script directory and navigate to it
-SCRIPT_DIR="$(dirname "$(realpath "$0")")"
-cd "$SCRIPT_DIR"
+# SCRIPT_DIR="$(dirname "$(realpath "$0")")"
+# cd "$SCRIPT_DIR"
 
-cd ../..
+# cd ../..
 
 # Pull the latest changes from the repository
-git pull
+# git pull
 git config user.name "dino"
 git config user.email "cuongtruong2015@gmail.com"
 
