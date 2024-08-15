@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
+  A goal is not always meant to be reached, it often serves simply as something to aim at. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
