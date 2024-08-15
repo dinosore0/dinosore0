@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As for style, there is something about the way musicians dress-they seem to be able to create their own world within their fashion alone. 
+  If you want others to be happy, practice compassion. If you want to be happy, practice compassion. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
