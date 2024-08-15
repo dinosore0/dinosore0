@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest deception men suffer is from their own opinions. 
+  The world is full of magical things patiently waiting for our wits to grow sharper. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
