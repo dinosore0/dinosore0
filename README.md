@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
+  Men can only be happy when they do not assume that the object of life is happiness. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
