@@ -26,11 +26,6 @@ jobs:
       - name: Clone repo
         uses: actions/checkout@v3
 
-      - name: Generate snake in dist
-            
-          # env:
-          #   # a github token is required to fetch the contribution calendar from github API
-          #   GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
    # show the status of the build. Makes it easier for debugging (if there's any issues).
       - name: bash update.sh
         run:  bash update.sh
