@@ -32,6 +32,8 @@ jobs:
    # show the status of the build. Makes it easier for debugging (if there's any issues).
       - name: bash update.sh
         run:  bash update.sh
+      - name: check status
+        run:  cat README.md
 
       # - name: Push new files to the output branch
       #   uses: crazy-max/ghaction-github-pages@v3.1.0
