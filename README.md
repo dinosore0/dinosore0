@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Find a job you love and you'll never have to work again. 
+  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
