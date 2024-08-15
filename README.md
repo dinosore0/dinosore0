@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I quote others only in order to better express myself. 
+  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
