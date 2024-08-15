@@ -28,7 +28,7 @@ jobs:
       - name: ls
         run:  ls
       - name: bash update.sh
-        run:  bash update.sh
+        run:  bash ./scripts/update.sh
 
       # - name: Push new files to the output branch
       #   uses: crazy-max/ghaction-github-pages@v3.1.0
@@ -39,9 +39,9 @@ jobs:
       #     commit_message: Update snake
       #   env:
       #     GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
-  cron-schedule:
-    runs-on: ubuntu-latest
-    steps:
-      - name: Every time
-        run: echo "This step will always run"
+  # cron-schedule:
+  #   runs-on: ubuntu-latest
+  #   steps:
+  #     - name: Every time
+  #       run: echo "This step will always run"
   
