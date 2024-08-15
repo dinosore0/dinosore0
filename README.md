@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Learning never exhausts the mind. 
+  Good education is not what fills your head with facts but what stimulates curiosity. You then learn for the rest of your life. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
