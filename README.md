@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want a vision of the future, imagine a boot stamping on a human face - forever. 
+  It's a poor sort of memory that only works backwards," the Queen remarked. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
