@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Maturity: Be able to stick with a job until it is finished. Be able to bear an injustice without having to get even. Be able to carry money without spending it. Do your duty without being supervised. 
+  I have no fear that the result of our experiment will be that men may be trusted to govern themselves without a master. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
