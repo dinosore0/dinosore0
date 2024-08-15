@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let your schooling interfere with your education. 
+  You that would judge me, do not judge alone this book or that, come to this hallowed place where my friends' portraits hang and look thereon Ireland's history in their lineaments trace think where man's glory most begins and ends and say my glory was I had such friends. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
