@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
+  Beer, it's the best d--n drink in the world. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (891 days)
