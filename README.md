@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Eating rice cakes is like chewing on a foam coffee cup, only less filling. 
+  And on top of that, when we work together we have a wonderful working relationship we push each other we challenge each other we laugh 80% of the time that we are together we're very fortunate. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
