@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Natural ability without education has more often attained to glory and virtue than education without natural ability. 
+  In a thousand different ways, we are taught to think small.  We are taught to think we can’t change the status quo.  That does not have to be. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
