@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
+  Men always want to be a woman's first love - women like to be a man's last romance. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
