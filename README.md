@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It destroys one's nerves to be amiable every day to the same human being. 
+  I would rather walk with a friend in the dark than walk alone in the light. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
