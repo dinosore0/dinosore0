@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Animals are such agreeable friends - they ask no questions they pass no criticisms. 
+  The greatest deception men suffer is from their own opinions. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
