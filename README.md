@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Genius is the ability to put into effect what is on your mind. 
+  If you can look into the seeds of time, and say which grain will grow and which will not, speak then unto me. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (891 days)
