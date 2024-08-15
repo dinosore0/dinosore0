@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The quality of a leader is reflected in the standards they set for themselves. 
+  He is greatest whose strength carries up the most hearts by the attraction of his own. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
