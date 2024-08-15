@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best place to learn ethics is in the home. 
+  Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
