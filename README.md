@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No man should bring children into the world who is unwilling to persevere to the end in their nature and education. 
+  Tell your heart that the fear of suffering is worse than the suffering itself. And no heart has ever suffered when it goes in search of its dream. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
