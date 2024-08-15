@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The happiness and greatness, the rank and station, the pleasure and peace, of an individual have never consistent in his personal wealth, but rather in his excellent character, his high resolve, the breadth of his learning, and his ability to solve difficult problems. 
+  “A room without books is like a body without a soul.” 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!!
 ## 🌟 Experiences (890 days)
