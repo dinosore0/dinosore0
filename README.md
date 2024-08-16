@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most important thing to us is that our customers love our products. Not just buy them, but love them. 
+  I made a mistake by being ejected from the presidency. Next time, I will choose a Cabinet which will allow me to be life President. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
