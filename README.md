@@ -18,7 +18,7 @@
 Today's insight:  
   I want to be thoroughly used up when I die, for the harder I work the more I live. I rejoice in life for its own sake. 
 </pre>
-The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
+The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
 
 ### 🧮 Programming languages
