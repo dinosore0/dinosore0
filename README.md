@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We're living in a time when the world has suddenly discovered India because it's run out of raw material for its imagination. The raw materials for imagination are inexhaustible here. 
+  It is the mark of an educated mind to be able to entertain a thought without accepting it. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
