@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most splendid achievment of all is the constant striving to surpass yourself and to be worthy of your own approval. 
+  There is none made so great, but he may both need the help and service, and stand in fear of the power and unkindness, even of the meanest of mortals. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
