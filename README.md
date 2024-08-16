@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is none made so great, but he may both need the help and service, and stand in fear of the power and unkindness, even of the meanest of mortals. 
+  Of the billionaires I have known, money just brings out the basic traits in them. If they were jerks before they had money, they are simply jerks with a billion dollars. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
