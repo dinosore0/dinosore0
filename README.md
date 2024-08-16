@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The first requisite of a good citizen in this republic of ours is that he shall be able and willing to pull his own weight. 
+  We can afford to lose money – even a lot of money.  But we can’t afford to lose reputation – even a shred of reputation. 
 </pre>
 The Daily Quote will be updated automatically every 20 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (891 days)
