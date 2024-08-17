@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I cannot believe in a God who wants to be praised all the time. 
+  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (892 days)
