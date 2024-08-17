@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Maturity is a high price to pay for growing up. 
+  Was this the face that launched a thousand ships, and burnt the topless towers of Ileum? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (892 days)
