@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness doesn't depend on any external conditions, it is governed by our mental attitude. 
+  All men's miseries derive from not being able to sit in a quiet room alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (893 days)
