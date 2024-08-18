@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one is master of one thing and understands one thing well, one has at the same time, insight into and understanding of many things. 
+  A wall is a hell of a lot better than a war. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (893 days)
