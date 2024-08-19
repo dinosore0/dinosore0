@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Measuring programming progress by lines of code is like measuring aircraft building progress by weight. 
+  Never let your schooling interfere with your education. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (893 days)
+## 🌟 Experiences (894 days)
 
 ### 🧮 Programming languages
 
