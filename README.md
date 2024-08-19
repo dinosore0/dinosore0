@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is the nothing without best, you only need resttestuser0001 
+  My great hope is to laugh as much as I cry to get my work done and try to love somebody and have the courage to accept the love in return. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (894 days)
