@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
+  People say that life is the thing, but I prefer reading. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (894 days)
