@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We can change our lives. We can do, have, and be exactly what we wish. 
+  Let your life lightly dance on the edges of Time like dew on the tip of a leaf. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (894 days)
