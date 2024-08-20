@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Destiny is not a matter of chance, it is a matter of choice. It is not something to be waited for, but something to be achieved. 
+  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (895 days)
