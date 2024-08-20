@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
+  A man's got to take a lot of punishment to write a really funny book. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (895 days)
