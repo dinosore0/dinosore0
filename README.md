@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't walk behind me; I may not lead. Don't walk in front of me; I may not follow. Just walk beside me and be my friend. 
+  The time is always right to do what is right. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (895 days)
