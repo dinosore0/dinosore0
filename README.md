@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one is master of one thing and understands one thing well, one has at the same time, insight into and understanding of many things. 
+  Skiing combines outdoor fun with knocking down trees with your face. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (895 days)
