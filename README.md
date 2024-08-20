@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either. 
+  To know oneself is to study oneself in action with another person. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (895 days)
