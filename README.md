@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beauty of independence, departure, actions that rely on themselves. 
+  The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (896 days)
