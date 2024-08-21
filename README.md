@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing. 
+  We still do not know one thousandth of one percent of what nature has revealed to us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (896 days)
