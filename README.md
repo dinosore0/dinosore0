@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be content with what you are, and wish not change nor dread your last day, nor long for it. 
+  You don't have to deserve your mother's love. You have to deserve your father's. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (896 days)
