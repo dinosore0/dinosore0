@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We live in a Newtonian world of Einsteinian physics ruled by Frankenstein logic. 
+  Never let yffour schooling intefdfdssrfere with your edusscatidsons. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (897 days)
