@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If all the economists were laid end to end, they'd never reach a conclusion. 
+  We live in a Newtonian world of Einsteinian physics ruled by Frankenstein logic. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (897 days)
