@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only men who are not interested in women are interested in women's clothes. Men who like women never notice what they wear. 
+  Friendship is the marriage of the soul, and this marriage is liable to divorce. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (898 days)
