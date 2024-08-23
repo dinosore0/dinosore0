@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not think there is any other quality so essential to success, of any kind, as perseverance. It overcomes almost everything. 
+  Music should strike fire from the heart of man, and bring tears form the eyes of woman. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (898 days)
