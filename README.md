@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am always ready to learn although I do not always like being taught. 
+  Only men who are not interested in women are interested in women's clothes. Men who like women never notice what they wear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (897 days)
+## 🌟 Experiences (898 days)
 
 ### 🧮 Programming languages
 
