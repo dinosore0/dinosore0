@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
+  Poets utter great and wise things which they do not themselves understand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (899 days)
