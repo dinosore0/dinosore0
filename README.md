@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders. 
+  Personally, I would be delighted if there were a life after death, especially if it permitted me to continue to learn about this world and others, if it gave me a chance to discover how history turns out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (899 days)
