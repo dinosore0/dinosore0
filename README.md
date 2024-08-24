@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ideal man bears the accidents of life with dignity and grace, making the best of circumstances. 
+  Memories are the key not to the past, but to the future. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (899 days)
