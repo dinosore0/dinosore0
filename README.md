@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Seeing much, suffering much, and studying much, are the three pillars of learning. 
+  Aim high, choose noble ends... 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (898 days)
+## 🌟 Experiences (899 days)
 
 ### 🧮 Programming languages
 
