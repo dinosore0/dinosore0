@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is meant to be a challenge, because challenges are what make you grow. 
+  We've got this gift of love, but love is like a precious plant. You can't just accept it and leave it in the cupboard or just think it's going to get on by itself. You've got to keep watering it. You've got to really look after it and nurture it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (899 days)
