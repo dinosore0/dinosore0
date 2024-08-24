@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Build product expert wonder read body. Cost service wait.<br>Kind now hair different positive language act.<br>Truth material certainly west. Source how all us eye. 
+  A bad manner spoils everything, even reason and justice a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (899 days)
