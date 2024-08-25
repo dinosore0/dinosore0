@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the practice of tolerance, one's enemy is the best teacher. 
+  Never let the future disturb you. You will meet it, if you have to, with the same weapons of reason which today arm you against the present. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (900 days)
