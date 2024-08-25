@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success is full of promise till one gets it, and then it seems like a nest from which the bird has flown. 
+  On tension: "Instead of a surprise, tell them to it's coming over and over. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (900 days)
