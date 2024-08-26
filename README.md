@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wrinkles should merely indicate where smiles have been. 
+  Leadership is an action, not a position. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (900 days)
+## 🌟 Experiences (901 days)
 
 ### 🧮 Programming languages
 
