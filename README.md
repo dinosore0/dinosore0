@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The time is near at hand which must determine whether Americans are to be free men or slaves. 
+  No b-----d ever won a war by dying for his country. He won it by making the other poor dumb b-----d die for his country. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (901 days)
