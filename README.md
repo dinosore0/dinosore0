@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ghost stars shine their light upon us, long after they're gone. 
+  I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (902 days)
