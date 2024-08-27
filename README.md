@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
+  The man who views the world at 50 the same he did at 20 has wasted thirty years of his life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (902 days)
