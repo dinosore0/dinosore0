@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Character is higher than intellect. A great soul will be strong to live as well as think. 
+  All the forces in the world are not so powerful as an idea whose time has come. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (902 days)
