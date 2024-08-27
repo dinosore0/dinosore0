@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
+  We acquire the strength we have overcome. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (902 days)
