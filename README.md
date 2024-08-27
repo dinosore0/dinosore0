@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Words have no power to impress the mind without the exquisite horror of their reality. 
+  test 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (901 days)
+## 🌟 Experiences (902 days)
 
 ### 🧮 Programming languages
 
