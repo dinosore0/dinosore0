@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True terror is to wake up one morning and discover that your high school class is running the country. 
+  Brave men rejoice in adversity, just as brave soldiers triumph in war. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (903 days)
