@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not concern myself with gods and spirits either good or evil nor do I serve any. 
+  Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long and the age of the great epics is past. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (903 days)
