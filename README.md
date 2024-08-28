@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the greatest of all virtues, because if you haven't courage, you may not have an opportunity to use any of the others. 
+  God is not on the side of the big battalions, but on the side of those who shoot best. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (902 days)
+## 🌟 Experiences (903 days)
 
 ### 🧮 Programming languages
 
