@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is one who knows the way, goes the way and shows the way. 
+  Leadership is an action, not a position. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (903 days)
+## 🌟 Experiences (904 days)
 
 ### 🧮 Programming languages
 
