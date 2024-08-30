@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Quality is earned long after midnight the night before a major launch, pouring over details that no one will notice but you. 
+  I do not believe in the God of theology who rewards good and punishes evil. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (905 days)
