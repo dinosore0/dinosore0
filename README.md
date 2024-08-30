@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  That last day does not bring extinction to us, but change of place. 
+  We come altogether fresh and raw into the several stages of life, and often find ourselves without experience, despite our years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (904 days)
+## 🌟 Experiences (905 days)
 
 ### 🧮 Programming languages
 
