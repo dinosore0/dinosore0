@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Pray thee, spare, thyself at times: for it becomes a wise man sometimes to relax the high pressure of his attention to work. 
+  Patriotism is the virtue of the vicious. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (905 days)
