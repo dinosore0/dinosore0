@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I arise in the morning torn between a desire to improve the world and a desire to enjoy the world. This makes it hard to plan the day. 
+  Read 500 pages like this every day.  That's how knowledge works.  It builds up, like compound interest.  All of you can do it, but I guarantee not many of you will do it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (905 days)
