@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
+  I am only one; but still I am one. I cannot do everything; but still I can do something. I will not refuse to do the something I can do. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (906 days)
