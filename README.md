@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am only one; but still I am one. I cannot do everything; but still I can do something. I will not refuse to do the something I can do. 
+  A skilful leech is better far, than half a hundred men of war. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (906 days)
