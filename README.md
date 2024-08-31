@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work. 
+  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (906 days)
