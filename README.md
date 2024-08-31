@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art. 
+  Making the simple complicated is commonplace; making the complicated simple, awesomely simple, that's creativity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (906 days)
