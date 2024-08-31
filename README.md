@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life's tragedy is that we get old too soon and wise too late. 
+  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (906 days)
