@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The over-all point is that new technology will not necessarily replace old technology, but it will date it. By definition. Eventually, it will replace it. But it's like people who had black-and-white TVs when color came out. They eventually decided whether or not the new technology was worth the investment. 
+  If we do discover a complete theory, it should be in time understandable in broad principle by everyone. Then we shall all, philosophers, scientists, and just ordinary people be able to take part in the discussion of why we and the universe exist. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (907 days)
