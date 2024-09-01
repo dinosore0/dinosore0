@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
+  Adversity makes men, and prosperity makes monsters. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (907 days)
