@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courageous people do not fear forgiving, for the sake of peace. 
+  Take a chance! All life is a chance. The man who goes farthest is generally the one who is willing to do and dare. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (907 days)
