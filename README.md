@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The true method of knowledge is experiment. 
+  In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (907 days)
