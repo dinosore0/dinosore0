@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
+  I have great faith in fools; self-confidence my friends call it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (908 days)
