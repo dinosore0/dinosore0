@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you live a life of make-believe, your life isn't worth anything until you do something that does challenge your reality. And to me, sailing the open ocean is a real challenge, because it's life or death. 
+  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (908 days)
