@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Freedom from effort in the present merely means that there has been effort stored up in the past. 
+  Sex at age 90 is like trying to shoot pool with a rope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (909 days)
