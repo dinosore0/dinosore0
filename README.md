@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The line between failure and success is so fine that we scarcely know when we pass it: so fine that we are often on the line and do not know it. 
+  Do the thing we fear, and death of fear is certain. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (909 days)
