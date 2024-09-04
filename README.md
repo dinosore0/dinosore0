@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws. 
+  Nothing is more despicable than respect based on fear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (910 days)
