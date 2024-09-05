@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You must be the change you wish to see in the world. 
+  This is my quote for performance testing 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (910 days)
+## 🌟 Experiences (911 days)
 
 ### 🧮 Programming languages
 
