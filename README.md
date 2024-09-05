@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is a tragedy when seen in close-up, but a comedy in long-shot. 
+  It is better to keep your mouth shut and appear stupid than to open it and remove all doubt. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (911 days)
