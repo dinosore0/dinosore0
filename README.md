@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  From a child I was fond of reading, and all the little money that came into my hands was ever laid out in books. 
+  If you’ve never met the devil on the road of life, it's because you’re both heading in the same direction. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (911 days)
