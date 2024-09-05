@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Have patience—wait, but do not sit idle; work while you are waiting; smile while you are wearied with monotony; be firm while everything around you is being shaken; be joyous while the ugly face of despair grins at you; speak aloud while the malevolent forces of the nether world try to crush your mind; be valiant and courageous while men all around you are cringing with fear and cowardice. 
+  I'm well past the age where I'm acceptable. You get to a certain age and you are forbidden access. You're not going to get the kind of coverage that you would like in music magazines, you're not going to get played on radio and you're not going to get played on television. I have to survive on word of mouth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (911 days)
