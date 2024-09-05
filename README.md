@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm well past the age where I'm acceptable. You get to a certain age and you are forbidden access. You're not going to get the kind of coverage that you would like in music magazines, you're not going to get played on radio and you're not going to get played on television. I have to survive on word of mouth. 
+  From a child I was fond of reading, and all the little money that came into my hands was ever laid out in books. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (911 days)
