@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is a kind of salvation. 
+  I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (912 days)
