@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One is loved because one is loved. No reason is needed for loving. 
+  The stone age came to an end not for lack of stones. And the oil age will come to an end not for lack of oil. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (912 days)
