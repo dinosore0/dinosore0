@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Complainers change their complaints, but they never reduce the amount of time spent in complaining. 
+  If you think of yourselves as helpless and ineffectual, it is certain that you will create a despotic government to be your master. The wise despot, therefore, maintains among his subjects a popular sense that they are helpless and ineffectual. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (912 days)
