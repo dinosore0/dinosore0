@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I fear not the man who has practiced 10,000 kicks once, but I fear the man who has practiced one kick 10,000 times. 
+  Courage is a kind of salvation. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (912 days)
