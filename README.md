@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I’m no genius, but I’m smart in spots, and I stay around those spots. 
+  Freedom is the freedom to say that two plus two make four. If that is granted, all else follows. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (913 days)
