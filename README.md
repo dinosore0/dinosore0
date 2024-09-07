@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A pair of powerful spectacles has sometimes sufficed to cure a person in love. 
+  Leadership is getting someone to do what they don't want to do, to achieve what they want to achieve. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (913 days)
