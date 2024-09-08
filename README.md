@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nobody can bring you peace but yourself. 
+  Science exists, moreover, only as a journey toward troth. Stifle dissent and you end that journey. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (914 days)
