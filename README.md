@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To give pain is the tyranny to make happy, the true empire of beauty. 
+  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (914 days)
