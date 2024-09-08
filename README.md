@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do the thing you fear most and the death of fear is certain. 
+  People say that life is the thing, but I prefer reading. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (913 days)
+## 🌟 Experiences (914 days)
 
 ### 🧮 Programming languages
 
