@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved. 
+  Critics are men who sit and watch a battle from a high place and come down to shoot the survivors. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (914 days)
