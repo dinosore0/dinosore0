@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great question that has never been answered, and which I have not yet been able to answer, despite my thirty years of research into the feminine soul, is 'What does a woman want?' 
+  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (914 days)
+## 🌟 Experiences (915 days)
 
 ### 🧮 Programming languages
 
