@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
+  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (915 days)
