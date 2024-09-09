@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How much more grievous are the consequences of anger than the causes of it. 
+  Concerning God, freewill and destiny: Of all that earth has been or yet may be, all that vain men imagine or believe, or hope can paint or suffering may achieve, we descanted. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (915 days)
