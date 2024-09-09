@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Television it will keep your a-s wishin' forever. 
+  Rule No.1: Never lose money. Rule No.2: Never forget rule No.1. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (915 days)
