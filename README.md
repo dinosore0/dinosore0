@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When art critics get together, they talk about Form and Structure and Meaning. When artists get together, they talk about where you can buy cheap turpentine. 
+  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (916 days)
