@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
+  Eating rice cakes is like chewing on a foam coffee cup, only less filling. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (917 days)
