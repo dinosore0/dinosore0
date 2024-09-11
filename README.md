@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness doesn't depend on any external conditions, it is governed by our mental attitude. 
+  If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (917 days)
