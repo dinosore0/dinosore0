@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before you embark on a journey of revenge, dig two graves. 
+  We'll try to cooperate fully with the IRS, because, as citizens, we feel a strong patriotic duty not to go to jail. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (917 days)
