@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Right now it's only a notion, but I think I can get the money to make it into a concept, and later turn it into an idea. 
+  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (917 days)
