@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Eating rice cakes is like chewing on a foam coffee cup, only less filling. 
+  Evil is committed without effort, naturally, fatally goodness is always the product of some art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (917 days)
