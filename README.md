@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the practice of tolerance, one's enemy is the best teacher. 
+  Leadership is getting someone to do what they don't want to do, to achieve what they want to achieve. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (918 days)
