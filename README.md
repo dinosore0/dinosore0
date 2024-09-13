@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Show me a thoroughly satisfied man and I will show you a failure. 
+  The true sign of intelligence is not knowledge but imagination. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (918 days)
+## 🌟 Experiences (919 days)
 
 ### 🧮 Programming languages
 
