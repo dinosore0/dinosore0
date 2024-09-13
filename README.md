@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My theory has always been, that if we are to dream, the flatteries of hope are as cheap, and pleasanter, than the gloom of despair. 
+  The happiness and greatness, the rank and station, the pleasure and peace, of an individual have never consistent in his personal wealth, but rather in his excellent character, his high resolve, the breadth of his learning, and his ability to solve difficult problems. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (919 days)
