@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you've been playing poker for half an hour and you still don't know who the patsy is, you're the patsy. 
+  Humor has justly been regarded as the finest perfection of poetic genius. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (919 days)
