@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most splendid achievment of all is the constant striving to surpass yourself and to be worthy of your own approval. 
+  The empires of the future are the empires of the mind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (920 days)
