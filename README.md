@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To live a pure unselfish life, one must count nothing as one's own in the midst of abundance. 
+  Our greatest glory is not in never failing, but in raising up every time we fail. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (920 days)
