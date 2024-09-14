@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Children begin by loving their parents; after a time they judge them; rarely, if ever, do they forgive them. 
+  Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (920 days)
