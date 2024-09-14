@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is 10% what happens to you and 90% how you react to it. 
+  To live a pure unselfish life, one must count nothing as one's own in the midst of abundance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (920 days)
