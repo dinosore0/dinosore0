@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Failure seldom stops you. What stops you is the fear of failure. 
+  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (921 days)
