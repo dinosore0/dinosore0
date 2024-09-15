@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I made a mistake by being ejected from the presidency. Next time, I will choose a Cabinet which will allow me to be life President. 
+  Everyone has been made for some particular work, and the desire for that work has been put in every heart. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (921 days)
