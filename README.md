@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
+  The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (921 days)
