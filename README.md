@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
+  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (921 days)
