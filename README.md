@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everyone has been made for some particular work, and the desire for that work has been put in every heart. 
+  Freedom is the right to tell people what they do not want to hear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (921 days)
