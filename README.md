@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Time heals griefs and quarrels, for we change and are no longer the same persons. Neither the offender nor the offended are any more themselves. 
+  The sensitivity of men to small matters, and their indifference to great ones, indicates a strange inversion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (921 days)
+## 🌟 Experiences (922 days)
 
 ### 🧮 Programming languages
 
