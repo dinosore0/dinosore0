@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Often when you think you’re at the end of something, you’re at the beginning of something else. 
+  You can close more business in two months by becoming interested in other people than you can in two years by trying to get people interested in you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (922 days)
