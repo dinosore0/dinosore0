@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've learned from experience that the greater part of our happiness or misery depends on our dispositions and not on our circumstances. 
+  Many foxes grow gray but few grow good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (922 days)
