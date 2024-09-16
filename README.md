@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Neither the sun nor death can be looked at with a steady eye. 
+  Three rules for a career: 1) Don’t sell anything you wouldn’t buy yourself; 2) Don’t work for anyone you don’t respect and admire; and 3) Work only with people you enjoy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (922 days)
