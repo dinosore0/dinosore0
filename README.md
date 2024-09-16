@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Making the simple complicated is commonplace; making the complicated simple, awesomely simple, that's creativity. 
+  Neither the sun nor death can be looked at with a steady eye. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (922 days)
