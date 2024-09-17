@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is little success where there is little laughter. 
+  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (923 days)
