@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There's plenty of money to be made in the center of the court. 
+  Seeing a murder on television can … help work off one’s antagonisms. And if you haven’t any antagonisms, the commercials will give you some. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (923 days)
