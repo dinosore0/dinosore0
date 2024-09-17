@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The view of Jerusalem is the history of the world it is more, it is the history of earth and of heaven. 
+  Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (923 days)
