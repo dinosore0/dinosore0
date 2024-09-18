@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Home is behind, the world ahead,<br>and there are many paths to tread<br>through shadows to the edge of night,<br>until the stars are all alight. 
+  Fail faster, try again sooner. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (924 days)
