@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everyday life is like programming, I guess. If you love something you can put beauty into it. 
+  You have to learn the rules of the game. And then you have to play better than anyone else. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (924 days)
