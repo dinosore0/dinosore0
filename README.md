@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is none made so great, but he may both need the help and service, and stand in fear of the power and unkindness, even of the meanest of mortals. 
+  Nguồn mở là thứ tồn tại duy nhất. Mọi nguồn khác có hay không có, không quan trọng. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (924 days)
