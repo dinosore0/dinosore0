@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Rhetoric is the art of ruling the minds of men. 
+  I have been complimented many times and they always embarrass me; I always feel that they have not said enough. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (924 days)
