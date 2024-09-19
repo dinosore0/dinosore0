@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. 
+  Your edge is where you stop short, or where you compromise your fullest gift, and, instead, cater to your fears. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (925 days)
