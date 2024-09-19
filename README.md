@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your edge is where you stop short, or where you compromise your fullest gift, and, instead, cater to your fears. 
+  The hardest thing to learn in life is which bridge to cross and which to burn. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (925 days)
