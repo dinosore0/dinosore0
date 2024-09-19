@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  After my spectacular failures, I could not be satisfied with an ordinary success. 
+  Governing a great nation is like cooking a small fish - too much handling will spoil it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (925 days)
