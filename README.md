@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  From a child I was fond of reading, and all the little money that came into my hands was ever laid out in books. 
+  Only those who will risk going too far can possibly find out how far one can go. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (926 days)
