@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sensitivity of men to small matters, and their indifference to great ones, indicates a strange inversion. 
+  Success is often achieved by those who don't know that failure is inevitable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (926 days)
