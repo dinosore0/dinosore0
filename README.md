@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  E.M 
+  Doing it well now is much better than doing it perfectly later. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (925 days)
+## 🌟 Experiences (926 days)
 
 ### 🧮 Programming languages
 
