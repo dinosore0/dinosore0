@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We ought to do good to others as simply as a horse runs, or a bee makes honey, or a vine bears grapes season after season without thinking of the grapes it has borne. 
+  The best way out of a difficulty is through it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (926 days)
