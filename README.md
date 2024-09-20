@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I wake up every morning at nine and grab for the morning paper. Then I look at the obituary page. If my name is not on it, I get up. 
+  I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (926 days)
