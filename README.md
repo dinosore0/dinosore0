@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A wise man can learn more from a foolish question than a fool can learn from a wise answer. 
+  We have one life it soon will be past what we do for God is all that will last. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (927 days)
