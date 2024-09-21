@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness is good for the body, but sorrow strengthens the soul. 
+  The chief contribution of Protestantism to human thought is its massive proof that God is a bore. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (927 days)
