@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No one can look back on his schooldays and say with truth that they were altogether unhappy. 
+  War on the other hand is such a terrible thing, that no man, especially a Christian man, has the right to assume the responsibility of starting it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (927 days)
