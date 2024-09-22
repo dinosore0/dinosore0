@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Pray thee, spare, thyself at times: for it becomes a wise man sometimes to relax the high pressure of his attention to work. 
+  Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long and the age of the great epics is past. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (928 days)
