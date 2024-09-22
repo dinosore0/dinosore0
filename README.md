@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What would there be in a story of happiness? Only what prepares it, only what destroys it can be told. 
+  The voice of the intellect is a soft one, but it does not rest until it has gained a hearing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (928 days)
