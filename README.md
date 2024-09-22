@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once I planned to write a book of poems entirely about the things in my pocket. But I found it would be too long and the age of the great epics is past. 
+  The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (928 days)
