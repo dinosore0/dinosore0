@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let your life lightly dance on the edges of Time like dew on the tip of a leaf. 
+  Expectations are a form of first-class truth: If people believe it, it's true. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (928 days)
+## 🌟 Experiences (929 days)
 
 ### 🧮 Programming languages
 
