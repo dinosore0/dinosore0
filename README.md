@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
+  The generality of men are naturally apt to be swayed by fear rather than reverence, and to refrain from evil rather because of the punishment that it brings than because of its own foulness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (929 days)
