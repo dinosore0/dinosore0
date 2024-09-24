@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I love sleep. My life has the tendency to fall apart when I'm awake, you know? 
+  When a hundred men stand together, each of them loses his mind and gets another one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (930 days)
