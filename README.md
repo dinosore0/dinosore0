@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most splendid achievment of all is the constant striving to surpass yourself and to be worthy of your own approval. 
+  Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (930 days)
+## 🌟 Experiences (931 days)
 
 ### 🧮 Programming languages
 
