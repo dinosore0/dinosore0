@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is a person you will follow to a place you would not go by yourself. 
+  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (931 days)
+## 🌟 Experiences (932 days)
 
 ### 🧮 Programming languages
 
