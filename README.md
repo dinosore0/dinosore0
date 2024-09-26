@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It occurred to me that there was no difference between men, in intelligence or race, so profound as the difference between the sick and the well. 
+  The best way to find out if you can trust somebody is to trust them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (932 days)
