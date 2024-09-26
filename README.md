@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I’m going to go down getting my data. That’s the only reason I chase. It’s for the data. 
+  A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (932 days)
