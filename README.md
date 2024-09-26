@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You could rattle the stars. You could do anything, if you only dared. And deep down, you know it too, and that’s what scares you the most 
+  Real knowledge is to know the extent of one's ignorance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (932 days)
