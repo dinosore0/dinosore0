@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good artists are skilled, but great artists convey an immense depth of feeling through their expertise. 
+  The supreme art of war is to subdue the enemy without fighting. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (933 days)
