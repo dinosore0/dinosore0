@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality. 
+  To have great poets, there must be great audiences. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (933 days)
