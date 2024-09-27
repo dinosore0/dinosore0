@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hold yourself responsible for a higher standard than anybody expects of you. Never excuse yourself. 
+  Try not to become a man of success, but rather try to become a man of value. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (933 days)
