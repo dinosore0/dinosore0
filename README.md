@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Babies don't need a vacation, but I still see them at the beach... it pisses me off! I'll go over to a little baby and say 'What are you doing here? You haven't worked a day in your life!' 
+  Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (933 days)
+## 🌟 Experiences (934 days)
 
 ### 🧮 Programming languages
 
