@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No passion in the world is equal to the passion to alter someone else's draft. 
+  The death of a beautiful woman, is unquestionably the most poetical topic in the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (935 days)
