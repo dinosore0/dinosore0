@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Young love is a flame very pretty, often very hot and fierce, but still only light and flickering. The love of the older and disciplined heart is as coals, deep-burning, unquenchable. 
+  For having lived long, I have experienced many instances of being obliged, by better information or fuller consideration, to change opinions, even on important subjects, which I once thought right but found to be otherwise. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (935 days)
