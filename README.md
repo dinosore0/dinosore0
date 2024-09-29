@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Exultest thou over the treasures thou dost possess, knowing they shall perish? Rejoicest thou in that thou rulest a span of earth, when the whole world, in the estimation of the people of Bahá, is worth as much as the black in the eye of a dead ant? 
+  There is a fountain of youth: it is your mind, your talents, the creativity you bring to your life and the lives of people you love. When you learn to tap this source, you will truly have defeated age. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (935 days)
