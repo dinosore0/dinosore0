@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You know, religion itself, Eastern and Western, is divisive and quarrelsome anyway. 
+  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (936 days)
