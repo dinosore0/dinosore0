@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
+  He who is not a good servant will not be a good master. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (937 days)
