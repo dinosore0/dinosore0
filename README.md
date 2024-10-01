@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You that would judge me, do not judge alone this book or that, come to this hallowed place where my friends' portraits hang and look thereon Ireland's history in their lineaments trace think where man's glory most begins and ends and say my glory was I had such friends. 
+  The beginning of knowledge is the discovery of something we do not understand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (937 days)
