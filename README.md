@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sound of a kiss is not so loud as that of a cannon, but its echo lasts a great deal longer. 
+  The happiness of one's own heart alone cannot satisfy the soul one must try to include, as necessary to one's own happiness, the happiness of others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (938 days)
