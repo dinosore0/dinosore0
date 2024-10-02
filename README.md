@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything you’ve ever wanted is on the other side of fear. — George Addair 
+  We sleep in separate rooms, we have dinner apart, we take separate vacations - we're doing everything we can to keep our marriage together. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (937 days)
+## 🌟 Experiences (938 days)
 
 ### 🧮 Programming languages
 
