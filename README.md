@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
+  Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (938 days)
