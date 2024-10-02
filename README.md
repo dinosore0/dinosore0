@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love. 
+  The sound of a kiss is not so loud as that of a cannon, but its echo lasts a great deal longer. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (938 days)
