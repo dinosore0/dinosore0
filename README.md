@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The happiness of one's own heart alone cannot satisfy the soul one must try to include, as necessary to one's own happiness, the happiness of others. 
+  Be thou the rainbow in the storms of life. The evening beam that smiles the clouds away, and tints tomorrow with prophetic ray. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (938 days)
