@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beauty of independence, departure, actions that rely on themselves. 
+  Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (940 days)
