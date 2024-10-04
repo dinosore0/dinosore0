@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world? 
+  You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (940 days)
