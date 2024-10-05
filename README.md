@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you know how to read, you have a complete education about life, then you know how to vote within a democracy. But if you don't know how to read, you don't know how to decide. That's the great thing about our country - we're a democracy of readers, and we should keep it that way. 
+  In the business world, the rearview mirror is always clearer than the windshield. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (940 days)
+## 🌟 Experiences (941 days)
 
 ### 🧮 Programming languages
 
