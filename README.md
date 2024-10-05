@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It’s not what you look at that matters, it’s what you see. 
+  A play should give you something to think about. When I see a play and understand it the first time, then I know it can't be much good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (941 days)
