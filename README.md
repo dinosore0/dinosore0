@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. 
+  The only way to have a friend is to be one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (942 days)
