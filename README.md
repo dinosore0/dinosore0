@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The key is to keep company only with people who uplift you, whose presence calls forth your best. 
+  A goal is not always meant to be reached, it often serves simply as something to aim at. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (942 days)
