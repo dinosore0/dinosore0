@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One can never consent to creep when one feels an impulse to soar. 
+  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (942 days)
