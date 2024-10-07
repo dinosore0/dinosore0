@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nobody need wait a single moment before starting to improve the world. 
+  Under all speech that is good for anything there lies a silence that is better, Silence is deep as Eternity speech is shallow as Time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (943 days)
