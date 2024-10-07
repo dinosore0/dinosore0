@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Under all speech that is good for anything there lies a silence that is better, Silence is deep as Eternity speech is shallow as Time. 
+  Chains of habit are too light to be felt until they are too heavy to be broken. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (943 days)
