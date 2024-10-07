@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Communism, like any other revealed religion, is largely made up of prophecies. 
+  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (943 days)
