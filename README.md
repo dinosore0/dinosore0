@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Magnus I am truely 
+  Surround yourself with the best people you can find, delegate authority, and don't interfere as long as the policy you've decided upon is being carried out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (943 days)
