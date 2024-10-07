@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the first of human qualities because it is the quality which guarantees the others. 
+  A goal is not always meant to be reached, it often serves simply as something to aim at. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (943 days)
