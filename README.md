@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life was always a matter of waiting for the right moment to act. 
+  No change of circumstances can repair a defect of character. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (943 days)
+## 🌟 Experiences (944 days)
 
 ### 🧮 Programming languages
 
