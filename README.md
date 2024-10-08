@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Were there no women, men might live like gods. 
+  Art is not merely an imitation of the reality of nature, but in truth a metaphysical supplement to the reality of nature, placed alongside thereof for its conquest. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (944 days)
