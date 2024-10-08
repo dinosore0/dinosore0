@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The game is won one play at a time. 
+  You can't make positive choices for the rest of your life without an environment that makes those choices easy, natural, and enjoyable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (944 days)
