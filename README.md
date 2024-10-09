@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the first of human qualities because it is the quality which guarantees the others. 
+  The conscious mind may be compared to a fountain playing in the sun and falling back into the great subterranean pool of subconscious from which it rises. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (945 days)
