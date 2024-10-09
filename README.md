@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Opportunities are usually disguised as hard work, so most people don't recognize them. 
+  The greatest way to live with honor in this world is to be what we pretend to be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (945 days)
