@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money. 
+  Motivation is the art of getting people to do what you want them to do because they want to do it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (946 days)
