@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care. 
+  If you've been playing poker for half an hour and you still don't know who the patsy is, you're the patsy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (946 days)
