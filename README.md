@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
+  Talent hits a target no one else can hit. Genius hits a target no one else can see. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (946 days)
