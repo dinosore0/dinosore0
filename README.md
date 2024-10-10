@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I’ve failed over and over again in my life. And that is why I succeed. 
+  Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (946 days)
