@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Making the simple complicated is commonplace; making the complicated simple, awesomely simple, that's creativity. 
+  First you take a drink, then the drink takes a drink, then the drink takes you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (947 days)
