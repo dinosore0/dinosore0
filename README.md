@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Rebellion without truth is like spring in a bleak, arid desert. 
+  There are more things in heaven and earth, Horatio,<br>Thank are dreamt of in your philosophy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (947 days)
