@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
+  I’m going to go down getting my data. That’s the only reason I chase. It’s for the data. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (948 days)
