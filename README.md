@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I forgot to shake hands and be friendly. It was an important lesson about leadership. 
+  He who is not everyday conquering some fear has not learned the secret of life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (948 days)
