@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Natural ability without education has more often raised a man to glory and virtue than education without natural ability. 
+  Bad programmers worry about the code. Good programmers worry about data structures and their relationships. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (948 days)
