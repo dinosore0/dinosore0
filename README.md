@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. 
+  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (948 days)
