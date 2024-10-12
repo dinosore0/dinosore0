@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is easier to find men who will volunteer to die, than to find those who are willing to endure pain with patience. 
+  Natural ability without education has more often raised a man to glory and virtue than education without natural ability. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (948 days)
