@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Like all great travellers, I have seen more than I remember, and remember more than I have seen. 
+  Just because something doesn't do what you planned it to do doesn't mean it's useless. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (948 days)
