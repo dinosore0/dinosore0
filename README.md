@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bird perched on a branch is never afraid of the branch breaking.  Her trust is in her wings. 
+  Some people think that doctors and nurses can put scrambled eggs back in the shell. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (949 days)
