@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My books are like water; those of the great geniuses are wine. Everybody drinks water. 
+  The superior man is distressed by the limitations of his ability he is not distressed by the fact that men do not recognize the ability that he has. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (949 days)
