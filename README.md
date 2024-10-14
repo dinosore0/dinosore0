@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
+  Darkness cannot drive out darkness only light can do that. Hate cannot drive out hate only love can do that. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (950 days)
