@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Matt is the most amazing human being that I have ever know. 
+  Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (949 days)
+## 🌟 Experiences (950 days)
 
 ### 🧮 Programming languages
 
