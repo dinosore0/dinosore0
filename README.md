@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. 
+  Design is a funny word. Some people think design means how it looks. But of course, if you dig deeper, it's really how it works. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (952 days)
