@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The 10,000 Hour Rule - All of us have some measure of greatness within us. But it has to be cultivated. It takes hours of hard work, usually about 10,000 hours, especially when one is young. 
+  Govern a great nation as you would cook a small fish. Do not overdo it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (952 days)
