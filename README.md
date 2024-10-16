@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Office politics are bloody-minded, but weak on content. 
+  God writes the Gospel not in the Bible alone, but also on trees, and in the flowers and clouds and stars. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (952 days)
