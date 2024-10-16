@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Design is a funny word. Some people think design means how it looks. But of course, if you dig deeper, it's really how it works. 
+  Old men are dangerous: it doesn't matter to them what is going to happen to the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (952 days)
