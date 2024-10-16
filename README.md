@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I miss one day of practice, I notice it. If I miss two days, the critics notice it. If I miss three days, the audience notices it. 
+  No b-----d ever won a war by dying for his country. He won it by making the other poor dumb b-----d die for his country. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (952 days)
