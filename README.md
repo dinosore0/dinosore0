@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I only wish that ordinary people had an unlimited capacity for doing harm then they might have an unlimited power for doing good. 
+  If I had more time, I would have written you a shorter letter. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (953 days)
