@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Choose a job you love, and you will never have to work a day in your life. 
+  Leadership is a privilege to better the lives of others. It is not an opportunity to satisfy personal greed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (953 days)
