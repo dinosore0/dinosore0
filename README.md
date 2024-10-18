@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be outspoken is easy when you do not wait to speak the complete truth. 
+  Live the life you've dreamed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (953 days)
+## 🌟 Experiences (954 days)
 
 ### 🧮 Programming languages
 
