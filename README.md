@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  An American monkey, after getting drunk on brandy, would never touch it again, and thus is much wiser than most men. 
+  You can't apply the rules of a club to people who are not members of that club. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (954 days)
