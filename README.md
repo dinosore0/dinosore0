@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bird perched on a branch is never afraid of the branch breaking.  Her trust is in her wings. 
+  Women who seek to be equal with men lack ambition. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (954 days)
