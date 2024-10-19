@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One of the secrets of life is that all that is really worth the doing is what we do for others. 
+  What is moral is what you feel good after, and what is immoral is what you feel bad after. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (955 days)
