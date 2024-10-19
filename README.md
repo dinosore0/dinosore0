@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A healthy attitude is contagious but don't wait to catch it from others. Be a carrier. 
+  You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (955 days)
