@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me and I forget; teach me and I may remember; involve me and I learn. 
+  We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (955 days)
