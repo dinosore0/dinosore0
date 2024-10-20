@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Old men are dangerous: it doesn't matter to them what is going to happen to the world. 
+  It is the strange fate of man, that even in the greatest of evils the fear of the worst continues to haunt him. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (956 days)
