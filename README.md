@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To describe my mother would be to write about a hurricane in its perfect power. 
+  The best way to create the future is to: Act. Learn. Build. Repeat. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (956 days)
