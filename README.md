@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People really don’t like to hear success explained away as luck — especially successful people. 
+  If you wish to make an apple pie from scratch, you must first create the universe. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (957 days)
