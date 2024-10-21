@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
+  It appears to be a law that you cannot have a deep sympathy with both man and nature. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (957 days)
