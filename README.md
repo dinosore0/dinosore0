@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “A room without books is like a body without a soul.” 
+  In this journey you must become a lover of your enemies, so that the purity of your love may attract the hearts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (956 days)
+## 🌟 Experiences (957 days)
 
 ### 🧮 Programming languages
 
