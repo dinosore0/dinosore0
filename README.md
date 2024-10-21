@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Advertising has us chasing cars and clothes, working jobs we hate so we can buy s--t we don't need. 
+  He that does good to another does good also to himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (957 days)
