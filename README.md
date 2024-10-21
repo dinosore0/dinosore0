@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man loves the meat in his youth that he cannot endure in his age. 
+  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (957 days)
