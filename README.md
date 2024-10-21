@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you suffer, thank God! It is a sure sign that you are alive. 
+  The tent is a symbol of being transient.  It's a symbol of being at home, wherever you are. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (957 days)
