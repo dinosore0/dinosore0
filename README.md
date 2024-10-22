@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. 
+  In a disordered mind, as in a disordered body, soundness of health is impossible. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (958 days)
