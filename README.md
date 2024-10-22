@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the greatest of all virtues, because if you haven't courage, you may not have an opportunity to use any of the others. 
+  Failure is simply an opportunity to begin again, this time more intelligently. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (958 days)
