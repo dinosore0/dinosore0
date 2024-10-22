@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him. 
+  Maturity: Be able to stick with a job until it is finished. Be able to bear an injustice without having to get even. Be able to carry money without spending it. Do your duty without being supervised. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (958 days)
