@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True art is characterized by an irresistible urge in the creative artist. 
+  Priests are not men of the world it is not intended that they should be and a University training is the one best adapted to prevent their becoming so. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (959 days)
