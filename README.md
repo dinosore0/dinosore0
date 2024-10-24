@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If all the economists were laid end to end, they'd never reach a conclusion. 
+  The only certain freedom's in departure. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (959 days)
+## 🌟 Experiences (960 days)
 
 ### 🧮 Programming languages
 
