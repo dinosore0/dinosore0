@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The art of art, the glory of expression and the sunshine of the light of letters, is simplicity. 
+  Doing well is the result of doing good. That's what capitalism is all about. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (960 days)
