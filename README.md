@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As the poet said, 'Only God can make a tree,' probably because it's so hard to figure out how to get the bark on. 
+  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (961 days)
