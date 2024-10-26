@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the world's a stage, and all the men and women merely players: they have their exits and their entrances and one man in his time plays many parts, his acts being seven ages. 
+  I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (962 days)
