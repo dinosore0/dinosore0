@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't you stay at home of evenings? Don't you love a cushioned seat in a corner, by the fireside, with your slippers on your feet? 
+  He that has a great nose, thinks everybody is speaking of it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (962 days)
