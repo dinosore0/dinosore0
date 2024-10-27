@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He that has a great nose, thinks everybody is speaking of it. 
+  I am not superstitious, but I am a little stitious. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (962 days)
+## 🌟 Experiences (963 days)
 
 ### 🧮 Programming languages
 
