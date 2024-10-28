@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Just because something doesn't do what you planned it to do doesn't mean it's useless. 
+  Most people wouldn't know music if it came up and bit them on the a-s. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (964 days)
