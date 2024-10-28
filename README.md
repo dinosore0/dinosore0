@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you have no respect for your own values how can you be worthy of respect from others. 
+  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (964 days)
