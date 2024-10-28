@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
+  If you’ve never met the devil on the road of life, it's because you’re both heading in the same direction. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (964 days)
