@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
+  Success is dangerous. One begins to copy oneself, and to copy oneself is more dangerous than to copy others. It leads to sterility. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (965 days)
