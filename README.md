@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge comes by taking things apart, but wisdom comes by putting things together. 
+  Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (965 days)
