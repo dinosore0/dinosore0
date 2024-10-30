@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not enough to know your craft - you have to have feeling. Science is all very well, but for us imagination is worth far more. 
+  There are two ways to think about what money buys. There's the standard of living, which can be measured in dollars, and there's the quality of your life, which can't be measured at all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (966 days)
