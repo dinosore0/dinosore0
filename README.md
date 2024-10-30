@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I challenge you to make your life a masterpiece. I challenge you to join the ranks of those people who live what they teach, who walk their talk. 
+  It's not how much you make, it's how much you keep. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (966 days)
