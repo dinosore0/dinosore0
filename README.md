@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Bashfulness is an ornament to youth, but a reproach to old age. 
+  Let everyone try and find that as a result of daily prayer he adds something new to his life, something with which nothing can be compared. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (967 days)
