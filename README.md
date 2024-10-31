@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In my afternoon walk I would fain forget all my morning occupations and my obligations to society. 
+  I am not a vegetarian because I love animals; I am a vegetarian because I hate plants. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (966 days)
+## 🌟 Experiences (967 days)
 
 ### 🧮 Programming languages
 
