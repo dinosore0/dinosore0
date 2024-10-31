@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Personally, I would be delighted if there were a life after death, especially if it permitted me to continue to learn about this world and others, if it gave me a chance to discover how history turns out. 
+  A man is relieved and gay when he has put his heart into his work and done his best but what he has said or done otherwise shall give him no peace. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (967 days)
