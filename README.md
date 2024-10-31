@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When a hundred men stand together, each of them loses his mind and gets another one. 
+  Ever has it been that love knows not its own depth until the hour of separation. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (967 days)
