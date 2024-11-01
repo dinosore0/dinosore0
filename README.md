@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Complainers change their complaints, but they never reduce the amount of time spent in complaining. 
+  Loss is nothing else but change, and change is Nature's delight. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (968 days)
