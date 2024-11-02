@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you live a life of make-believe, your life isn't worth anything until you do something that does challenge your reality. And to me, sailing the open ocean is a real challenge, because it's life or death. 
+  The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (969 days)
