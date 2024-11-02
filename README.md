@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I miss one day of practice, I notice it. If I miss two days, the critics notice it. If I miss three days, the audience notices it. 
+  The way you think, the way you behave, the way you eat, can influence your life by 30 to 50 years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (969 days)
