@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're doing something you love, an hour feels like 5 minutes.  If you are doing something that doesn't resonate with your spirit, 5 minutes feels like an hour. 
+  Freedom makes a huge requirement of every human being. With freedom comes responsibility. For the person who is unwilling to grow up, the person who does not want to carry is own weight, this is a frightening prospect. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (969 days)
