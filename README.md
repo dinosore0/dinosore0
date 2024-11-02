@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the practice of tolerance, one's enemy is the best teacher. 
+  And the first rude sketch that the world had seen was joy to his mighty heart, till the Devil whispered behind the leaves 'It's pretty, but is it Art?' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (969 days)
