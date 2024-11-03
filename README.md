@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every time I see an adult on a bicycle, I no longer despair for the future of the human race. 
+  The hardest thing to learn in life is which bridge to cross and which to burn. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (970 days)
