@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want. 
+  We are the only real aristocracy in the world: the aristocracy of money. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (970 days)
