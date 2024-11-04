@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You are what you do, not what you say you'll do. 
+  Truth is the silliest thing under the sun. Try to get a living by the Truth and go to the Soup Societies. Heavens! Let any clergyman try to preach the Truth from its very stronghold, the pulpit, and they would ride him out of his church on his own pulpit bannister. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (971 days)
