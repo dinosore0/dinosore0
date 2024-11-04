@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are the only real aristocracy in the world: the aristocracy of money. 
+  Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (970 days)
+## 🌟 Experiences (971 days)
 
 ### 🧮 Programming languages
 
