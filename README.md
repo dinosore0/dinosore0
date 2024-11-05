@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is better to be violent, if there is violence in our hearts, than to put on the cloak of nonviolence to cover impotence. 
+  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (972 days)
