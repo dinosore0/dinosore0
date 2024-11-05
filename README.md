@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You better cut the pizza in four pieces because I'm not hungry enough to eat six. 
+  He is richest who is content with the least, for content is the wealth of nature. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (972 days)
