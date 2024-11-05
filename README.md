@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
+  Let every eye negotiate for itself and trust no agent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (972 days)
