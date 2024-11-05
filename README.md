@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Marriage is a wonderful institution, but who would want to live in an institution? 
+  The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (972 days)
