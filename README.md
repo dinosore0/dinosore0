@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I’ve learned anything from video games, it is that when you meet enemies, it means that you’re going in the right direction. 
+  Elections are won by men and women chiefly because most people vote against somebody rather than for somebody. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (973 days)
