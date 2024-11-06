@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No one can arrive from being talented alone, work transforms talent into genius. 
+  Obstacles are those frightful things you see when you take your eyes off your goal. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (973 days)
