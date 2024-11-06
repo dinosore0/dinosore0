@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A wall is a hell of a lot better than a war. 
+  Do what makes u feel alive never belive anyone is for u cuz in the end u stand alone 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (973 days)
