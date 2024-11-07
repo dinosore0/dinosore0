@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Even if you are on the right track, you’ll get run over if you just sit there. 
+  Measuring programming progress by lines of code is like measuring aircraft building progress by weight. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (974 days)
