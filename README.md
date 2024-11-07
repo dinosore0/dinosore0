@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The opposite of a fact is falsehood, but the opposite of one profound truth may very well be another profound truth. 
+  I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (974 days)
