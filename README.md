@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One is never over-dressed or underdressed with a Little Black Dress. 
+  Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (974 days)
+## 🌟 Experiences (975 days)
 
 ### 🧮 Programming languages
 
