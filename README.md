@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
+  You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (975 days)
