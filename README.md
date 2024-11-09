@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
+  It is absurd to divide people into good and bad. People are either charming or tedious. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (976 days)
