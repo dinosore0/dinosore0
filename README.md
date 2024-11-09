@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is absurd to divide people into good and bad. People are either charming or tedious. 
+  In a disordered mind, as in a disordered body, soundness of health is impossible. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (976 days)
