@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every day we should hear at least one little song, read one good poem, see one exquisite picture, and, if possible, speak a few sensible words. 
+  The best weapon against an enemy is another enemy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (977 days)
