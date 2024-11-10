@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest way to live with honor in this world is to be what we pretend to be. 
+  It is, generally, in the season of prosperity that men discover their real temper, principles, and designs. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (977 days)
