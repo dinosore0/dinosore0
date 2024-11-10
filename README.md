@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take care to sell your horse before he dies. The art of life is passing losses on. 
+  We sleep in separate rooms, we have dinner apart, we take separate vacations - we're doing everything we can to keep our marriage together. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (977 days)
