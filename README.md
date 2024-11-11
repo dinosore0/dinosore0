@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Kindness is a mark of faith, and whoever has no kindness has not faith. 
+  Never let your schooling interfere with your education. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (977 days)
+## 🌟 Experiences (978 days)
 
 ### 🧮 Programming languages
 
