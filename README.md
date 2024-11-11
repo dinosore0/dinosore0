@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Build product expert wonder read body. Cost service wait.<br>Kind now hair different positive language act.<br>Truth material certainly west. Source how all us eye. 
+  The relationship to one's fellow man is the relationship of prayer, the relationship to oneself is the relationship of striving; it is from prayer that one draws the strength for one's striving. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (978 days)
