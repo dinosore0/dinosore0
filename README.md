@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nurture your minds with great thoughts. To believe in the heroic makes heroes. 
+  Clouds come floating into my life, no longer to carry rain or usher storm, but to add color to my sunset sky. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (979 days)
