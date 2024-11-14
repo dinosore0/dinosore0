@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are here to change. We are here to grow, develop and unfold. We are progressive beings that have infinite capacity. 
+  Success isn't a result of spontaneous combustion. You must set yourself on fire. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (981 days)
