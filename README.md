@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know that I am intelligent, because I know that I know nothing. 
+  There is no kind of dishonesty into which otherwise good people more easily and frequently fall than that of defrauding the government. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (981 days)
