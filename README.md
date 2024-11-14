@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you realize that all things change, there is nothing you will try to hold on to. If you are not afraid of dying, there is nothing you cannot achieve. 
+  Either you think, or else others have to think for you and take power from you, pervert and discipline your natural tastes, civilize and sterilize you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (981 days)
