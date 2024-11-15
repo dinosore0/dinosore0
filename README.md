@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only one thing is impossible for God: To find any sense in any copyright law on the planet. 
+  Success is full of promise till one gets it, and then it seems like a nest from which the bird has flown. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (982 days)
