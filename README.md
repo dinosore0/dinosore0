@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't limit a child to your own learning, for he was born in another time. 
+  The taxpayer - that's someone who works for the federal government but doesn't have to take the civil service examination. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (982 days)
