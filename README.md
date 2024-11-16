@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It appears to be a law that you cannot have a deep sympathy with both man and nature. 
+  Evil is committed without effort, naturally, fatally goodness is always the product of some art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (983 days)
