@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't study comedy; it's within you. It's a personality. My humor is an attitude. 
+  Real difficulties can be overcome; it is only the imaginary ones that are unconquerable 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (983 days)
