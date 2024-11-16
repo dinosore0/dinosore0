@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the end, it's not the years in your life that count. It's the life in your years. 
+  Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (982 days)
+## 🌟 Experiences (983 days)
 
 ### 🧮 Programming languages
 
