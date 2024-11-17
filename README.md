@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's hard to be humble, when you're as great as I am. 
+  It is generally recognised that women are better than men at languages, personal relations and multi-tasking, but less good at map-reading and spatial awareness. It is therefore not unreasonable to suppose that women might be less good at mathematics and physics. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (984 days)
