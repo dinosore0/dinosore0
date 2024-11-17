@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs. 
+  Let us never negotiate out of fear. But let us never fear to negotiate. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (984 days)
