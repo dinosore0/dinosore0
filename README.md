@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness. 
+  It’s a funny thing about life; if you refuse to accept anything but the best, you very often get it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (984 days)
