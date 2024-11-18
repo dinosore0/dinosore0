@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Kindness is a mark of faith, and whoever has no kindness has not faith. 
+  I’ve failed over and over again in my life. And that is why I succeed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (985 days)
