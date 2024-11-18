@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faithless is he that says farewell when the road darkens. 
+  At his best, man is the noblest of all animals; separated from law and justice, he is the worst. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (985 days)
