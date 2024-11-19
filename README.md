@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We see past time in a telescope and present time in a microscope. Hence the apparent enormities of the present. 
+  Let your life lightly dance on the edges of Time like dew on the tip of a leaf. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (985 days)
+## 🌟 Experiences (986 days)
 
 ### 🧮 Programming languages
 
