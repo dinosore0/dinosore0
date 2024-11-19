@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world needs dreamers and the world needs doers. But above all, the world needs dreamers who do. 
+  Work Is the Signal, Email Is the Noise 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (986 days)
