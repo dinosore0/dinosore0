@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty. 
+  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (986 days)
