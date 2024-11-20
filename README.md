@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True terror is to wake up one morning and discover that your high school class is running the country. 
+  Ladies, if you want to know the way to my heart... good spelling and good grammar, good punctuation, capitalize only where you are supposed to capitalize, it's done. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (987 days)
