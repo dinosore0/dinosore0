@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. 
+  Some people are so much sunshine to the square inch. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (987 days)
