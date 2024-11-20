@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Animals that we eat are raised for food in the most economical way possible, and the serious food producers do it in the most humane way possible. I think anyone who is a carnivore needs to understand that meat does not originally come in these neat little packages. 
+  It were a real increase of human happiness, could all young men from the age of nineteen be covered under barrels, or rendered otherwise invisible and there left to follow their lawful studies and callings, till they emerged, sadder and wiser, at the age of twenty-five. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (987 days)
