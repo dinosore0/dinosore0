@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Campaign behavior for wives: Always be on time. Do as little talking as humanly possible. Lean back in the parade car so everybody can see the president. 
+  In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (988 days)
