@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Failure seldom stops you. What stops you is the fear of failure. 
+  Sometimes you recognize that there is a category of human experience that has not been identified but everyone knows about it. That is when I find a term to describe it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (988 days)
