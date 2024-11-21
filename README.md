@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I’ve learned anything from video games, it is that when you meet enemies, it means that you’re going in the right direction. 
+  Expectations are a form of first-class truth: If people believe it, it's true. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (988 days)
