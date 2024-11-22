@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Holding onto anger is like drinking poison and expecting the other person to die. 
+  One can not reflect in streaming water. Only those who know internal peace can give it to others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (989 days)
