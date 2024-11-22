@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What it lies in our power to do, it lies in our power not to do. 
+  Ever tried. Ever failed. No matter. Try again. Fail again. Fail better. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (989 days)
