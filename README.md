@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best scientist is open to experience and begins with romance - the idea that anything is possible. 
+  I am only an average man but, by George, I work harder at it than the average man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (989 days)
