@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Management is nothing more than motivating other people. 
+  I love deadlines. I like the whooshing sound they make as they fly by. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (988 days)
+## 🌟 Experiences (989 days)
 
 ### 🧮 Programming languages
 
