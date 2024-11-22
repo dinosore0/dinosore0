@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One can not reflect in streaming water. Only those who know internal peace can give it to others. 
+  Happiness is secured through virtue; it is a good attained by man's own will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (989 days)
