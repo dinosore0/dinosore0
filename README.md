@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are trivial truths and the great truths. The opposite of a trivial truth is plainly false. The opposite of a great truth is also true. 
+  Half the lies they tell about me aren't true. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (990 days)
