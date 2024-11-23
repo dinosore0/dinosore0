@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The virtues, like the Muses, are always seen in groups. A good principle was never found solitary in any breast. 
+  The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (990 days)
