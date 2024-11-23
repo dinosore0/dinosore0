@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take control of your consistent emotions and begin to consciously and deliberately reshape your daily experience of life. 
+  Our scientific power has outrun our spiritual power. We have guided missiles and misguided men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (990 days)
