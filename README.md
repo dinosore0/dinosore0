@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you make any money, the government shoves you in the creek once a year with it in your pockets, and all that don't get wet you can keep. 
+  A dog is the only thing on earth that loves you more than you love yourself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (990 days)
