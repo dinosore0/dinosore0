@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is knowing what not to fear. 
+  When all candles be out, all cats be grey. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (989 days)
+## 🌟 Experiences (990 days)
 
 ### 🧮 Programming languages
 
