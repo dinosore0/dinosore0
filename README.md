@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Humility is a great quality of leadership which derives respect and not just fear or hatred. 
+  If Microsoft ever does applications for Linux it means I've won. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (990 days)
