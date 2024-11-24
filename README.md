@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Seeing a murder on television can … help work off one’s antagonisms. And if you haven’t any antagonisms, the commercials will give you some. 
+  Holding onto anger is like drinking poison and expecting the other person to die. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (991 days)
