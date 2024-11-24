@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am a soul. I know well that what I shall render up to the grave is not myself. That which is myself will go elsewhere. Earth, thou art not my abyss! 
+  If you think you can do a thing or think you can't do a thing, you're right. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (991 days)
