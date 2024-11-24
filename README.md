@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Seize thy chance, for it will come to thee no more. 
+  I am a soul. I know well that what I shall render up to the grave is not myself. That which is myself will go elsewhere. Earth, thou art not my abyss! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (991 days)
