@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  These are thoughts that we can't think. 
+  The most useless are those who never change through the years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (991 days)
+## 🌟 Experiences (992 days)
 
 ### 🧮 Programming languages
 
