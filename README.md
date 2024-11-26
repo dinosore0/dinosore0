@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those whom we can love, we can hate to others we are indifferent. 
+  Freedom is the right to tell people what they do not want to hear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (992 days)
+## 🌟 Experiences (993 days)
 
 ### 🧮 Programming languages
 
