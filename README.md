@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fortune, which has a great deal of power in other matters but especially in war, can bring about great changes in a situation through very slight forces. 
+  Tact is the ability to describe others as they see themselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (993 days)
