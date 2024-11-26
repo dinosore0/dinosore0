@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'd rather be hated for who I am, than loved for who I am not. 
+  If anyone is crazy enough to want to kill a president of the United States, he can do it. All he must be prepared to do is give his life for the president's. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (993 days)
