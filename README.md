@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is one of the beautiful compensations in this life that no one can sincerely try to help another without helping himself. 
+  I thank God for my handicaps, for through them I have found myself, my work and my God. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (993 days)
