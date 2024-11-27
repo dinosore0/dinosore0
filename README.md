@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To lengthen thy life, lessen thy meals. 
+  It always seems impossible until it is done. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (994 days)
