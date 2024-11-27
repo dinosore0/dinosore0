@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Television brought the brutality of war into the comfort of the living room. Vietnam was lost in the living rooms of America - not on the battlefields of Vietnam. 
+  Every day we should hear at least one little song, read one good poem, see one exquisite picture, and, if possible, speak a few sensible words. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (994 days)
