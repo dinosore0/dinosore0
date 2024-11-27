@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is no kind of dishonesty into which otherwise good people more easily and frequently fall than that of defrauding the government. 
+  Experience is a revelation in the light of which we renounce our errors of youth for those of age. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (994 days)
