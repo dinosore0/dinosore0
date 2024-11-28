@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only way to have a friend is to be one. 
+  If you're more interested in what you have achieved, or what you're financial position enables you to do than that thing that got those things, you're screwed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (995 days)
