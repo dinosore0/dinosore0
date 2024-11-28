@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is in true beauty, as in courage, something which narrow souls cannot dare to admire. 
+  Even death is not to be feared by one who has lived wisely. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (994 days)
+## 🌟 Experiences (995 days)
 
 ### 🧮 Programming languages
 
