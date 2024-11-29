@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our past is not the thing that matters so much in this world as what we intend to do with our future. 
+  I arise in the morning torn between a desire to improve the world and a desire to enjoy the world. This makes it hard to plan the day. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (996 days)
