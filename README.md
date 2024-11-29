@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A person with a flexible schedule and average resources will be happier than a rich person who has everything except a flexible schedule. 
+  Compassion and happiness are not a sign of weakness but a sign of strength. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (996 days)
