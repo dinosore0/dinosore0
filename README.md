@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The means of defense against foreign danger historically have become the instruments of tyranny at home. 
+  Animals are such agreeable friends - they ask no questions they pass no criticisms. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (996 days)
