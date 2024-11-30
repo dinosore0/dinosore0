@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every young man would do well to remember that all successful business stands on the foundation of morality. 
+  Time, which alone makes the reputation of men, ends by making their defects respectable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (997 days)
