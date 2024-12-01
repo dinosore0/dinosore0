@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God appoints our graces to be nurses to other men's weaknesses. 
+  When people gain the right knowledge, in such a way that they understand it completely, and then have the opportunity for effective instruction to apply what they comprehend then like magic, they can see the fruits of their efforts in the form of changes that serve us feedback in their lives. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (998 days)
