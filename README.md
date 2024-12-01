@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I was young, I observed that nine out of ten things I did were failures. So I did ten times more work. 
+  My size has helped make me an amazing performer too. The cliche of the Funny Fat Friend: I absolutely was that character - I am that character... It's a complicated bag of tools I acquired, and I've put them all to work onstage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (998 days)
