@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the greatest of all virtues, because if you haven't courage, you may not have an opportunity to use any of the others. 
+  The secret of success in life is for a man to be ready for his opportunity when it comes. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (998 days)
