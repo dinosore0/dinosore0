@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same. 
+  O Death, rock me asleep, bring me to quiet rest, let pass my weary guiltless ghost out of my careful breast. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (998 days)
