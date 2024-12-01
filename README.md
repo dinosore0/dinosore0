@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To know oneself is to study oneself in action with another person. 
+  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (998 days)
