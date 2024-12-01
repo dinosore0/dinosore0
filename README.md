@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing external to you has any power over you. 
+  The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (997 days)
+## 🌟 Experiences (998 days)
 
 ### 🧮 Programming languages
 
