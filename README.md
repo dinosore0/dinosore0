@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have wasted History like a bunch of drunks shooting dice back in the men's crapper of the local bar. 
+  Whether you think you can or think you can't – you are right. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (999 days)
