@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many of life's failures are people who did not realize how close they were to success when they gave up. 
+  Analysis does not set out to make pathological reactions impossible, but to give the patient's ego freedom to decide one way or another. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (999 days)
