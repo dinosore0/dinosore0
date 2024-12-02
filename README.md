@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When art dresses in worn-out material it is most easily recognized as art. 
+  I do not think there is any other quality so essential to success, of any kind, as perseverance. It overcomes almost everything. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (999 days)
