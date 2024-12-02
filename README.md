@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Greater than the tread of mighty armies is an idea whose time has come. 
+  God is a thought who makes crooked all that is straight. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (998 days)
+## 🌟 Experiences (999 days)
 
 ### 🧮 Programming languages
 
