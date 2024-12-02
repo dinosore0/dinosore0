@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People disparage knowing and the intellectual life, and urge doing. I am content with knowing, if only I could know. 
+  Faced with what is right, to leave it undone shows a lack of courage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (999 days)
