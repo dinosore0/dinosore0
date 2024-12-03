@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As we advance in life it becomes more and more difficult, but in fighting the difficulties the inmost strength of the heart is developed. 
+  My best friend is the one who brings out the best in me. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1000 days)
