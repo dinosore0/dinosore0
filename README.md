@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're doing something you love, an hour feels like 5 minutes.  If you are doing something that doesn't resonate with your spirit, 5 minutes feels like an hour. 
+  All women have a perception much more developed than men. So all women somehow, being repressed for so many millennia, they ended up by developing this sixth sense and contemplation and love. And this is something that we have a hard time to accept as part of our society. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (999 days)
+## 🌟 Experiences (1000 days)
 
 ### 🧮 Programming languages
 
