@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Enthusiasm is the mother of effort, and without it nothing great was ever achieved. 
+  One is loved because one is loved. No reason is needed for loving. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1000 days)
