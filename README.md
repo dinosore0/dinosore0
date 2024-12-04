@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are continually faced by great opportunities brilliantly disguised as insoluble problems. 
+  To describe my mother would be to write about a hurricane in its perfect power. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1001 days)
