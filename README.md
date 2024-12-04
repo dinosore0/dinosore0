@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The diversity in the faculties of men, from which the rights of property originate, is not less an insuperable obstacle to an uniformity of interests. The protection of these faculties is the first object of government. 
+  To be approved of God alone should be one's aim. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1001 days)
