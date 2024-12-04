@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Language is a city to the building of which every human being brought a stone. 
+  Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1001 days)
