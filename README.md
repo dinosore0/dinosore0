@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you pursue good with labor, the labor passes away but the good remains if you pursue evil with pleasure, the pleasure passes away and the evil remains. 
+  Life is an exciting business, and most exciting when it is lived for others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1002 days)
