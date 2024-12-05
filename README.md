@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No b-----d ever won a war by dying for his country. He won it by making the other poor dumb b-----d die for his country. 
+  Faith certainly tells us what the senses do not, but not the contrary of what they see it is above, not against them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1002 days)
