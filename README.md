@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Patriotism is not obedience to government.  Patriotism is obedience to the principals for which government is supposed to stand. 
+  The biggest disease this day and age is that of people feeling unloved. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1002 days)
