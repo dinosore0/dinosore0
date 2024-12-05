@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The rewards of virtue alone abide secure. 
+  There are many people who feel that it is useless and futile to continue talking about peace and non-violence against a government whose only reply is savage attacks on an unarmed and defenceless people. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1002 days)
