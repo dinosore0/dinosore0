@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The biggest disease this day and age is that of people feeling unloved. 
+  Governing a great nation is like cooking a small fish - too much handling will spoil it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1002 days)
