@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fall in love with the process and the results will come. 
+  Many people take no care of their money till they come nearly to the end of it, and others do just the same with their time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1001 days)
+## 🌟 Experiences (1002 days)
 
 ### 🧮 Programming languages
 
