@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A life is like a garden. Perfect moments can be had, but not preserved, except in memory. 
+  If success is a habit, it is a hard one to acquire. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1002 days)
