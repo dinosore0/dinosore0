@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People who don't take risks generally make about two big mistakes a year. People who do take risks generally make about two big mistakes a year. 
+  The ideal man bears the accidents of life with dignity and grace, making the best of circumstances. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1003 days)
