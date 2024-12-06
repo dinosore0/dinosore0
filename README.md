@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whenever you find yourself on the side of the majority, it is time to pause and reflect. 
+  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1003 days)
