@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
+  Don't spend time beating on a wall, hoping to transform it into a door. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1003 days)
