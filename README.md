@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In war as in life, it is often necessary when some cherished scheme has failed, to take up the best alternative open, and if so, it is folly not to work for it with all your might. 
+  It's hard to beat a person who never gives up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1003 days)
