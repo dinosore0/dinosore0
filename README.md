@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In God we trust. All others must bring data. 
+  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1003 days)
