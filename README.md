@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
+  Life's most persistent and urgent question is, 'What are you doing for others?' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1003 days)
