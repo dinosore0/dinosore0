@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not only does God play dice, but... he sometimes throws them where they cannot be seen. 
+  Without knowing what I am and why I am here, life is impossible. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1002 days)
+## 🌟 Experiences (1003 days)
 
 ### 🧮 Programming languages
 
