@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many of life's failures are people who did not realize how close they were to success when they gave up. 
+  Women must tell men always that they are the strong ones. They are the big, the strong, the wonderful. In truth, women are the strong ones. It is just my opinion, I am not a professor. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1004 days)
