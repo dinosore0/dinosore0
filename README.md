@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have no fear that the result of our experiment will be that men may be trusted to govern themselves without a master. 
+  Marriage is an alliance entered into by a man who can't sleep with the window shut, and a woman who can't sleep with the window open. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1004 days)
