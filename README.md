@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For the introduction of a new kind of music must be shunned as imperiling the whole state since styles of music are never disturbed without affecting the most important political institutions. 
+  If you have no respect for your own values how can you be worthy of respect from others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1004 days)
