@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If someone commits an error and wrong toward you, you must instantly forgive him. Do not complain of others. Refrain from reprimanding them, and if you wish to give admonition or advice, let it be offered in such a way that it will not burden the bearer 
+  I cannot believe in a God who wants to be praised all the time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1004 days)
