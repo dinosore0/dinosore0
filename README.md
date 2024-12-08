@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our scientific power has outrun our spiritual power. We have guided missiles and misguided men. 
+  Profit in business comes from repeat customers, customers that boast about your project or service, and that bring friends with them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1005 days)
