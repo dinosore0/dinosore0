@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whenever the people are well-informed, they can be trusted with their own government. 
+  Nguồn mở là thứ tồn tại duy nhất. Mọi nguồn khác có hay không có, không quan trọng. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1005 days)
