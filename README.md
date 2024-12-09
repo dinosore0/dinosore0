@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Death, therefore, the most awful of evils, is nothing to us, seeing that, when we are, death is not come, and, when death is come, we are not. 
+  Perhaps this realization ought to prompt us to reconsider the alternative that God is simply timeless without creation and temporal subsequent to creation. Detractors of this position simply assume that if God’s life lacks earlier and later parts, then it has no phases. But why could there not be two phases of God’s life, one timeless and one temporal, which are not related to each other as earlier and later? Critics have perhaps too quickly assumed that if any phase of God’s life is timeless, the whole must be timeless. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1006 days)
