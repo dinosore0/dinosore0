@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You don't have to deserve your mother's love. You have to deserve your father's. 
+  If I could explain it to the average person, I wouldn't have been worth the Nobel Prize. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1006 days)
