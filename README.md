@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
+  Death leaves a heartache no one can heal, love leaves a memory no one can steal. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1006 days)
