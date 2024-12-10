@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Formal education will make you a living; self-education will make you a fortune. 
+  God is a thought who makes crooked all that is straight. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1006 days)
+## 🌟 Experiences (1007 days)
 
 ### 🧮 Programming languages
 
