@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you’ve never met the devil on the road of life, it's because you’re both heading in the same direction. 
+  It is not history which uses men as a means of achieving - as if it were an individual person - its own ends. History is nothing but the activity of men in pursuit of their ends. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1007 days)
