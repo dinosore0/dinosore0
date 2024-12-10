@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life can only be understood backwards; but it must be lived forwards. 
+  The line between failure and success is so fine that we scarcely know when we pass it: so fine that we are often on the line and do not know it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1007 days)
