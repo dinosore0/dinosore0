@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are only two tragedies in life: one is not getting what one wants, and the other is getting it. 
+  A vow is a purely religious act which cannot be taken in a fit of passion. It can be taken only with a mind purified and composed and with God as witness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1007 days)
