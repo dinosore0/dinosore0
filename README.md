@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Back off man, I'm a scientist. 
+  The only time you really live fully is from thirty to sixty. The young are slaves to dreams the old servants of regrets. Only the middle-aged have all their five senses in the keeping of their wits. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1007 days)
