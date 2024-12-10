@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
+  I thank God for my handicaps, for through them I have found myself, my work and my God. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1007 days)
