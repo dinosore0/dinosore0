@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In this journey you must become a lover of your enemies, so that the purity of your love may attract the hearts. 
+  Life is the nothing without best, you only need resttestuser0001 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1008 days)
