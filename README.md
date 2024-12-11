@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  body152711 
+  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1007 days)
+## 🌟 Experiences (1008 days)
 
 ### 🧮 Programming languages
 
