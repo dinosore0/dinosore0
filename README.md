@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Women have simple tastes. They get pleasure out of the conversation of children in arms and men in love. 
+  Many of life's failures are people who did not realize how close they were to success when they gave up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1008 days)
