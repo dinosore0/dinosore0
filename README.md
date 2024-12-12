@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
+  The language of excitement is at best picturesque; merely. You must be calm before you can utter oracles. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1009 days)
