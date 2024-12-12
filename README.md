@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are worse crimes than burning books. One of them is not reading them. 
+  When power leads man toward arrogance, poetry reminds him of his limitations. When power narrows the area of man's concern, poetry reminds him of the richness and diversity of existence. When power corrupts, poetry cleanses. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1009 days)
