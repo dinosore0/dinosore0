@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Television brought the brutality of war into the comfort of the living room. Vietnam was lost in the living rooms of America - not on the battlefields of Vietnam. 
+  Company cultures are like country cultures. Never try to change one. Try, instead, to work with what you've got. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1010 days)
