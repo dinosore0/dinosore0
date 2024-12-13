@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love. 
+  Waste no more time arguing about what a good man should be. Be one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1010 days)
