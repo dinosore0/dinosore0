@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A fool's brain digests philosophy into folly, science into superstition, and art into pedantry. Hence University education. 
+  Treat your men as you would your own beloved sons. And they will follow you into the deepest valley. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1010 days)
