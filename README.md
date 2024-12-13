@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Patriotism is your conviction that this country is superior to all others because you were born in it. 
+  Yesterday is but today's memory, and tomorrow is today's dream. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1010 days)
