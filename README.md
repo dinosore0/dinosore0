@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The traveler sees what he sees, the tourist sees what he has come to see. 
+  Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1010 days)
