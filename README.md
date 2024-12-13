@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our character is not so much the product of race and heredity as of those circumstances by which nature forms our habits, by which we are nurtured and live. 
+  Television brought the brutality of war into the comfort of the living room. Vietnam was lost in the living rooms of America - not on the battlefields of Vietnam. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1010 days)
