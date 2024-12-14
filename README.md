@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Decorate your home. It gives the illusion that your life is more interesting than it really is. 
+  I love catching people in the act. That's why I always whip open doors. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1011 days)
