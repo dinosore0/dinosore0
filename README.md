@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you dream of something worth doing and then simply go to work on it and don't think anything of personalities, or emotional conflicts, or of money, or of family distractions it is amazing how quickly you get through those 5,000 steps. 
+  We the unwilling.<br>Led by the unqualified.<br>To kill the unfortunate.<br>Die for the ungrateful. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1010 days)
+## 🌟 Experiences (1011 days)
 
 ### 🧮 Programming languages
 
