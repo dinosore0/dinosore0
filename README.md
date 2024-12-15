@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Constantly think about how you could be doing things better and keep questioning yourself. 
+  The hottest place in Hell is reserved for those who remain neutral in times of great moral conflict. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1012 days)
