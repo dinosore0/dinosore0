@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins? 
+  Travel teaches toleration. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1012 days)
