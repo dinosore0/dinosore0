@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
+  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1013 days)
