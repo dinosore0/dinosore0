@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Each problem has hidden in it an opportunity so powerful that it literally dwarfs the problem. 
+  Happiness is secured through virtue; it is a good attained by man's own will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1013 days)
