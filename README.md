@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Was this the face that launched a thousand ships, and burnt the topless towers of Ileum? 
+  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1013 days)
