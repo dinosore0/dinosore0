@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So vast is art, so narrow human wit. 
+  I think that Obama is very cool. And I think he's clever, and I think he can be witty. But I don't think he's funny in either the way that Reagan was funny - or John McCain and Dick Cheney are both funny in that ruthless, kind of mean way. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1014 days)
