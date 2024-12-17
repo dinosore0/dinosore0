@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man must live in contentment with the conditions of his time. He must not make himself the slave of any habit. He must eat a piece of stale bread with the same relish and enjoyment as the most sumptuous dinner. Contentment is real wealth. If one develops within himself the quality of contentment he will become independent. Contentment is the creator of happiness. When one is contented he does not care either for riches or poverty. He lives above the influence of them and is indifferent to them. 
+  I read and walked for miles at night along the beach, writing bad blank verse and searching endlessly for someone wonderful who would step out of the darkness and change my life. It never crossed my mind that that person could be me. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1014 days)
