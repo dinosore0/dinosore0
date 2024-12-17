@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be pure and holy in all things is a necessary characteristic of the unenslaved mind. 
+  Patriotism is not obedience to government.  Patriotism is obedience to the principals for which government is supposed to stand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1014 days)
