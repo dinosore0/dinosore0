@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself. 
+  Every formula of every religion has in this age of reason, to submit to the acid test of reason and universal assent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1014 days)
