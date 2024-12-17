@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few. 
+  Absence and death are the same - only that in death there is no suffering. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1014 days)
