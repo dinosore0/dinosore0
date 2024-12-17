@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think that Obama is very cool. And I think he's clever, and I think he can be witty. But I don't think he's funny in either the way that Reagan was funny - or John McCain and Dick Cheney are both funny in that ruthless, kind of mean way. 
+  Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1014 days)
