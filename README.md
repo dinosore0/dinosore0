@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is really work unless you would rather be doing something else. 
+  In other words, a person who is fanatic in matters of religion, and clings to certain ideas about the nature of God and the universe, becomes a person who has no faith at all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1015 days)
