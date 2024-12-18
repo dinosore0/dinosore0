@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We the unwilling.<br>Led by the unqualified.<br>To kill the unfortunate.<br>Die for the ungrateful. 
+  For awhile after you quit Keats all other poetry seems to be only whistling or humming. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1015 days)
