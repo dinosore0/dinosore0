@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In this journey you must become a lover of your enemies, so that the purity of your love may attract the hearts. 
+  People assume when my hair is long, that I'm a lot cooler than I actually am. I'm not opposed to this misconception. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1015 days)
