@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  First you take a drink, then the drink takes a drink, then the drink takes you. 
+  I never travel without my diary. One should always have something sensational to read in the train. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1015 days)
