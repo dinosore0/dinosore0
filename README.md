@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The secret of success is learning how to use pain and pleasure instead of having pain and pleasure use you. If you do that, you're in control of your life. If you don't, life controls you. 
+  Don't give up on your dreams, or your dreams will give up on you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1016 days)
