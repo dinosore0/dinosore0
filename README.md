@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The virtues, like the Muses, are always seen in groups. A good principle was never found solitary in any breast. 
+  It is a scientific fact that your body will not absorb cholesterol if you take it from another person's plate. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1016 days)
