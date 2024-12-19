@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
+  Exultest thou over the treasures thou dost possess, knowing they shall perish? Rejoicest thou in that thou rulest a span of earth, when the whole world, in the estimation of the people of Bahá, is worth as much as the black in the eye of a dead ant? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1016 days)
