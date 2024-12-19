@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who is not courageous enough to take risks will accomplish nothing in life. 
+  Life without fun is too boring. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1015 days)
+## 🌟 Experiences (1016 days)
 
 ### 🧮 Programming languages
 
