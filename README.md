@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Growth for the sake of growth is the ideology of the cancer cell. 
+  He who would learn to fly one day must first learn to stand and walk and run and climb and dance one cannot fly into flying. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1016 days)
+## 🌟 Experiences (1017 days)
 
 ### 🧮 Programming languages
 
