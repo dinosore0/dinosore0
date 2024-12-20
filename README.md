@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our liberty depends on the freedom of the press, and that cannot be limited without being lost. 
+  The sensitivity of men to small matters, and their indifference to great ones, indicates a strange inversion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1017 days)
