@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I found there was only one way to look thin: hang out with fat people. 
+  My mama always said, 'Life was like a box of chocolates; you never know what you're gonna get.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1017 days)
