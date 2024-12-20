@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am tormented with an everlasting itch for things remote. I love to sail forbidden seas. 
+  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1017 days)
