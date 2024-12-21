@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you. 
+  Of course, to have money is just great because you can do what you think is important to you. I always was a rich person because money's not related to happiness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1018 days)
