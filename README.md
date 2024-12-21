@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People with great gifts are easy to find, but symmetrical and balanced ones never. 
+  Real knowledge is to know the extent of one's ignorance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1018 days)
