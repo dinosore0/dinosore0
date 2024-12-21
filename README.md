@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If history were taught in the form of stories, it would never be forgotten. 
+  With the past, I have nothing to do nor with the future. I live now. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1017 days)
+## 🌟 Experiences (1018 days)
 
 ### 🧮 Programming languages
 
