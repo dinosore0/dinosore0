@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't study comedy; it's within you. It's a personality. My humor is an attitude. 
+  He is happiest, be he king or peasant, who finds peace in his home. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1019 days)
