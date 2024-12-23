@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life's tragedy is that we get old too soon and wise too late. 
+  The generality of men are naturally apt to be swayed by fear rather than reverence, and to refrain from evil rather because of the punishment that it brings than because of its own foulness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1020 days)
