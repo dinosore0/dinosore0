@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is amazing what you can accomplish if you do not care who gets the credit. 
+  First you take a drink, then the drink takes a drink, then the drink takes you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1020 days)
