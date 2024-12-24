@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our scientific power has outrun our spiritual power. We have guided missiles and misguided men. 
+  Say not, 'I have found the truth,' but rather, 'I have found a truth.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1021 days)
