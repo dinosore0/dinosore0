@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  An approximate answer to the right problem is worth a good deal more than an exact answer to an approximate problem. 
+  Good, better, best; never let it rest till your good is better and your better is best. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1021 days)
