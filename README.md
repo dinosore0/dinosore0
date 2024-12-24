@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith certainly tells us what the senses do not, but not the contrary of what they see it is above, not against them. 
+  They may not remember what you said. They may not remember what you did. But they will never forget how you made them feel. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1021 days)
