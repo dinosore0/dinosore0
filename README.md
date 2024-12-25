@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be yourself; everyone else is already taken. 
+  If you ever find happiness by hunting for it, you will find it, as the old woman did her lost spectacles, safe on her own nose all the time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1022 days)
