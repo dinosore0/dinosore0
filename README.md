@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Read 500 pages like this every day.  That's how knowledge works.  It builds up, like compound interest.  All of you can do it, but I guarantee not many of you will do it. 
+  Every young man would do well to remember that all successful business stands on the foundation of morality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1022 days)
