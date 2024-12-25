@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen. 
+  The highest education is that which does not merely give us information but makes our life in harmony with all existence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1022 days)
