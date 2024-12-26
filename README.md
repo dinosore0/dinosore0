@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it. 
+  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1023 days)
