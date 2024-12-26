@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The first virtue in a soldier is endurance of fatigue; courage is only the second virtue. 
+  We are made wise not by the recollection of our past, but by the responsibility for our future. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1023 days)
