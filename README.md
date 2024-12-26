@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No man ever believes that the Bible means what it says:  He is always convinced that it says what he means. 
+  The first virtue in a soldier is endurance of fatigue; courage is only the second virtue. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1023 days)
