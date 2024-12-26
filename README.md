@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
+  Chains of habit are too light to be felt until they are too heavy to be broken. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1023 days)
