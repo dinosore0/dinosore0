@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
+  Our greatest glory is not in never falling, but in rising every time we fall. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1023 days)
