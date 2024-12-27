@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want to conquer fear, don't sit home and think about it. Go out and get busy. 
+  Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1024 days)
