@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are trivial truths and the great truths. The opposite of a trivial truth is plainly false. The opposite of a great truth is also true. 
+  Money, not morality, is the principle commerce of civilized nations. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1024 days)
