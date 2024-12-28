@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Say not, 'I have found the truth,' but rather, 'I have found a truth.' 
+  If you set goals and go after them with all the determination you can muster, your gifts will take you places that will amaze you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1025 days)
