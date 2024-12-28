@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Television brought the brutality of war into the comfort of the living room. Vietnam was lost in the living rooms of America - not on the battlefields of Vietnam. 
+  Come, gentlemen, I hope we shall drink down all unkindness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1025 days)
