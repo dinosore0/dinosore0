@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  After climbing a great hill, one only finds that there are many more hills to climb. 
+  Poetry is the synthesis of hyacinths and biscuits. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1025 days)
