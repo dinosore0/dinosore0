@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good, better, best; never let it rest till your good is better and your better is best. 
+  You cannot dream yourself into a character; you must hammer and forge yourself one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1026 days)
