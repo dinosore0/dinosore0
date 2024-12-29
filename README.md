@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Cherish your visions and your dreams as they are the children of your soul, the blueprints of your ultimate achievements. 
+  Love is composed of a single soul inhabiting two bodies. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1026 days)
