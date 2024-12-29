@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Save a little bit of money each month, and at the end of the year you'll be surprised at how little you still have. 
+  I may be as bad as the worst, but, thank God, I am as good as the best. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1026 days)
