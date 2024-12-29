@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is not about how fast you run or how high you climb but how well you bounce. 
+  Women love us for our defects. If we have enough of them, they will forgive us everything, even our gigantic intellects. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1026 days)
