@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many men go fishing all of their lives without knowing that it is not fish they are after. 
+  In my afternoon walk I would fain forget all my morning occupations and my obligations to society. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1026 days)
