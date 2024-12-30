@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good education is not what fills your head with facts but what stimulates curiosity. You then learn for the rest of your life. 
+  I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1027 days)
