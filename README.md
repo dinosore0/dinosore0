@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only he is successful in his business who makes that pursuit which affords him the highest pleasure sustain him. 
+  It's dangerous being free, but most come to like the taste o' it 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1027 days)
