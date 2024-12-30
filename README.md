@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Seeing much, suffering much, and studying much, are the three pillars of learning. 
+  The first sign of faith is love. The message of the holy, divine Manifestations is love; the phenomena of creation are based upon love; the radiance of the world is due to love; the well-being and happiness of the world depend upon it. Therefore, I admonish you that you must strive throughout the human world to diffuse the light of love... 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1027 days)
