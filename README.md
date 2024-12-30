@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The biggest disease this day and age is that of people feeling unloved. 
+  Good education is not what fills your head with facts but what stimulates curiosity. You then learn for the rest of your life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1027 days)
