@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A little knowledge is a dangerous thing, but a little want of knowledge is also a dangerous thing. 
+  An American monkey, after getting drunk on brandy, would never touch it again, and thus is much wiser than most men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1027 days)
