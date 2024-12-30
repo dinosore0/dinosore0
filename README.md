@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  First love is only a little foolishness and a lot of curiosity. 
+  If youth knew; if age could. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1026 days)
+## 🌟 Experiences (1027 days)
 
 ### 🧮 Programming languages
 
