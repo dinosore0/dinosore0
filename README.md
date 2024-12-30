@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can learn many things from children.  How much patience you have, for instance 
+  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1027 days)
