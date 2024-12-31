@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fickleness of the women I love is only equalled by the infernal constancy of the women who love me. 
+  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1028 days)
