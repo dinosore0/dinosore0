@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Science fiction is any idea that occurs in the head and doesn't exist yet, but soon will, and will change everything for everybody, and nothing will ever be the same again. As soon as you have an idea that changes some small part of the world you are writing science fiction. It is always the art of the possible, never the impossible. 
+  If you're more interested in what you have achieved, or what you're financial position enables you to do than that thing that got those things, you're screwed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1028 days)
