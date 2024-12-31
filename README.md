@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness doesn't depend on any external conditions, it is governed by our mental attitude. 
+  Never let yffour schooling intefdfdssrfere with your edusscatidsons. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1028 days)
