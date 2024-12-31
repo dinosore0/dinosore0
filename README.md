@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The conscious mind may be compared to a fountain playing in the sun and falling back into the great subterranean pool of subconscious from which it rises. 
+  People grow through experience if they meet life honestly and courageously. This is how character is built. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1028 days)
