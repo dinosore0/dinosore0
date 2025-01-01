@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Many men go fishing all of their lives without knowing that it is not fish they are after. 
+  If we are not free, no one will respect us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1028 days)
+## 🌟 Experiences (1029 days)
 
 ### 🧮 Programming languages
 
