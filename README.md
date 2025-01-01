@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great fun in my life has been getting up every morning and rushing to the typewriter because some new idea has hit me. 
+  We know but a few men, a great many coats and breeches. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1029 days)
