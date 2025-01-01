@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work. 
+  Dig within. Within is the wellspring of Good; and it is always ready to bubble up, if you just dig. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1029 days)
