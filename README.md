@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Things may come to those who wait, but only the things left by those who hustle. 
+  My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1030 days)
