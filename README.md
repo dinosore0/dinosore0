@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Of all that is good, sublimity is supreme. Succeeding is the coming together of all that is beautiful. Furtherance is the agreement of all that is just. Perseverance is the foundation of all actions. 
+  The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1030 days)
