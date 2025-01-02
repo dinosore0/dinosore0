@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For every minute you remain angry, you give up sixty seconds of peace of mind. 
+  Take control of your consistent emotions and begin to consciously and deliberately reshape your daily experience of life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1030 days)
