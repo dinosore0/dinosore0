@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The Chinese government wants me to say that for many centuries Tibet has been part of China. Even if I make that statement, many people would just laugh. And my statement will not change past history. History is history. 
+  The price of anything is the amount of life you exchange for it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1030 days)
