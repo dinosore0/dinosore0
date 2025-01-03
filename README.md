@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Suffering becomes beautiful when anyone bears great calamities with cheerfulness, not through insensibility but through greatness of mind. 
+  Only do what your heart tells you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1031 days)
