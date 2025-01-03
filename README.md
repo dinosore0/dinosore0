@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. 
+  Some men see things as they are and ask why. Others dream things that never were and ask why not. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1031 days)
