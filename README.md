@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some men see things as they are and ask why. Others dream things that never were and ask why not. 
+  There is a great discovery still to be made in literature, that of paying literary men by the quantity they do not write. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1031 days)
