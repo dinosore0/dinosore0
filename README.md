@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are only two kinds of languages: the ones people complain about and the ones nobody uses. 
+  We should not look back unless it is to derive useful lessons from past errors, and for the purpose of profiting by dearly bought experience. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1031 days)
