@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In Republics, the great danger is, that the majority may not sufficiently respect the rights of the minority. 
+  I am not afraid of death, I just don't want to be there when it happens. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1031 days)
