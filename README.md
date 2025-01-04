@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let your College interfere with your education.... 
+  I'm not comfortable being around too many people. I don't like being out in public too much. I don't like going to bars. I don't like doing celebrity stuff. So most of the characters I play are people who don't always feel comfortable beyond their small circle of friends. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1032 days)
