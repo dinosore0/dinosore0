@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You must be the change you wish to see in the world. 
+  A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1032 days)
