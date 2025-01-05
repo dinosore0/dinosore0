@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Progress is impossible without change, and those who cannot change their minds cannot change anything. 
+  There's only one thing that can kill the movies, and that's education. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1033 days)
