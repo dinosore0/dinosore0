@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Capitalism has always been a failure for the lower classes. It is now beginning to fail for the middle classes. 
+  The ideal man bears the accidents of life with dignity and grace, making the best of circumstances. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1033 days)
