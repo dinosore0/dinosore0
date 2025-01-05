@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I challenge you to make your life a masterpiece. I challenge you to join the ranks of those people who live what they teach, who walk their talk. 
+  Friendship, like the immortality of the soul, is too good to be believed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1033 days)
