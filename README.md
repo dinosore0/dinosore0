@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Failure defeats losers, failure inspires winners 
+  The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1033 days)
