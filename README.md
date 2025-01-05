@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Religion is more than life. Remember that his own religion is the truest to every man even if it stands low in the scales of philosophical comparison. 
+  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1033 days)
