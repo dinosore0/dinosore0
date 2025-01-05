@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every young man would do well to remember that all successful business stands on the foundation of morality. 
+  It is easy to hate and it is difficult to love. This is how the whole scheme of things works. All good things are difficult to achieve and bad things are very easy to get. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1033 days)
