@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We only see what we aim at. 
+  I have found little that is 'good' about human beings on the whole. In my experience most of them are trash, no matter whether they publicly subscribe to this or that ethical doctrine or to none at all. That is something that you cannot say aloud, or perhaps even think. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1033 days)
