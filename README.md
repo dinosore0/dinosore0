@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest mistake you can make in life is continually fearing that you'll make one. 
+  Learning to program teaches you how to think. Computer science is a liberal art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1034 days)
