@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Crime and bad lives are the measure of a State's failure, all crime in the end is the crime of the community. 
+  The hate of men will pass, and dictators die, and the power they took from the people will return to the people. And so long as men die, liberty will never perish. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1034 days)
