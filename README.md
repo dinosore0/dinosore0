@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality. 
+  Je connais mes limites. C'est pourquoi je vais au-delà. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1034 days)
