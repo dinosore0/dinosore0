@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give. 
+  No one is a friend to his friend who does not love in return. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1034 days)
