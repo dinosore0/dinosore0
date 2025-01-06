@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If all our happiness is bound up entirely in our personal circumstances it is difficult not to demand of life more than it has to give. 
+  Crime and bad lives are the measure of a State's failure, all crime in the end is the crime of the community. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1034 days)
