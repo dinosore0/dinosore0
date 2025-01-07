@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Detachment does not consist in setting fire to one's house, or becoming bankrupt or throwing one's fortune out of the window, or even giving away all of one's possessions. Detachment consists in refraining from letting our possessions possess us. 
+  You know, I guess one person can make a difference. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1035 days)
