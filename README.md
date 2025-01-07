@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fact that we imagine ourselves to be right and everybody else wrong is the greatest of all obstacles in the path towards unity... 
+  When you think about quitting, think about why you started 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1035 days)
