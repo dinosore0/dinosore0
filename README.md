@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive. 
+  Oh, The Places You'll Go! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1035 days)
