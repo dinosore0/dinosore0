@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And the first rude sketch that the world had seen was joy to his mighty heart, till the Devil whispered behind the leaves 'It's pretty, but is it Art?' 
+  Men are disturbed not by things, but by the view which they take of them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1035 days)
