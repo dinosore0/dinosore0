@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is there more kindly than the feeling between host and guest? 
+  In a thousand different ways, we are taught to think small.  We are taught to think we can’t change the status quo.  That does not have to be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1037 days)
