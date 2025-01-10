@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never attempt to make money on the stock market. I buy on the assumption that they could close the market the next day and not reopen it for five years. 
+  A man is relieved and gay when he has put his heart into his work and done his best but what he has said or done otherwise shall give him no peace. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1038 days)
