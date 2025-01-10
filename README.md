@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A society grows great when old men plant trees whose shade they know they shall never sit in. 
+  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1038 days)
