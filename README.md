@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You get to a certain age where you prepare yourself for happiness. Sometimes you never remember to actually get happy. 
+  I remember straightening my hair because I wanted to be like everybody else, and now the fact that anybody would emulate what I do? It's just funny. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1038 days)
