@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And on top of that, when we work together we have a wonderful working relationship we push each other we challenge each other we laugh 80% of the time that we are together we're very fortunate. 
+  Show me a thoroughly satisfied man and I will show you a failure. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1038 days)
