@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man is relieved and gay when he has put his heart into his work and done his best but what he has said or done otherwise shall give him no peace. 
+  Children are the anchors of a mother's life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1038 days)
