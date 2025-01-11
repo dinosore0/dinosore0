@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's dangerous being free, but most come to like the taste o' it 
+  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1039 days)
