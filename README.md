@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To travel is to discover that everyone is wrong about other countries. 
+  Obstacles Can't Stop You, Problems Can't Stop You, People Can't Stop You. Only You Can Stop You! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1039 days)
