@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest thing about being a scientist is you never have to grow up. 
+  A bird cannot walk as fast as a person and never will.   It is made to fly. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1039 days)
