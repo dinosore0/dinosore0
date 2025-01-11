@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I remember straightening my hair because I wanted to be like everybody else, and now the fact that anybody would emulate what I do? It's just funny. 
+  Let us never negotiate out of fear. But let us never fear to negotiate. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1038 days)
+## 🌟 Experiences (1039 days)
 
 ### 🧮 Programming languages
 
