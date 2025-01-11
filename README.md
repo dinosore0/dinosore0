@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  gg 
+  Music should probably provide answers in terms of lyrical content, and giving people a sense of togetherness and oneness, as opposed to being alone in their thoughts and dilemmas or regrets or happiness or whatever. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1039 days)
