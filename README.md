@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Obstacles Can't Stop You, Problems Can't Stop You, People Can't Stop You. Only You Can Stop You! 
+  If our soldiers are not overburdened with money, it is not because they have a distaste for riches if their lives are not unduly long, it is not because they are disinclined to longevity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1039 days)
