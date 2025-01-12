@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hate facts. I always say the chief end of man is to form general propositions - adding that no general proposition is worth a d--n. 
+  He that has a great nose, thinks everybody is speaking of it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1040 days)
