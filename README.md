@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The need for change bulldozed a road down the center of my mind. 
+  Agressive music can only shock you once. Afterwards its impact declines. It's inevitable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1040 days)
