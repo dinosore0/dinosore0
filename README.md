@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take a course in good water and air and in the eternal youth of Nature you may renew your own. Go quietly, alone no harm will befall you. 
+  We are faced with the paradoxical fact that education has become one of the chief obstacles to intelligence and freedom of thought. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1040 days)
