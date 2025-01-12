@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Compound interest is the eighth wonder of the world.  He who understands it, earns it ... he who doesn't ... pays it. 
+  Life would be tragic if it weren't funny. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1040 days)
