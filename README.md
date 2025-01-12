@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would no longer see barricades. Stumbling blocks would now be seen as stepping stones to something better. 
+  There are worse things in life than death. Have you ever spent an evening with an insurance salesman? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1040 days)
