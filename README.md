@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Agressive music can only shock you once. Afterwards its impact declines. It's inevitable. 
+  Real difficulties can be overcome; it is only the imaginary ones that are unconquerable 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1040 days)
