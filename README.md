@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is good? All that heightens the feeling of power, the will to power, power itself in man. 
+  Average acting is like jerking without an orgasm 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1039 days)
+## 🌟 Experiences (1040 days)
 
 ### 🧮 Programming languages
 
