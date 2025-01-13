@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith is not believing that God can. It is knowing that God will. 
+  A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1041 days)
