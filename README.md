@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The words were on their way, and when they arrived, she would hold them in her hands like clouds, and she would ring them out like the rain. 
+  Whoever is happy will make others happy too. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1041 days)
