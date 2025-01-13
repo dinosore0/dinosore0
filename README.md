@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wise men speak because they have something to say; Fools because they have to say something. 
+  Quand je n'ai pas de bleu, je mets du rouge. :) 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1041 days)
