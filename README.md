@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad. 
+  Good advice is something a man gives when he is too old to set a bad example. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1041 days)
