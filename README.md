@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Darkness cannot drive out darkness only light can do that. Hate cannot drive out hate only love can do that. 
+  Virtue is not left to stand alone. He who practices it will have neighbors. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1042 days)
