@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Virtue is not left to stand alone. He who practices it will have neighbors. 
+  It is an infantile superstition of the human spirit that virginity would be thought a virtue and not the barrier that separates ignorance from knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1042 days)
