@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. 
+  Tact is the ability to describe others as they see themselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1043 days)
