@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
+  Be brave. Take risks. Nothing can substitute experience. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1043 days)
