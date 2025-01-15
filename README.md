@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be brave. Take risks. Nothing can substitute experience. 
+  To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1043 days)
