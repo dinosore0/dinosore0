@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hold yourself responsible for a higher standard than anybody expects of you. Never excuse yourself. 
+  But who prays for Satan? Who in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1043 days)
