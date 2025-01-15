@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You, yourself, as much as anybody in the entire universe, deserve your love and affection. 
+  My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1043 days)
