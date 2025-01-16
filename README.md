@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have decided to stick with love. Hate is too great a burden to bear. 
+  They may not remember what you said. They may not remember what you did. But they will never forget how you made them feel. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1044 days)
