@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down. 
+  Nobody gets to live life backward. Look ahead, that is where your future lies. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1045 days)
