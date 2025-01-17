@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who would learn to fly one day must first learn to stand and walk and run and climb and dance one cannot fly into flying. 
+  Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1045 days)
