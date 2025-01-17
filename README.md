@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Detachment does not consist in setting fire to one's house, or becoming bankrupt or throwing one's fortune out of the window, or even giving away all of one's possessions. Detachment consists in refraining from letting our possessions possess us. 
+  It is impossible to live without failing at something, unless you live so cautiously that you might has well not have lived at all, in which case you have failed by default. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1045 days)
