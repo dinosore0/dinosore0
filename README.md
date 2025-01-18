@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The formulation of a problem is often more essential than its solution, which may be merely a matter of mathematical or experimental skill. 
+  Don't be too timid and squeamish about your actions. All life is an experiment. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1046 days)
