@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are what we repeatedly do. Excellence, then, is not an act, but a habit. 
+  From the moment I picked your book up until I laid it down I was convulsed with laughter. Someday I intend reading it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1047 days)
