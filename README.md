@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  An insincere and evil friend is more to be feared than a wild beast a wild beast may wound your body, but an evil friend will wound your mind. 
+  We are what we repeatedly do. Excellence, then, is not an act, but a habit. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1047 days)
