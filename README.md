@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  An American monkey, after getting drunk on brandy, would never touch it again, and thus is much wiser than most men. 
+  I long, as does every human being, to be at home wherever I find myself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1048 days)
