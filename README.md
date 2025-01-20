@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As long as you know men are like children, you know everything! 
+  To think is to practice brain chemistry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1048 days)
