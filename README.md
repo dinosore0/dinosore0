@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wisdom, compassion, and courage are the three universally recognized moral qualities of men. 
+  Women have simple tastes. They get pleasure out of the conversation of children in arms and men in love. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1048 days)
