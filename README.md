@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A lot of the best ideas seem silly or bad initially—you want an idea at the intersection of “seems like bad idea” and “is good idea”. 
+  Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1049 days)
