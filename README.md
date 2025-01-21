@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Consumed with that which it was nourish'd by. 
+  Aim high, choose noble ends... 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1048 days)
+## 🌟 Experiences (1049 days)
 
 ### 🧮 Programming languages
 
