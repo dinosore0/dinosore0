@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
+  The fewer the facts, the stronger the opinion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1049 days)
