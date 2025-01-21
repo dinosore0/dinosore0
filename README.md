@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure perseverance. 
+  As for style, there is something about the way musicians dress-they seem to be able to create their own world within their fashion alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1049 days)
