@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only by the sweat of my own brow. I am a totally working man. 
+  I have long known that it is part of God's plan for me to spend a little time with each of the most stupid people on earth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1049 days)
