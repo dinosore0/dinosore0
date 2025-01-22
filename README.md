@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
+  An approximate answer to the right problem is worth a good deal more than an exact answer to an approximate problem. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1050 days)
