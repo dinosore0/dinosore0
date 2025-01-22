@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is always some madness in love. But there is also always some reason in madness. 
+  Decorate your home. It gives the illusion that your life is more interesting than it really is. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1050 days)
