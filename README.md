@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He, who every morning plans the transactions of the day, and follows that plan, carries a thread that will guide him through a labyrinth of the most busy life. 
+  The secret of my success is a two word answer: Know people. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1050 days)
