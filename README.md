@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This is why I’m taking extra time to really try to get it right. I’ll have plenty of time to refine the style, but I want the basics solid. 
+  Anxiety does not empty tomorrow of its sorrows, but only empties today of its strength. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1051 days)
