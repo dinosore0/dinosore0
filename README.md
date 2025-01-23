@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A vow is a purely religious act which cannot be taken in a fit of passion. It can be taken only with a mind purified and composed and with God as witness. 
+  Friendship is essentially a partnership. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1051 days)
