@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Forgiveness is the fragrance that the violet sheds on the heel that has crushed it. 
+  I’m no genius, but I’m smart in spots, and I stay around those spots. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1051 days)
