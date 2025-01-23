@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are more things in heaven and earth, Horatio,<br>Thank are dreamt of in your philosophy. 
+  Who in the world am I? Ah, that's the great puzzle. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1051 days)
