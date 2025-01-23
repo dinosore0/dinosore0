@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game. 
+  A work of art is the unique result of a unique temperament. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1051 days)
