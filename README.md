@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We innovate by starting with the customer and working backwards. That becomes the touchstone for how we invent. 
+  Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1051 days)
