@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every formula of every religion has in this age of reason, to submit to the acid test of reason and universal assent. 
+  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
