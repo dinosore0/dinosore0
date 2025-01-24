@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. 
+  To hope means to be ready at every moment for that which is not yet born, and yet not become desperate if there is no birth in our lifetime. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
