@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nguồn mở là thứ tồn tại duy nhất. Mọi nguồn khác có hay không có, không quan trọng. 
+  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
