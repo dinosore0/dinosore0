@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hate women because they always know where things are. 
+  I have too much money invested in sweaters. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1051 days)
+## 🌟 Experiences (1052 days)
 
 ### 🧮 Programming languages
 
