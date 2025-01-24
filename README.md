@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In most communities it is illegal to cry 'fire' in a crowded assembly. Should it not be considered serious international misconduct to manufacture a general war scare in an effort to achieve local political aims? 
+  Science must have originated in the feeling that something was wrong. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
