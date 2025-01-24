@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “If religion is opposed to reason and science, faith is impossible; and when faith and confidence in the divine religion are not manifest in the heart, there can be no spiritual attainment.” 
+  In most communities it is illegal to cry 'fire' in a crowded assembly. Should it not be considered serious international misconduct to manufacture a general war scare in an effort to achieve local political aims? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
