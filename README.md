@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
+  Nature has planted in our minds an insatiable longing to see the truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
