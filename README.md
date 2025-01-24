@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
+  It is not often that someone comes along who is a true friend and a good writer. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
