@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A life is like a garden. Perfect moments can be had, but not preserved, except in memory. 
+  Darkness cannot drive out darkness only light can do that. Hate cannot drive out hate only love can do that. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1052 days)
