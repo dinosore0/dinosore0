@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me, why is the media here so negative? Why are we in India so embarrassed to recognise our own strengths, our achievements? We are such a great nation. We have so many amazing success stories but we refuse to acknowledge them. Why? 
+  Women who seek to be equal with men lack ambition. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1053 days)
