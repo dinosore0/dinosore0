@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Slang is a language that rolls up its sleeves, spits on its hands and goes to work. 
+  Many of life's failures are people who did not realize how close they were to success when they gave up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1052 days)
+## 🌟 Experiences (1053 days)
 
 ### 🧮 Programming languages
 
