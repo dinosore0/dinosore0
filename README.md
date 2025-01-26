@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I only wish that ordinary people had an unlimited capacity for doing harm then they might have an unlimited power for doing good. 
+  The Chinese government wants me to say that for many centuries Tibet has been part of China. Even if I make that statement, many people would just laugh. And my statement will not change past history. History is history. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1054 days)
