@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If all our happiness is bound up entirely in our personal circumstances it is difficult not to demand of life more than it has to give. 
+  Who in the world am I? Ah, that's the great puzzle. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1054 days)
