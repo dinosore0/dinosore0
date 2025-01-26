@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Enthusiasm is the mother of effort, and without it nothing great was ever achieved. 
+  Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1054 days)
