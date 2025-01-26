@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It appears to be a law that you cannot have a deep sympathy with both man and nature. 
+  Enthusiasm is the mother of effort, and without it nothing great was ever achieved. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1054 days)
