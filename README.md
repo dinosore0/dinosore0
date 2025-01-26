@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Keep your fears to yourself, but share your courage with others. 
+  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1054 days)
