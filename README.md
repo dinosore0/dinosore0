@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am always ready to learn although I do not always like being taught. 
+  Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1054 days)
