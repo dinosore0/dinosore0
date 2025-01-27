@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man. 
+  Shortly after I met Bill Gates, Bill's dad asked each of us to write down on a piece of paper one word that would best describe what had helped us the most. Bill and I, without any collaboration at all, each wrote the word "focus. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1055 days)
