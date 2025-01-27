@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some cause happiness wherever they go; others whenever they go. 
+  Our prime purpose in this life is to help others. And if you can't help them, at least don't hurt them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1055 days)
