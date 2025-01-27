@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am a child but I have to think and act like a woman, this business forces you to. 
+  Everything you’ve ever wanted is on the other side of fear. — George Addair 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1055 days)
