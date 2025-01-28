@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is a scientific fact that your body will not absorb cholesterol if you take it from another person's plate. 
+  In the long term, the problem we face may not be poverty, but too much wealth of the wrong kind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1056 days)
