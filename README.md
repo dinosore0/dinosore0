@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
+  Before I speak, I have something important to say. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1055 days)
+## 🌟 Experiences (1056 days)
 
 ### 🧮 Programming languages
 
