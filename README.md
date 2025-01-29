@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We choose to go to the moon in this decade and do the other things, not because they are easy, but because they are hard. 
+  Age is an issue of mind over matter. If you don't mind, it doesn't matter. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1057 days)
