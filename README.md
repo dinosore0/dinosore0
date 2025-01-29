@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are more things in heaven and earth, Horatio,<br>Thank are dreamt of in your philosophy. 
+  Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1057 days)
