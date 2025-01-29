@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
+  The best effort of a fine person is felt after we have left their presence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1057 days)
