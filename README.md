@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes you just gotta pet the whales. 
+  We sleep in separate rooms, we have dinner apart, we take separate vacations - we're doing everything we can to keep our marriage together. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1058 days)
