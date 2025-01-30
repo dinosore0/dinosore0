@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself. 
+  Our goal is to make the best devices in the world, not to be the biggest. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1058 days)
