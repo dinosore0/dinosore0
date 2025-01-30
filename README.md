@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
+  To lengthen thy life, lessen thy meals. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1058 days)
