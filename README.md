@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some mischievous people always there. Last several thousand years, always there. In future, also. 
+  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1058 days)
