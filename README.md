@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Forgiveness is the fragrance that the violet sheds on the heel that has crushed it. 
+  Seeing much, suffering much, and studying much, are the three pillars of learning. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1058 days)
