@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Seeing much, suffering much, and studying much, are the three pillars of learning. 
+  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1058 days)
