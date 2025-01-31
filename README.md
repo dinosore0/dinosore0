@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To have no time for philosophy is to be a true philosopher. 
+  If our soldiers are not overburdened with money, it is not because they have a distaste for riches if their lives are not unduly long, it is not because they are disinclined to longevity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1059 days)
