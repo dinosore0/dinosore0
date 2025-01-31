@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life and death are one thread, the same line viewed from different sides. 
+  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1058 days)
+## 🌟 Experiences (1059 days)
 
 ### 🧮 Programming languages
 
