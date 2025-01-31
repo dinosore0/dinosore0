@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To know God better is only to realize how impossible it is that we should ever know him at all. I know not which is more childish to deny him, or define him. 
+  Whenever the people are well-informed, they can be trusted with their own government. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1059 days)
