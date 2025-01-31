@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
+  Your manuscript is both good and original but the part that is good is not original, and the part that is original is not good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1059 days)
