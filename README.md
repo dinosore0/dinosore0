@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  First you take a drink, then the drink takes a drink, then the drink takes you. 
+  Most of the luxuries and many of the so-called comforts of life are not only not indispensable, but positive hindrances to the elevation of mankind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1060 days)
