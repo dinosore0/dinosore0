@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every war when it comes, or before it comes, is represented not as a war but as an act of self-defense against a homicidal maniac. 
+  If you think of yourselves as helpless and ineffectual, it is certain that you will create a despotic government to be your master. The wise despot, therefore, maintains among his subjects a popular sense that they are helpless and ineffectual. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1060 days)
