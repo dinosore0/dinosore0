@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is little success where there is little laughter. 
+  Rhetoric is a poor substitute for action, and we have trusted only to rhetoric. If we are really to be a great nation, we must not merely talk we must act big. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1060 days)
