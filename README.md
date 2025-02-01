@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Leadership is getting someone to do what they don't want to do, to achieve what they want to achieve. 
+  Failure is the key to success each mistake teaches us something. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1060 days)
