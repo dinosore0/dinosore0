@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some people will never learn anything, for this reason, because they understand everything too soon. 
+  Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
