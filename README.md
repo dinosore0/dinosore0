@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the depth of winter I finally learned that there was in me an invincible summer. 
+  Marriage is a wonderful institution, but who would want to live in an institution? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
