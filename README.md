@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship. 
+  My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
