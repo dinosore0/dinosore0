@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We can afford to lose money – even a lot of money.  But we can’t afford to lose reputation – even a shred of reputation. 
+  Communism, like any other revealed religion, is largely made up of prophecies. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
