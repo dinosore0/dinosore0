@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
+  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
