@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I suppose leadership at one time meant muscles but today it means getting along with people. 
+  We can afford to lose money – even a lot of money.  But we can’t afford to lose reputation – even a shred of reputation. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
