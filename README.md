@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship. 
+  Some people will never learn anything, for this reason, because they understand everything too soon. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
