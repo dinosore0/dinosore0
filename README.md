@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before the throne of the Almighty, man will be judged not by his acts but by his intentions. For God alone reads our hearts. 
+  Health is the greatest gift, contentment the greatest wealth, faithfulness the best relationship. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1061 days)
