@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If youth knew; if age could. 
+  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1061 days)
+## 🌟 Experiences (1062 days)
 
 ### 🧮 Programming languages
 
