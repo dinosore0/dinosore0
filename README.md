@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What you do not want done to yourself, do not do to others. 
+  To give thanks in solitude is enough. Thanksgiving has wings and goes where it must go. Your prayer knows much more about it than you do. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1062 days)
