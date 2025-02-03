@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself. 
+  I don’t need an alarm clock. My ideas wake me. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1062 days)
