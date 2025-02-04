@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The cost of freedom is always high, but Americans have always paid it. And one path we shall never choose, and that is the path of surrender, or submission. 
+  Never leave that till tomorrow which you can do today. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1063 days)
