@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
+  I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1063 days)
