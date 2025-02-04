@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
+  Complexity is your enemy. Any fool can make something complicated. It is hard to make something simple. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1062 days)
+## 🌟 Experiences (1063 days)
 
 ### 🧮 Programming languages
 
