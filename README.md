@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. 
+  I arise in the morning torn between a desire to improve the world and a desire to enjoy the world. This makes it hard to plan the day. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1063 days)
