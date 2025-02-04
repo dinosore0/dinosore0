@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not often that someone comes along who is a true friend and a good writer. 
+  I never attempt to make money on the stock market. I buy on the assumption that they could close the market the next day and not reopen it for five years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1063 days)
