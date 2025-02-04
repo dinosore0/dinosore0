@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
+  Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1063 days)
