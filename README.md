@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't spend time beating on a wall, hoping to transform it into a door. 
+  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1063 days)
