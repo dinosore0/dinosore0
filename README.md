@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be kind whenever possible. It is always possible. 
+  A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
