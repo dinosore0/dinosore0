@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is a sign of contraction of the mind when it is content, or of weariness. A spirited mind never stops within itself it is always aspiring and going beyond its strength. 
+  In the end, it's not the years in your life that count. It's the life in your years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
