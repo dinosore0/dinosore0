@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We're living in a time when the world has suddenly discovered India because it's run out of raw material for its imagination. The raw materials for imagination are inexhaustible here. 
+  The key to everything is patience. You get the chicken by hatching the egg, not by smashing it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
