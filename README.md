@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
+  I will admit, like Socrates and Aristotle and Plato and some other philosophers, that there are instances where the death penalty would seem appropriate. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
