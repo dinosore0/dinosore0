@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He that has a great nose, thinks everybody is speaking of it. 
+  It is a sign of contraction of the mind when it is content, or of weariness. A spirited mind never stops within itself it is always aspiring and going beyond its strength. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
