@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you try and take a cat apart to see how it works, the first thing you have on your hands is a non-working cat. 
+  If I have seen further it is only by standing on the shoulders of giants. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
