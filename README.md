@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Reversing your treatment of the man you have wronged is better than asking his forgiveness. 
+  It were a real increase of human happiness, could all young men from the age of nineteen be covered under barrels, or rendered otherwise invisible and there left to follow their lawful studies and callings, till they emerged, sadder and wiser, at the age of twenty-five. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
