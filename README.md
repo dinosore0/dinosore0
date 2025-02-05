@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True life is lived when tiny changes occur. 
+  Aim for the sky, but move slowly, enjoying every step along the way. It is all those little steps that make the journey complete. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1064 days)
