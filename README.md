@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those who want to reap the benefits of this great nation must bear the fatigue of supporting it. 
+  The worst thing in this world, next to anarchy, is government. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1065 days)
