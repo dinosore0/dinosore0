@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. 
+  Those who want to reap the benefits of this great nation must bear the fatigue of supporting it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1065 days)
