@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not agree with what you have to say, but I'll defend to the death your right to say it. 
+  We have no right to assume that any physical laws exist, or if they have existed up until now, that they will continue to exist in a similar manner in the future. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1065 days)
