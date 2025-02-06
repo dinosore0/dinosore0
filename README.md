@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is always some madness in love. But there is also always some reason in madness. 
+  A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1065 days)
