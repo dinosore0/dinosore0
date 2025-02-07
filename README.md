@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is error alone which needs the support of government. Truth can stand by itself. 
+  Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1066 days)
