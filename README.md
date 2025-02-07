@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God not only plays dice, but also sometimes throws them where they cannot be seen. 
+  If I miss one day of practice, I notice it. If I miss two days, the critics notice it. If I miss three days, the audience notices it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1066 days)
