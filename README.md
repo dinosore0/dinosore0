@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every great dream begins with a dreamer. Always remember, you have within you the strength, patience, and passion to reach for the stars and change the world. 
+  The goal is to do business with people who believe what you believe. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1066 days)
