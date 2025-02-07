@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My theory has always been, that if we are to dream, the flatteries of hope are as cheap, and pleasanter, than the gloom of despair. 
+  Very often design is the most immediate way of defining what products become in people's minds. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1065 days)
+## 🌟 Experiences (1066 days)
 
 ### 🧮 Programming languages
 
