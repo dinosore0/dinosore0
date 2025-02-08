@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever words we utter should be chosen with care for people will hear them and be influenced by them for good or ill. 
+  It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1067 days)
