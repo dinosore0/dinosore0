@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To know oneself, one should assert oneself. 
+  When you are winning a war almost everything that happens can be claimed to be right and wise. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1068 days)
+## 🌟 Experiences (1069 days)
 
 ### 🧮 Programming languages
 
