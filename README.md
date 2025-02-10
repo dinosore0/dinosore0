@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want a vision of the future, imagine a boot stamping on a human face - forever. 
+  Je connais mes limites. C'est pourquoi je vais au-delà. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1069 days)
