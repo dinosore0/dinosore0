@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My great hope is to laugh as much as I cry to get my work done and try to love somebody and have the courage to accept the love in return. 
+  God's most lordly gift to man is decency of mind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1069 days)
