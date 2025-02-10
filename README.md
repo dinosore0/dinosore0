@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not because angels are holier than men or devils that makes them angels, but because they do not expect holiness from one another, but from God only. 
+  Always bear in mind that your own resolution to succeed is more important than any other. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1069 days)
