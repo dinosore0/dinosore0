@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always bear in mind that your own resolution to succeed is more important than any other. 
+  My great hope is to laugh as much as I cry to get my work done and try to love somebody and have the courage to accept the love in return. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1069 days)
