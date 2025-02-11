@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those whom we can love, we can hate to others we are indifferent. 
+  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1070 days)
