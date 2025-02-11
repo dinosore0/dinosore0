@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This console here was the best part of my life. And I spent almost 10 years at this console. It is my life, it will always be my life. And I will never leave it behind. 
+  It's dangerous being free, but most come to like the taste o' it 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1070 days)
