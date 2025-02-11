@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think it's crucial that young women learn to code as early as possible to ensure that we have a voice in what the world looks like. 
+  If I'd listened to customers, I'd have given them a faster horse. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1070 days)
