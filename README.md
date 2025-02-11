@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
+  I think it's crucial that young women learn to code as early as possible to ensure that we have a voice in what the world looks like. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1070 days)
