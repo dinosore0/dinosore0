@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Business can learn about new conditions the same way a gene pool does. I'm not claiming companies can get smarter, just that dumb ones will die. 
+  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1071 days)
