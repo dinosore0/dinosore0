@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any fool can tell the truth, but it requires a man of some sense to know how to lie well. 
+  For life and death are one, even as the river and the sea are one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1072 days)
