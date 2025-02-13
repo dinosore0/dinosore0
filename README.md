@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Of course, to have money is just great because you can do what you think is important to you. I always was a rich person because money's not related to happiness. 
+  Kindness is a mark of faith, and whoever has no kindness has not faith. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1072 days)
