@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge is a treasure, but practice is the key to it. 
+  We have no right to assume that any physical laws exist, or if they have existed up until now, that they will continue to exist in a similar manner in the future. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1073 days)
