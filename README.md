@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
+  In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1074 days)
