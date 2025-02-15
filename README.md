@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We don't want tradition. We want to live in the present and the only history that is worth a tinker's dam is the history we make today. 
+  When I hear music, I fear no danger. I am invulnerable. I see no foe. I am related to the earliest times, and to the latest. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1074 days)
