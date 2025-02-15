@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves. 
+  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1074 days)
