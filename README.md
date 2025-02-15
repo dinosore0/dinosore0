@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes just when I say hello the right way, I'm like, 'Whoa, I'm so cool.' 
+  Climb the mountains and get their good tidings. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1074 days)
