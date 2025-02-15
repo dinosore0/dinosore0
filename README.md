@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We've demonstrated a strong track record of being very disciplined with the use of our cash. We don't let it burn a hole in our pocket, we don't allow it to motivate us to do stupid acquisitions. And so I think that we'd like to continue to keep our powder dry, because we do feel that there are one or more strategic opportunities in the future. 
+  When we are born we cry that we are come to this great stage of fools. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1074 days)
