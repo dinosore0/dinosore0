@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Absence and death are the same - only that in death there is no suffering. 
+  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1075 days)
