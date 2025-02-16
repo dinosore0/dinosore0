@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Riches come forth from one who owns little, while another of material wealth turns penniless. 
+  Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1075 days)
