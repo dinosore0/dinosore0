@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every young man would do well to remember that all successful business stands on the foundation of morality. 
+  Complainers change their complaints, but they never reduce the amount of time spent in complaining. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1076 days)
