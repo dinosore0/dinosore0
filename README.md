@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What would there be in a story of happiness? Only what prepares it, only what destroys it can be told. 
+  I think frugality drives innovation, just like other constraints do. One of the only ways to get out of a tight box is to invent your way out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1076 days)
