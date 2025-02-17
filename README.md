@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The art of art, the glory of expression and the sunshine of the light of letters, is simplicity. 
+  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1076 days)
