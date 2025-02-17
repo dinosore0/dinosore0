@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The universe is change; our life is what our thoughts make it. 
+  The ineffable joy of forgiving and being forgiven forms an ecstasy that might well arouse the envy of the gods. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1076 days)
