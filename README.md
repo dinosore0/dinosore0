@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Mystical explanations are thought to be deep; the truth is that they are not even shallow. 
+  The night is darkest just before the dawn. And I promise you the dawn is coming. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1077 days)
