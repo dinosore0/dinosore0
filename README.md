@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader. 
+  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1077 days)
