@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've come to believe that all my past failure and frustration were actually laying the foundation for the understandings that have created the new level of living I now enjoy. 
+  The difference between stupidity and genius is that genius has its limits. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1077 days)
