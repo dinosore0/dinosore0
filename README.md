@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So I've seen life as one long learning process. And if I see - you know, if I fly on somebody else's airline and find the experience is not a pleasant one, which it wasn't in - 21 years ago, then I'd think, well, you know, maybe I can create the kind of airline that I'd like to fly on. 
+  The fool doth think he is wise, but the wise man knows himself to be a fool. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1077 days)
