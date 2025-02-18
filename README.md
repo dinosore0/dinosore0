@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever you want to do in this world, it is achievable. The most important thing that I've found, that perhaps you could use, is be passionate and enthusiastic in the direction that you choose in life, and you'll be a winner. 
+  Money is the last enemy that shall never be subdued. While there is flesh there is money or the want of money, but money is always on the brain so long as there is a brain in reasonable order. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1077 days)
