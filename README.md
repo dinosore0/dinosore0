@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
+  The lunatic, the lover, and the poet, are of imagination; all compact. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1078 days)
