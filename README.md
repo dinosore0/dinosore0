@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. 
+  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1078 days)
