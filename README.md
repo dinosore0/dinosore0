@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Failure is the path of lease persistence. 
+  When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1078 days)
