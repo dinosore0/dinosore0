@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One should never forbid what one lacks the power to prevent. 
+  Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1078 days)
