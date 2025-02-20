@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  From the moment I picked your book up until I laid it down I was convulsed with laughter. Someday I intend reading it. 
+  Women love us for our defects. If we have enough of them, they will forgive us everything, even our gigantic intellects. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
