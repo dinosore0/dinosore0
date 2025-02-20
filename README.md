@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Accept challenges, so that you may feel the exhilaration of victory. 
+  If they want peace, nations should avoid the pin-pricks that precede cannon shots. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
