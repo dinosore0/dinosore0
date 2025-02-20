@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Communists have always played an active role in the fight by colonial countries for their freedom, because the short-term objects of Communism would always correspond with the long-term objects of freedom movements. 
+  “Perfection? Being the most human you can be” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
