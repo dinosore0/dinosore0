@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Depth of friendship does not depend on length of acquaintance. 
+  Truthful words are not beautiful beautiful words are not truthful. Good words are not persuasive persuasive words are not good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
