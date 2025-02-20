@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're emotional about investment, you're not going to do well. You may have all these feelings about the stock. The stock has no feelings about you. 
+  Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else you are the one who gets burned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
