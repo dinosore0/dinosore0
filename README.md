@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There aren't many downsides to being rich, other than paying taxes and having relatives asking for money. But being famous, that's a 24 hour job right there. 
+  When I have a dream, I don't have a life.  I live for the dream. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
