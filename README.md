@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Intelligence is the ability to avoid doing work, yet getting the work done. 
+  Evil is committed without effort, naturally, fatally goodness is always the product of some art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
