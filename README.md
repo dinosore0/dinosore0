@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If they want peace, nations should avoid the pin-pricks that precede cannon shots. 
+  Each age, it is found, must write its own books or rather, each generation for the next succeeding. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1079 days)
