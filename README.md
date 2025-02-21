@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am prepared for the worst, but hope for the best. 
+  I always looked really young for my age. And once I hit 23, 24 and 25, I was then allowed to play the cool 18-year-olds and stuff. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1079 days)
+## 🌟 Experiences (1080 days)
 
 ### 🧮 Programming languages
 
