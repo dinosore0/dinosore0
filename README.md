@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The means of defense against foreign danger historically have become the instruments of tyranny at home. 
+  People disparage knowing and the intellectual life, and urge doing. I am content with knowing, if only I could know. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1080 days)
