@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The role of leadership is to transform the complex situation into small pieces and prioritize them. 
+  If you wish to be a success in the world, promise everything, deliver nothing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1080 days)
