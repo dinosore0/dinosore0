@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am a child of God, an inheritor of a fragment of the mind that created all worlds. 
+  The means of defense against foreign danger historically have become the instruments of tyranny at home. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1080 days)
