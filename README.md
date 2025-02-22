@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best. 
+  To describe my mother would be to write about a hurricane in its perfect power. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1081 days)
