@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be kind whenever possible. It is always possible. 
+  In the business world, the rearview mirror is always clearer than the windshield. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1080 days)
+## 🌟 Experiences (1081 days)
 
 ### 🧮 Programming languages
 
