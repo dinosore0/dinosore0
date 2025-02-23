@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Irreligion - the principal one of the great faiths of the world. 
+  In rivers, the water that you touch is the last of what has passed and the first of that which comes so with present time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1082 days)
