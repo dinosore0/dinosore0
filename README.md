@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Rebellion without truth is like spring in a bleak, arid desert. 
+  All the forces in the world are not so powerful as an idea whose time has come. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1082 days)
