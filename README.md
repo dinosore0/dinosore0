@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Rule No. 1: Never lose money; rule No. 2: Don’t forget rule No. 1. 
+  Courage is doing what you're afraid to do.  There can be no courage unless you're scared. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1081 days)
+## 🌟 Experiences (1082 days)
 
 ### 🧮 Programming languages
 
