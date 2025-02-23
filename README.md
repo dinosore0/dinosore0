@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference. 
+  I don't understand it. Jack will spend any amount of money to buy votes but he balks at investing a thousand dollars in a beautiful painting. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1082 days)
