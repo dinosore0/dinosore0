@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never complain and never explain. 
+  When a hundred men stand together, each of them loses his mind and gets another one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1082 days)
+## 🌟 Experiences (1083 days)
 
 ### 🧮 Programming languages
 
