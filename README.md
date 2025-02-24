@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  America is the most grandiose experiment the world has seen, but, I am afraid, it is not going to be a success. 
+  Back off man, I'm a scientist. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1083 days)
