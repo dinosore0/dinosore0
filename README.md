@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is generally recognised that women are better than men at languages, personal relations and multi-tasking, but less good at map-reading and spatial awareness. It is therefore not unreasonable to suppose that women might be less good at mathematics and physics. 
+  Lost time is never found again. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1083 days)
