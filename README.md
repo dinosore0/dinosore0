@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best thing to do is stare it in the face and move on. We have to face our fears and plow through. I think taking chances takes a lot more courage than staying stagnant and doing what's safe and comfortable. 
+  If we don't know life, how can we know death? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1083 days)
