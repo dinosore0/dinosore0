@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
+  There’s about as much educational benefit studying dolphins in captivity as there would be studying mankind by only observing prisoners held in solitary. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1084 days)
