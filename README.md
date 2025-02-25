@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Holding onto anger is like drinking poison and expecting the other person to die. 
+  Time, which alone makes the reputation of men, ends by making their defects respectable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1084 days)
