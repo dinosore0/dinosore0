@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself. 
+  When the best leader's work is done the people say, 'We did it ourselves.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1085 days)
