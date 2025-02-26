@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are few things more liberating in this life than having your worst fear realized. 
+  You are that vast thing that you see far, far off with great telescopes. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1084 days)
+## 🌟 Experiences (1085 days)
 
 ### 🧮 Programming languages
 
