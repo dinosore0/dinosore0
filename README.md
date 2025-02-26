@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When the best leader's work is done the people say, 'We did it ourselves.' 
+  Most people have never learned that one of the main aims in life is to enjoy it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1085 days)
