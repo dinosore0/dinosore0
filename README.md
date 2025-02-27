@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
+  Faith - you can do very little with it, but you can do nothing without it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1086 days)
