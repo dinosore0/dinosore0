@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This is why I’m taking extra time to really try to get it right. I’ll have plenty of time to refine the style, but I want the basics solid. 
+  If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1086 days)
