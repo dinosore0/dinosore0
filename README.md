@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords. 
+  It is not because angels are holier than men or devils that makes them angels, but because they do not expect holiness from one another, but from God only. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1086 days)
