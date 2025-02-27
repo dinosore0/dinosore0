@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time. 
+  You cannot dream yourself into a character; you must hammer and forge yourself one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1086 days)
