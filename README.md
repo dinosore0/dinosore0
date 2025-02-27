@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nobody can give you wiser advice than yourself. 
+  Consider how hard it is to change yourself and you'll understand what little chance you have in trying to change others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1086 days)
