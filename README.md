@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Between falsehood and useless truth there is little difference. As gold which he cannot spend will make no man rich, so knowledge which cannot apply will make no man wise. 
+  In the end, it's not the years in your life that count. It's the life in your years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1086 days)
