@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything. 
+  Obviously one must hold oneself responsible for the evil impulses of one's dreams. In what other way can one deal with them? Unless the content of the dream rightly understood is inspired by alien spirits, it is part of my own being. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1087 days)
