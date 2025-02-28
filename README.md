@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Find a job you love and you'll never have to work again. 
+  I met in the street a very poor young man who was in love. His hat was old, his coat worn, his cloak was out at the elbows, the water passed through his shoes, - and the stars through his soul. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1087 days)
