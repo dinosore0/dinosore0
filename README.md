@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
+  All difficult things have their origin in that which is easy, and great things in that which is small. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1087 days)
