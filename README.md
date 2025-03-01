@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you tell people where to go, but not how to get there, you'll be amazed at the results. 
+  The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1088 days)
