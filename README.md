@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is no disguise which can hide love for long where it exists, or simulate it where it does not. 
+  The taxpayer - that's someone who works for the federal government but doesn't have to take the civil service examination. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1088 days)
