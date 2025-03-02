@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The purpose of education is to replace an empty mind with an open one. 
+  The difference between stupidity and genius is that genius has its limits. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1088 days)
+## 🌟 Experiences (1089 days)
 
 ### 🧮 Programming languages
 
