@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Consider how hard it is to change yourself and you'll understand what little chance you have in trying to change others. 
+  Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1089 days)
