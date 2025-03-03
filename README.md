@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I cannot make my days longer. So I strive to make them better. 
+  Women are never disarmed by compliments. Men always are. That is the difference between the sexes. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1090 days)
