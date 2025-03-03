@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half. 
+  What the mind of man can conceive and believe, it can achieve. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1090 days)
