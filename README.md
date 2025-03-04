@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If past history was all there was to the game, the richest people would be librarians. 
+  Real difficulties can be overcome; it is only the imaginary ones that are unconquerable 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1091 days)
