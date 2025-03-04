@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is amazing what you can accomplish if you do not care who gets the credit. 
+  Complexity is your enemy. Any fool can make something complicated. It is hard to make something simple. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1091 days)
