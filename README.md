@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
+  Politics is the entertainment branch of industry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1090 days)
+## 🌟 Experiences (1091 days)
 
 ### 🧮 Programming languages
 
