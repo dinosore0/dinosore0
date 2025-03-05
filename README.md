@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life and death are one thread, the same line viewed from different sides. 
+  Wisdom, compassion, and courage are the three universally recognized moral qualities of men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1092 days)
