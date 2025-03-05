@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Absence and death are the same - only that in death there is no suffering. 
+  He who would learn to fly one day must first learn to stand and walk and run and climb and dance one cannot fly into flying. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1092 days)
