@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith - you can do very little with it, but you can do nothing without it. 
+  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1092 days)
