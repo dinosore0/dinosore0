@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy. 
+  When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1093 days)
