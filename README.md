@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
+  Art is not a handicraft, it is the transmission of feeling the artist has experienced. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1093 days)
