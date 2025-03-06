@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am only one; but still I am one. I cannot do everything; but still I can do something. I will not refuse to do the something I can do. 
+  I made a mistake by being ejected from the presidency. Next time, I will choose a Cabinet which will allow me to be life President. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1093 days)
