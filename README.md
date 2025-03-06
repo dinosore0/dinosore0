@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great city is that which has the greatest man or woman: if it be a few ragged huts, it is still the greatest city in the whole world. 
+  You can make a difference. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1092 days)
+## 🌟 Experiences (1093 days)
 
 ### 🧮 Programming languages
 
