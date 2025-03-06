@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It seems like such a terrible shame that innocent civilians have to get hurt in wars, otherwise combat would be such a wonderfully healthy way to rid the human race of unneeded trash. 
+  Truth is the silliest thing under the sun. Try to get a living by the Truth and go to the Soup Societies. Heavens! Let any clergyman try to preach the Truth from its very stronghold, the pulpit, and they would ride him out of his church on his own pulpit bannister. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1093 days)
