@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the depth of winter I finally learned that there was in me an invincible summer. 
+  Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1093 days)
