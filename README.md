@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fact that we imagine ourselves to be right and everybody else wrong is the greatest of all obstacles in the path towards unity... 
+  If you never want to be criticized, for goodness' sake don't do anything new. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1093 days)
