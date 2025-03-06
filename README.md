@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the greatest of all virtues, because if you haven't courage, you may not have an opportunity to use any of the others. 
+  Imagination is the beginning of creation. You imagine what you desire, you will what you imagine and at last you create what you will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1093 days)
