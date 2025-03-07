@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I consider myself the end user.  I make movies that I would like. 
+  Truthful words are not beautiful beautiful words are not truthful. Good words are not persuasive persuasive words are not good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1094 days)
