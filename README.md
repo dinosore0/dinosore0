@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'd rather attempt to do something great and fail than to attempt to do nothing and succeed. 
+  Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1094 days)
