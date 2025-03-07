@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Here is the rule to remember in the future, When anything tempts you to be bitter: not, 'This is a misfortune' but 'To bear this worthily is good fortune.' 
+  You will not be punished for your anger, you will be punished by your anger. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1094 days)
