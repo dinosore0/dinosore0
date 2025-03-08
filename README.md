@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In my afternoon walk I would fain forget all my morning occupations and my obligations to society. 
+  My goal has never been to dominate the market.  My goal has always just been to just make a living. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1095 days)
