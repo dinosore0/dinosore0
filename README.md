@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never look at the brass. It only encourages them. 
+  If a business does well, the stock eventually follows. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1095 days)
