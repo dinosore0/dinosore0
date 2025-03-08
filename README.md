@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once you eliminate the impossible, whatever remains, no matter how improbable, must be the truth. 
+  Opportunity is missed by most people because it is dressed in overalls and looks like work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1095 days)
