@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. 
+  A man that studieth revenge keeps his own wounds green. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1095 days)
