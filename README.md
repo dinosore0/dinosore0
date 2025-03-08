@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Someone's sitting in the shade today because someone planted a tree a long time ago. 
+  In my afternoon walk I would fain forget all my morning occupations and my obligations to society. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1094 days)
+## 🌟 Experiences (1095 days)
 
 ### 🧮 Programming languages
 
