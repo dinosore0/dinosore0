@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And on top of that, when we work together we have a wonderful working relationship we push each other we challenge each other we laugh 80% of the time that we are together we're very fortunate. 
+  Silence is one of the great arts of conversation. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1096 days)
