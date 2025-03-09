@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always do right - It will please many people, and amaze the rest. 
+  By three methods we may learn wisdom: First, by reflection, which is noblest Second, by imitation, which is easiest and third by experience, which is the bitterest. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1096 days)
