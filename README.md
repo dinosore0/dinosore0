@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We don't want tradition. We want to live in the present and the only history that is worth a tinker's dam is the history we make today. 
+  I love things that age well - things that don't date, that stand the test of time and that become living examples of the absolute best. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1096 days)
