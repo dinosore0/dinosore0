@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I hear music, I fear no danger. I am invulnerable. I see no foe. I am related to the earliest times, and to the latest. 
+  The ceaseless labour of your life is to build the house of death. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1097 days)
