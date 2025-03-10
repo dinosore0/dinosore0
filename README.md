@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In rivers, the water that you touch is the last of what has passed and the first of that which comes so with present time. 
+  To be idle is a short road to death and to be diligent is a way of life foolish people are idle, wise people are diligent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1097 days)
