@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those who bring sunshine to the lives of others cannot keep it from themselves. 
+  I would rather walk with a friend in the dark than walk alone in the light. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1097 days)
