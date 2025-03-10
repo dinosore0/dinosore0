@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
+  The best thing about the future is that it comes one day at a time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1097 days)
