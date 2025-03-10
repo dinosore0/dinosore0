@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some people think that doctors and nurses can put scrambled eggs back in the shell. 
+  Anger is the enemy of non-violence and pride is a monster that swallows it up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1097 days)
