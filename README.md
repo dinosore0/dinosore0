@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you make any money, the government shoves you in the creek once a year with it in your pockets, and all that don't get wet you can keep. 
+  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1097 days)
