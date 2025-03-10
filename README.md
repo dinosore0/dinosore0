@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wisdom, compassion, and courage are the three universally recognized moral qualities of men. 
+  You know the good part about all those executions in Texas? Fewer Texans. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1097 days)
