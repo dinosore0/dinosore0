@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Education comes from within; you get it by struggle and effort and thought. 
+  I arise in the morning torn between a desire to improve the world and a desire to enjoy the world. This makes it hard to plan the day. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1098 days)
