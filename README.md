@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is impossible to live without failing at something, unless you live so cautiously that you might has well not have lived at all, in which case you have failed by default. 
+  When you sing with a group of people, you learn how to subsume yourself into a group consciousness because a capella singing is all about the immersion of the self into the community. That's one of the great feelings - to stop being me for a little while and to become us. That way lies empathy, the great social virtue. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1098 days)
