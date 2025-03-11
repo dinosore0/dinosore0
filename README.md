@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let your schooling interfere with your education. 
+  Young love is a flame very pretty, often very hot and fierce, but still only light and flickering. The love of the older and disciplined heart is as coals, deep-burning, unquenchable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1098 days)
