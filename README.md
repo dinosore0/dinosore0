@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Accept challenges, so that you may feel the exhilaration of victory. 
+  I have great hopes that we shall love each other all our lives as much as if we had never married at all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1098 days)
