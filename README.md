@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The future is no more uncertain than the present. 
+  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1099 days)
