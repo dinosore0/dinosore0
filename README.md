@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A work of art is the unique result of a unique temperament. 
+  To his dog, every man is Napoleon; hence the constant popularity of dogs. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1098 days)
+## 🌟 Experiences (1099 days)
 
 ### 🧮 Programming languages
 
