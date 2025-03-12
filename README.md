@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are the only real aristocracy in the world: the aristocracy of money. 
+  I made a mistake by being ejected from the presidency. Next time, I will choose a Cabinet which will allow me to be life President. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1099 days)
