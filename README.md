@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I met Woz when I was 13, at a friend's garage. He was about 18. He was, like, the first person I met who knew more electronics than I did at that point. We became good friends, because we shared an interest in computers and we had a sense of humor. We pulled all kinds of pranks together. 
+  Shun no toil to make yourself remarkable by some talent or other yet do not devote yourself to one branch exclusively. Strive to get clear notions about all. Give up no science entirely for science is but one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1099 days)
