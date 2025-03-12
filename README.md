@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
+  I met Woz when I was 13, at a friend's garage. He was about 18. He was, like, the first person I met who knew more electronics than I did at that point. We became good friends, because we shared an interest in computers and we had a sense of humor. We pulled all kinds of pranks together. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1099 days)
