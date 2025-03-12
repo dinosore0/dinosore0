@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who is the author of a war lets loose the whole contagion of hell and opens a vein that bleeds a nation to death. 
+  The most splendid achievment of all is the constant striving to surpass yourself and to be worthy of your own approval. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1099 days)
