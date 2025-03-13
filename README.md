@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By three methods we may learn wisdom: First, by reflection, which is noblest Second, by imitation, which is easiest and third by experience, which is the bitterest. 
+  I think the biggest disease the world suffers from in this day and age is the disease of people feeling unloved. I know that I can give love for a minute, for half an hour, for a day, for a month, but I can give. I am very happy to do that, I want to do that. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1100 days)
