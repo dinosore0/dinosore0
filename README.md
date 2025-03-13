@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
+  My goal is to live until I die. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1100 days)
