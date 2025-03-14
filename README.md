@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Telling a teenager the facts of life is like giving a fish a bath. 
+  body152711 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1100 days)
+## 🌟 Experiences (1101 days)
 
 ### 🧮 Programming languages
 
