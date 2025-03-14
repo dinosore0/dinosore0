@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The very concept of objective truth is fading out of the world. Lies will pass into history. 
+  When it comes to life the critical thing is whether you take things for granted or take them with gratitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1101 days)
