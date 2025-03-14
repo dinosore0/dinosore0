@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Real difficulties can be overcome; it is only the imaginary ones that are unconquerable 
+  As usual, there is a great woman behind every idiot. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1101 days)
