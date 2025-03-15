@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In order to find truth we must give up our prejudices, our own small trivial notions; an open receptive mind is essential. If our chalice is full of self, there is no room in it for the water of life. 
+  Intellectual growth should commence at birth and cease only at death. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1102 days)
