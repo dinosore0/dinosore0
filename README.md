@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our greatest glory is not in never failing, but in rising up every time we fail. 
+  Every formula of every religion has in this age of reason, to submit to the acid test of reason and universal assent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1102 days)
