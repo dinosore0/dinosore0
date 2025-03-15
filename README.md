@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
+  Happiness is nothing more than good health and a bad memory. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1102 days)
