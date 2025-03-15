@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Great acts are made up of small deeds. 
+  It is not necessary that you leave the house. Remain at your table and listen. Do not even listen, only wait. Do not even wait, be wholly still and alone. The world will present itself to you for its unmasking, it can do no other, in ecstasy it will writhe at your feet. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1102 days)
