@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is there more kindly than the feeling between host and guest? 
+  And the first rude sketch that the world had seen was joy to his mighty heart, till the Devil whispered behind the leaves 'It's pretty, but is it Art?' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1102 days)
