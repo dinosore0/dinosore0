@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We don't want tradition. We want to live in the present and the only history that is worth a tinker's dam is the history we make today. 
+  I forgot to shake hands and be friendly. It was an important lesson about leadership. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1102 days)
