@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My size has helped make me an amazing performer too. The cliche of the Funny Fat Friend: I absolutely was that character - I am that character... It's a complicated bag of tools I acquired, and I've put them all to work onstage. 
+  To have no time for philosophy is to be a true philosopher. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1103 days)
