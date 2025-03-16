@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Leadership is getting someone to do what they don't want to do, to achieve what they want to achieve. 
+  What we call happiness in the strictest sense comes from the (preferably sudden) satisfaction of needs which have been dammed up to a high degree. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1103 days)
