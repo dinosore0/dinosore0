@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There's a victory, and defeat the first and best of victories, the lowest and worst of defeats which each man gains or sustains at the hands not of another, but of himself. 
+  Courage is knowing what not to fear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1104 days)
