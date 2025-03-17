@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The face you have at age 25 is the face God gave you, but the face you have after 50 is the face you earned. 
+  Williams-Nelson 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1103 days)
+## 🌟 Experiences (1104 days)
 
 ### 🧮 Programming languages
 
