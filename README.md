@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are fathers who do not love their children; there is no grandfather who does not adore his grandson. 
+  The most courageous act is still to think for yourself. Aloud. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1104 days)
