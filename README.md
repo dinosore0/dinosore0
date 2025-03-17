@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. 
+  An approximate answer to the right problem is worth a good deal more than an exact answer to an approximate problem. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1104 days)
