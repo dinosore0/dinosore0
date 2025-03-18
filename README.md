@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “Nothing is more fruitful for man than the knowledge of his own shortcomings.” 
+  God will never direct us to be prideful, arrogant and unforgiving, immoral or slothful or full of fear. We step into these things because we are insensitive to the leadership of the Holy Spirit within us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1105 days)
