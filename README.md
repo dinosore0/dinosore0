@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is one of the beautiful compensations in this life that no one can sincerely try to help another without helping himself. 
+  “Nothing is more fruitful for man than the knowledge of his own shortcomings.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1105 days)
