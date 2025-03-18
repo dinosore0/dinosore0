@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is no lonelier man in death, except the suicide, than that man who has lived many years with a good wife and then outlived her. If two people love each other there can be no happy end to it. 
+  It is a bit embarrassing to have been concerned with the human problem all one's life and find at the end that one has no more to offer by way of advice than 'try to be a little kinder.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1105 days)
