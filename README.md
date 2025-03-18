@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not agree with what you have to say, but I'll defend to the death your right to say it. 
+  Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1105 days)
