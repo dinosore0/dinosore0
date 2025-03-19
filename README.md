@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best evaluation I can make of a player is to look in his eyes and see how scared they are. 
+  Cowards die many times before their deaths; the valiant never taste of death but once. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1106 days)
