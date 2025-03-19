@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In my afternoon walk I would fain forget all my morning occupations and my obligations to society. 
+  Win as if you were used to it, lose as if you enjoyed it for a change. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1106 days)
