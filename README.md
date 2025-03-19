@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Perfect happiness is a beautiful sunset, the giggle of a grandchild, the first snowfall. It’s the little things that make happy moments, not the grand events. Joy comes in sips, not gulps. 
+  When I examine myself and my methods of thought I come to the conclusion that the gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1106 days)
