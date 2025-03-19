@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Millions of men have lived to fight, build palaces and boundaries, shape destinies and societies but the compelling force of all times has been the force of originality and creation profoundly affecting the roots of human spirit. 
+  To travel is to discover that everyone is wrong about other countries. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1106 days)
