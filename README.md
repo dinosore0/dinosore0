@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I examine myself and my methods of thought I come to the conclusion that the gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
+  Learning to program teaches you how to think. Computer science is a liberal art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1106 days)
