@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take a chance! All life is a chance. The man who goes farthest is generally the one who is willing to do and dare. 
+  You know, I have found a new way to get high and stay spaced out for hours on end, and the government can't stop me... It's called senility. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1107 days)
