@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down. 
+  “You only live once, but if you do it right, once is enough.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1108 days)
