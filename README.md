@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Peace cannot be achieved through violence, it can only be attained through understanding. 
+  The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1108 days)
