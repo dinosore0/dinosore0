@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you think about quitting, think about why you started 
+  Pretty much at all times music motivates me. How can I say this without sounding in any way proud of myself? Obviously I've always written songs that are critical of our government, and talk about our times. Hopefully you attempt to be timeless while doing it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1108 days)
