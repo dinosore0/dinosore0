@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
+  If the machine of government is of such a nature that it requires you to be the agent of injustice to another, then, I say, break the law. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1109 days)
