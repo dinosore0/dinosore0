@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow. 
+  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1108 days)
+## 🌟 Experiences (1109 days)
 
 ### 🧮 Programming languages
 
