@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
+  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1109 days)
