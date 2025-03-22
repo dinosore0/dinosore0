@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
+  I read and walked for miles at night along the beach, writing bad blank verse and searching endlessly for someone wonderful who would step out of the darkness and change my life. It never crossed my mind that that person could be me. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1109 days)
