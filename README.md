@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There’s about as much educational benefit studying dolphins in captivity as there would be studying mankind by only observing prisoners held in solitary. 
+  Opportunities are usually disguised as hard work, so most people don't recognize them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1109 days)
