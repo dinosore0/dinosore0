@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.' 
+  Chains of habit are too light to be felt until they are too heavy to be broken. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1109 days)
