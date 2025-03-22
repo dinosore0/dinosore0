@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am not a saint, unless you think of a saint as a sinner who keeps on trying. 
+  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1109 days)
