@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Rhetoric is the art of ruling the minds of men. 
+  Science may have found a cure for most evils but it has found no remedy for the worst of them all - the apathy of human beings. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1110 days)
