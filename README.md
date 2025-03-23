@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. 
+  I constantly look up words and meanings in search of the perfect variable, method, and class names. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1110 days)
