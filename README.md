@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The death of a beautiful woman, is unquestionably the most poetical topic in the world. 
+  I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1110 days)
