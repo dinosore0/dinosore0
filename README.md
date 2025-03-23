@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are two ways to think about what money buys. There's the standard of living, which can be measured in dollars, and there's the quality of your life, which can't be measured at all. 
+  The fool doth think he is wise, but the wise man knows himself to be a fool. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1110 days)
