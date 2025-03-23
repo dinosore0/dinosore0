@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fool doth think he is wise, but the wise man knows himself to be a fool. 
+  Each problem has hidden in it an opportunity so powerful that it literally dwarfs the problem. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1110 days)
