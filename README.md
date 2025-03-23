@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Friendship may, and often does, grow into love, but love never subsides into friendship. 
+  I believe there is something out there watching us. Unfortunately, it's the government. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1110 days)
