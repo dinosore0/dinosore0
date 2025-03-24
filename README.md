@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Profit in business comes from repeat customers, customers that boast about your project or service, and that bring friends with them. 
+  I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1111 days)
