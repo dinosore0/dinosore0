@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Climate change is a terrible problem, and it absolutely needs to be solved. It deserves to be a huge priority. 
+  It is by acts and not by ideas that people live. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1111 days)
