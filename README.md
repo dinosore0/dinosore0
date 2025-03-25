@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution. 
+  People who don't take risks generally make about two big mistakes a year. People who do take risks generally make about two big mistakes a year. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1112 days)
