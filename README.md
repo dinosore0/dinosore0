@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let the future disturb you. You will meet it, if you have to, with the same weapons of reason which today arm you against the present. 
+  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1112 days)
