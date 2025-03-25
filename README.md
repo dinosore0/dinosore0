@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
+  There are only two kinds of languages: the ones people complain about and the ones nobody uses. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1112 days)
