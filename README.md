@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As usual, there is a great woman behind every idiot. 
+  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1112 days)
