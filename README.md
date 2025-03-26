@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If there is any delay in that feedback loop between thinking of something and seeing it and building on it, then there is this whole world of ideas which will never be. 
+  Life isn't about finding yourself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1113 days)
