@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tie your self worth to something that you will lose, and you'll be left with nothing. 
+  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1113 days)
