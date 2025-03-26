@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'd rather entrust the government of the United States to the first 400 people listed in the Boston telephone directory than to the faculty of Harvard University. 
+  yeah this could actually be a dope rap beat 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1112 days)
+## 🌟 Experiences (1113 days)
 
 ### 🧮 Programming languages
 
