@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
+  If you suffer, thank God! It is a sure sign that you are alive. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1113 days)
