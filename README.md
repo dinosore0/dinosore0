@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever you want to do in this world, it is achievable. The most important thing that I've found, that perhaps you could use, is be passionate and enthusiastic in the direction that you choose in life, and you'll be a winner. 
+  The face you have at age 25 is the face God gave you, but the face you have after 50 is the face you earned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1113 days)
