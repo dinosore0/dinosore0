@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I wanted to project myself forward to age 80 and say, 'OK, I'm looking back on my life. I want to minimize the number of regrets I have.' 
+  I’m no genius, but I’m smart in spots, and I stay around those spots. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1113 days)
