@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always bear in mind that your own resolution to succeed is more important than any other. 
+  Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1113 days)
