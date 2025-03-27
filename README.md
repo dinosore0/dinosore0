@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do what makes u feel alive never belive anyone is for u cuz in the end u stand alone 
+  I'm a heroine addict. I need to have sex with women who have saved someone's life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1114 days)
