@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Peace if possible, truth at all costs. 
+  The greater the difficulty, the more the glory in surmounting it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1113 days)
+## 🌟 Experiences (1114 days)
 
 ### 🧮 Programming languages
 
