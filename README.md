@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before we acquire great power we must acquire wisdom to use it well. 
+  Love and compassion are necessities, not luxuries. Without them humanity cannot survive. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1114 days)
