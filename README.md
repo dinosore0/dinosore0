@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The role of leadership is to transform the complex situation into small pieces and prioritize them. 
+  Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1114 days)
