@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You could rattle the stars. You could do anything, if you only dared. And deep down, you know it too, and that’s what scares you the most 
+  I have great hopes that we shall love each other all our lives as much as if we had never married at all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1115 days)
