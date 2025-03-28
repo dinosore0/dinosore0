@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Shortly after I met Bill Gates, Bill's dad asked each of us to write down on a piece of paper one word that would best describe what had helped us the most. Bill and I, without any collaboration at all, each wrote the word "focus. 
+  Battle is the most magnificent competition in which a human being can indulge. It brings out all that is best it removes all that is base. All men are afraid in battle. The coward is the one who lets his fear overcome his sense of duty. Duty is the essence of manhood. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1115 days)
