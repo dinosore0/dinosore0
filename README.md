@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bird perched on a branch is never afraid of the branch breaking.  Her trust is in her wings. 
+  How incessant and great are the ills with which a prolonged old age is replete. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1115 days)
