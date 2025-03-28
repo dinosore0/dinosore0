@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best way to create the future is to: Act. Learn. Build. Repeat. 
+  Of life's two chief prizes, beauty and truth, I found the first in a loving heart and the second in a laborer's hand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1115 days)
