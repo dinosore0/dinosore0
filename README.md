@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The traveler sees what he sees, the tourist sees what he has come to see. 
+  No passion in the world is equal to the passion to alter someone else's draft. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1116 days)
