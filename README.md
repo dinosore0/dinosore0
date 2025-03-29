@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No passion in the world is equal to the passion to alter someone else's draft. 
+  One morning I shot an elephant in my pajamas. How he got into my pajamas I'll never know. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1116 days)
