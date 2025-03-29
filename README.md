@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How incessant and great are the ills with which a prolonged old age is replete. 
+  This is my quote for performance testing 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1115 days)
+## 🌟 Experiences (1116 days)
 
 ### 🧮 Programming languages
 
