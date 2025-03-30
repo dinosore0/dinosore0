@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We choose to go to the moon in this decade and do the other things, not because they are easy, but because they are hard. 
+  Once you eliminate the impossible, whatever remains, no matter how improbable, must be the truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1117 days)
