@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once you eliminate the impossible, whatever remains, no matter how improbable, must be the truth. 
+  It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1117 days)
