@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The words were on their way, and when they arrived, she would hold them in her hands like clouds, and she would ring them out like the rain. 
+  Climate change is a terrible problem, and it absolutely needs to be solved. It deserves to be a huge priority. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1117 days)
