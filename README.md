@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The hardest thing to learn in life is which bridge to cross and which to burn. 
+  Great men are they who see that spiritual is stronger than any material force - that thoughts rule the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1118 days)
