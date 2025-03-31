@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Age is an issue of mind over matter. If you don't mind, it doesn't matter. 
+  To have no time for philosophy is to be a true philosopher. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1118 days)
