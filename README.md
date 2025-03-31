@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A fool's brain digests philosophy into folly, science into superstition, and art into pedantry. Hence University education. 
+  If you think you can do a thing or think you can't do a thing, you're right. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1117 days)
+## 🌟 Experiences (1118 days)
 
 ### 🧮 Programming languages
 
