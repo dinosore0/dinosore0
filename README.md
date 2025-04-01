@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To hope means to be ready at every moment for that which is not yet born, and yet not become desperate if there is no birth in our lifetime. 
+  In politics, nothing happens by accident. If it happens, you can bet it was planned that way. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1119 days)
