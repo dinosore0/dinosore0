@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
+  The first virtue in a soldier is endurance of fatigue; courage is only the second virtue. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1119 days)
