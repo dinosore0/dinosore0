@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The superior man is distressed by the limitations of his ability he is not distressed by the fact that men do not recognize the ability that he has. 
+  It is better to be violent, if there is violence in our hearts, than to put on the cloak of nonviolence to cover impotence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1119 days)
