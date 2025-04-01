@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In politics, nothing happens by accident. If it happens, you can bet it was planned that way. 
+  There is in true beauty, as in courage, something which narrow souls cannot dare to admire. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1119 days)
