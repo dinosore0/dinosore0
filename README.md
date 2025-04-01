@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A fool's brain digests philosophy into folly, science into superstition, and art into pedantry. Hence University education. 
+  Age is an issue of mind over matter. If you don't mind, it doesn't matter. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1119 days)
