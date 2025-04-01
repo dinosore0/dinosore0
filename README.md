@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A spoonful of honey will catch more flies than a gallon of vinegar. 
+  Fear clogs faith liberates. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1118 days)
+## 🌟 Experiences (1119 days)
 
 ### 🧮 Programming languages
 
