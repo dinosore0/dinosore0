@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you. 
+  Love and work are the cornerstones of our humanness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1119 days)
+## 🌟 Experiences (1120 days)
 
 ### 🧮 Programming languages
 
