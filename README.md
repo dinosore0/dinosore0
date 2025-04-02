@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What we achieve inwardly will change outer reality. 
+  Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1120 days)
