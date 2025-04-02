@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards. 
+  If you accept the expectations of others, especially negative ones, then you never will change the outcome. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1120 days)
