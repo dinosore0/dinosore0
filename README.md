@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The wicked leader is he who the people despise. The good leader is he who the people revere. The great leader is he who the people say, 'We did it ourselves.' 
+  In the old world, you devoted 30% of your time to building a great service and 70% of your time to shouting about it. In the new world, that inverts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1121 days)
