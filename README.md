@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not believe in the God of theology who rewards good and punishes evil. 
+  Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1120 days)
+## 🌟 Experiences (1121 days)
 
 ### 🧮 Programming languages
 
