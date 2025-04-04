@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who dares to waste one hour of life has not discovered the value of life. 
+  In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1122 days)
