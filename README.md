@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without tradition, art is a flock of sheep without a shepherd. Without innovation, it is a corpse. 
+  As the poet said, 'Only God can make a tree,' probably because it's so hard to figure out how to get the bark on. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1123 days)
