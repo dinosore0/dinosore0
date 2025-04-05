@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think music is the greatest art form that exists, and I think people listen to music for different reasons, and it serves different purposes. Some of it is background music, and some of it is things that might affect a person's day, if not their life, or change an attitude. The best songs are the ones that make you feel something. 
+  There's no 'deep stat' looking to bring down elected officials and political leaders that represents a deep-seated center of power. . .but it's true in a way that should cause Americans to sleep better at night. There's a culture in the military, in the intelligence agencies, and in law enforcement that's rooted in the rule of law and reverence for the Constitution. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1123 days)
