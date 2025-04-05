@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As the poet said, 'Only God can make a tree,' probably because it's so hard to figure out how to get the bark on. 
+  If you suffer, thank God! It is a sure sign that you are alive. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1123 days)
