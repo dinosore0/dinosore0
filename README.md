@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life isn't about finding yourself. Life is about creating yourself. 
+  You know, religion itself, Eastern and Western, is divisive and quarrelsome anyway. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1123 days)
