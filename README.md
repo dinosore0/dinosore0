@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I’ve learned anything from video games, it is that when you meet enemies, it means that you’re going in the right direction. 
+  Character is higher than intellect. A great soul will be strong to live as well as think. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1124 days)
