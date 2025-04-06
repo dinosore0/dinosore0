@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The act of birth is the first experience of anxiety, and thus the source and prototype of the affect of anxiety. 
+  I love sleep. My life has the tendency to fall apart when I'm awake, you know? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1123 days)
+## 🌟 Experiences (1124 days)
 
 ### 🧮 Programming languages
 
