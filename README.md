@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For awhile after you quit Keats all other poetry seems to be only whistling or humming. 
+  If God treats you well by teaching you a disastrous lesson, you never forget it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1125 days)
