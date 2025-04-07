@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fear defeats more people than any other one thing in the world. 
+  The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1125 days)
