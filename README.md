@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always desire to learn something useful. 
+  I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1126 days)
+## 🌟 Experiences (1127 days)
 
 ### 🧮 Programming languages
 
