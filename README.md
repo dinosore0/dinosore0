@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Being busy does not always mean real work. The object of all work is production or accomplishment and to either of these ends there must be forethought, system, planning, intelligence, and honest purpose, as well as perspiration. Seeming to do is not doing. 
+  Great is truth, but still greater, from a practical point of view, is silence about truth. By simply not mentioning certain subjects... totalitarian propagandists have influenced opinion much more effectively than they could have by the most eloquent denunciations. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1127 days)
