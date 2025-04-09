@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Artists don't talk about art. Artists talk about work. If I have anything to say to young writers, it's stop thinking of writing as art. Think of it as work. 
+  Flattery is like cologne; water, to be smelt, not swallowed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1127 days)
