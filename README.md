@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Average acting is like jerking without an orgasm 
+  Fortune, which has a great deal of power in other matters but especially in war, can bring about great changes in a situation through very slight forces. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1128 days)
