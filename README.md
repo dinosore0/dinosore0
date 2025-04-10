@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Heaven means to be one with God. 
+  An insincere and evil friend is more to be feared than a wild beast a wild beast may wound your body, but an evil friend will wound your mind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1128 days)
