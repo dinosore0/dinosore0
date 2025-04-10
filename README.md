@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True terror is to wake up one morning and discover that your high school class is running the country. 
+  The fool doth think he is wise, but the wise man knows himself to be a fool. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1128 days)
