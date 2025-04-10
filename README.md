@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fortune, which has a great deal of power in other matters but especially in war, can bring about great changes in a situation through very slight forces. 
+  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1128 days)
