@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have one life it soon will be past what we do for God is all that will last. 
+  Advertising has us chasing cars and clothes, working jobs we hate so we can buy s--t we don't need. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1128 days)
