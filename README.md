@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are continually faced by great opportunities brilliantly disguised as insoluble problems. 
+  My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1128 days)
