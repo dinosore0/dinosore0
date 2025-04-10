@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Advertising has us chasing cars and clothes, working jobs we hate so we can buy s--t we don't need. 
+  A picture is worth a thousand words. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1128 days)
