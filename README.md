@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
+  Two possibilities exist: Either we are alone in the Universe or we are not. Both are equally terrifying. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1129 days)
