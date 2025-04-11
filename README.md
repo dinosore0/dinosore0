@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Crime and bad lives are the measure of a State's failure, all crime in the end is the crime of the community. 
+  Freedom is what you do with what's been done to you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1129 days)
