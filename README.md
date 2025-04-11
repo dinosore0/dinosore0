@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not death that a man should fear, but he should fear never beginning to live. 
+  When I admire the wonders of a sunset or the beauty of the moon, my soul expands in the worship of the creator. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1129 days)
