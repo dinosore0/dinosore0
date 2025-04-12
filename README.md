@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods. 
+  Winning is half the battle.  Losing is the other half. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1130 days)
