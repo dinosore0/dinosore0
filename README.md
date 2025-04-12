@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The wicked leader is he who the people despise. The good leader is he who the people revere. The great leader is he who the people say, 'We did it ourselves.' 
+  Art is not a handicraft, it is the transmission of feeling the artist has experienced. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1130 days)
