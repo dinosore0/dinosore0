@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People really don’t like to hear success explained away as luck — especially successful people. 
+  The supreme happiness of life is the conviction that we are loved loved for ourselves, or rather in spite of ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1130 days)
