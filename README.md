@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
+  He that does good to another does good also to himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1131 days)
