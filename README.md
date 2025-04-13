@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If our soldiers are not overburdened with money, it is not because they have a distaste for riches if their lives are not unduly long, it is not because they are disinclined to longevity. 
+  Every young man would do well to remember that all successful business stands on the foundation of morality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1131 days)
