@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  An approximate answer to the right problem is worth a good deal more than an exact answer to an approximate problem. 
+  The purpose of Compulsory Education is to deprive the common people of their commonsense. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1131 days)
