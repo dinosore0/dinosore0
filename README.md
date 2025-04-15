@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have decided to stick with love. Hate is too great a burden to bear. 
+  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1133 days)
