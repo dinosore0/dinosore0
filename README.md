@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For the introduction of a new kind of music must be shunned as imperiling the whole state since styles of music are never disturbed without affecting the most important political institutions. 
+  My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1133 days)
