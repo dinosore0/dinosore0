@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
+  A man loves the meat in his youth that he cannot endure in his age. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1133 days)
