@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Animals that we eat are raised for food in the most economical way possible, and the serious food producers do it in the most humane way possible. I think anyone who is a carnivore needs to understand that meat does not originally come in these neat little packages. 
+  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1133 days)
