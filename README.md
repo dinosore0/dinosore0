@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Immature love says: 'I love you because I need you.' Mature love says 'I need you because I love you.' 
+  If we love our country, we should also love our countrymen. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1133 days)
