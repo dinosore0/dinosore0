@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would no longer see barricades. Stumbling blocks would now be seen as stepping stones to something better. 
+  What is moral is what you feel good after, and what is immoral is what you feel bad after. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
