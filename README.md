@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without health, life is not life, it is only a state of langour and suffering - an image of death. 
+  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
