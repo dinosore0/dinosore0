@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It seems like such a terrible shame that innocent civilians have to get hurt in wars, otherwise combat would be such a wonderfully healthy way to rid the human race of unneeded trash. 
+  Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
