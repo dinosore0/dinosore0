@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ineffable joy of forgiving and being forgiven forms an ecstasy that might well arouse the envy of the gods. 
+  Without health, life is not life, it is only a state of langour and suffering - an image of death. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
