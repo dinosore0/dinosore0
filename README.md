@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything human is pathetic. The secret source of humor itself is not joy but sorrow. There is no humor in heaven. 
+  If you pursue good with labor, the labor passes away but the good remains if you pursue evil with pleasure, the pleasure passes away and the evil remains. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
