@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
+  The quality of a leader is reflected in the standards they set for themselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
