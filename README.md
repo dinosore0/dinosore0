@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Money has never made man happy, nor will it, there is nothing in its nature to produce happiness. The more of it one has the more one wants. 
+  Hard choices, easy life. Easy choices, hard life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
