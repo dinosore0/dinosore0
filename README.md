@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The difference between stupidity and genius is that genius has its limits. 
+  I chose life over death for myself and my friends... I believe it is in our nature to explore, to reach out into the unknown. The only true failure would be not to explore at all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1134 days)
