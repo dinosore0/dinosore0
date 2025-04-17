@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Real knowledge is to know the extent of one's ignorance. 
+  For the introduction of a new kind of music must be shunned as imperiling the whole state since styles of music are never disturbed without affecting the most important political institutions. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1134 days)
+## 🌟 Experiences (1135 days)
 
 ### 🧮 Programming languages
 
