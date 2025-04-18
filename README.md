@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There aren't many downsides to being rich, other than paying taxes and having relatives asking for money. But being famous, that's a 24 hour job right there. 
+  Life is not about how fast you run or how high you climb but how well you bounce. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1136 days)
