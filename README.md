@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not doing the thing we like to do, but liking the thing we have to do, that makes life blessed. 
+  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1136 days)
