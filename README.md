@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When Thomas Edison worked late into the night on the electric light, he had to do it by gas lamp or candle. I'm sure it made the work seem that much more urgent. 
+  Reversing your treatment of the man you have wronged is better than asking his forgiveness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1136 days)
