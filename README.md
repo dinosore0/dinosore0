@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Each age, it is found, must write its own books or rather, each generation for the next succeeding. 
+  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1136 days)
