@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great end of life is not knowledge but action. 
+  Men always talk about the most important things to perfect strangers. In the perfect stranger we perceive man himself; the image of a God is not disguised by resemblances to an uncle or doubts of wisdom of a mustache. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1137 days)
