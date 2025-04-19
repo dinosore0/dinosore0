@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Disneyland is a work of love. We didn't go into Disneyland just with the idea of making money. 
+  If I have seen further it is only by standing on the shoulders of giants. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1137 days)
