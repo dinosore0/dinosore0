@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good advice is something a man gives when he is too old to set a bad example. 
+  The troubles of this world pass, and what we have left is what we have made of our souls... 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1137 days)
