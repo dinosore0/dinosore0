@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's better to be unhappy alone than unhappy with someone - so far. 
+  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1137 days)
