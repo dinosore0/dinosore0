@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hate facts. I always say the chief end of man is to form general propositions - adding that no general proposition is worth a d--n. 
+  Learning to program teaches you how to think. Computer science is a liberal art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1137 days)
