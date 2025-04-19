@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Failure is simply the opportunity to begin again, this time more intelligently. 
+  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1137 days)
