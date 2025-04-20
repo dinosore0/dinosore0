@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  test 
+  Don't you stay at home of evenings? Don't you love a cushioned seat in a corner, by the fireside, with your slippers on your feet? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1138 days)
