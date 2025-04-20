@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There comes a pause, for human strength will not endure to dance without cessation and everyone must reach the point at length of absolute prostration. 
+  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1138 days)
