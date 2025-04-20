@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best way to find out if you can trust somebody is to trust them. 
+  Why do you assume you're the smartest in the room? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1137 days)
+## 🌟 Experiences (1138 days)
 
 ### 🧮 Programming languages
 
