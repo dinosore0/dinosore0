@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By three methods we may learn wisdom: First, by reflection, which is noblest Second, by imitation, which is easiest and third by experience, which is the bitterest. 
+  When I have a dream, I don't have a life.  I live for the dream. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1138 days)
