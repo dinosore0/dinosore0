@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Imagination is the beginning of creation. You imagine what you desire, you will what you imagine and at last you create what you will. 
+  Some cause happiness wherever they go; others whenever they go. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1139 days)
