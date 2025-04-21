@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. 
+  A man that studieth revenge keeps his own wounds green. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1139 days)
