@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I have a dream, I don't have a life.  I live for the dream. 
+  A positive attitude gives you power over your circumstances instead of circumstances having power over you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1138 days)
+## 🌟 Experiences (1139 days)
 
 ### 🧮 Programming languages
 
