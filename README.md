@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing gives rest but the sincere search for truth. 
+  My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1140 days)
