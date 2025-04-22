@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nature has planted in our minds an insatiable longing to see the truth. 
+  I don't believe in the after life, although I am bringing a change of underwear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1139 days)
+## 🌟 Experiences (1140 days)
 
 ### 🧮 Programming languages
 
