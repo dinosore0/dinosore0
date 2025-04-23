@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am tormented with an everlasting itch for things remote. I love to sail forbidden seas. 
+  I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1141 days)
