@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If our soldiers are not overburdened with money, it is not because they have a distaste for riches if their lives are not unduly long, it is not because they are disinclined to longevity. 
+  I am tormented with an everlasting itch for things remote. I love to sail forbidden seas. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1141 days)
