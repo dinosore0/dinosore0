@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I believe it's time that women truly owned their superpowers and used their beauty and strength to change the world around them. 
+  Just as a candle cannot burn without fire, men cannot live without a spiritual life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1141 days)
