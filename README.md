@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He that will not apply new remedies must expect new evils for time is the greatest innovator. 
+  Often when you think you’re at the end of something, you’re at the beginning of something else. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1141 days)
