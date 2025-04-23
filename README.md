@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
+  That the saints may enjoy their beatitude and the grace of God more abundantly they are permitted to see the punishment of the damned in hell. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1141 days)
