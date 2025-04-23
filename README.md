@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The shock of any trauma, I think changes your life. It's more acute in the beginning and after a little time you settle back to what you were. However it leaves an indelible mark on your psyche. 
+  He that will not apply new remedies must expect new evils for time is the greatest innovator. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1141 days)
