@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm not comfortable being around too many people. I don't like being out in public too much. I don't like going to bars. I don't like doing celebrity stuff. So most of the characters I play are people who don't always feel comfortable beyond their small circle of friends. 
+  You know, I have found a new way to get high and stay spaced out for hours on end, and the government can't stop me... It's called senility. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1142 days)
