@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My message, especially to young people is to have courage to think differently, courage to invent, to travel the unexplored path, courage to discover the impossible and to conquer the problems and succeed. These are great qualities that they must work towards. This is my message to the young people. 
+  The present moment has always been available to spiritual seekers, but as long as you are seeking you are not available to the present moment. “Seeking” implies that you are looking to the future for some answer, or for some achievement, spiritual or otherwise. Everybody is in the seeking mode, seeking to add something to who they are, whether it be money, relationships, possessions, knowledge, status.. or spiritual attainment 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1142 days)
