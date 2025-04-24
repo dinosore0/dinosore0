@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
+  A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1142 days)
