@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
+  When someone shows you who they are, believe them the first time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1142 days)
