@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Reversing your treatment of the man you have wronged is better than asking his forgiveness. 
+  Hold yourself responsible for a higher standard than anybody expects of you. Never excuse yourself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1141 days)
+## 🌟 Experiences (1142 days)
 
 ### 🧮 Programming languages
 
