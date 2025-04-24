@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Humility is a great quality of leadership which derives respect and not just fear or hatred. 
+  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1142 days)
