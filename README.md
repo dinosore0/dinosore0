@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You use a glass mirror to see your face; you use works of art to see your soul. 
+  Peace cannot be achieved through violence, it can only be attained through understanding. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1142 days)
+## 🌟 Experiences (1143 days)
 
 ### 🧮 Programming languages
 
