@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The way you think, the way you behave, the way you eat, can influence your life by 30 to 50 years. 
+  Shun no toil to make yourself remarkable by some talent or other yet do not devote yourself to one branch exclusively. Strive to get clear notions about all. Give up no science entirely for science is but one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1143 days)
