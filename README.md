@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Natural ability without education has more often attained to glory and virtue than education without natural ability. 
+  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1144 days)
