@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In politics, nothing happens by accident. If it happens, you can bet it was planned that way. 
+  Anyone with a new idea is a crank... until the idea succeeds. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1144 days)
