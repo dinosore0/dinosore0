@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is like riding a bicycle. To keep your balance, you must keep moving. 
+  The trouble lies in the fact that people do not have an object - one thing to which they stick, letting all else go. Success is the product of the severest kind of mental and physical application. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1144 days)
