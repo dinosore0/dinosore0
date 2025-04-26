@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only work half a day. It doesn't matter which half you work -- the first 12 hours or the second 12 hours. 
+  In general, the art of government consists of taking as much money as possible from one class of citizens to give to another. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1143 days)
+## 🌟 Experiences (1144 days)
 
 ### 🧮 Programming languages
 
