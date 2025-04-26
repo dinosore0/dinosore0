@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Curiosity is a delicate little plant which, aside from stimulation, is mainly in need of freedom. 
+  The view of Jerusalem is the history of the world it is more, it is the history of earth and of heaven. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1144 days)
