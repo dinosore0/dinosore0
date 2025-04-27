@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some cause happiness wherever they go; others whenever they go. 
+  I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1145 days)
