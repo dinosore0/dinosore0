@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For awhile after you quit Keats all other poetry seems to be only whistling or humming. 
+  Poets utter great and wise things which they do not themselves understand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1145 days)
