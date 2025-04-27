@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I can resist everything except temptation. 
+  The impulse to cruelty is, in many people, almost as violent as the impulse to sexual love - almost as violent and much more mischievous. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1145 days)
