@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take care to sell your horse before he dies. The art of life is passing losses on. 
+  Don't be afraid of death; be afraid of an unlived life. You don't have to live forever, you just have to live 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1145 days)
