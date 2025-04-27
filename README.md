@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. 
+  Winning is everything only when you have lost everything. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1145 days)
