@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Poets utter great and wise things which they do not themselves understand. 
+  Art never improves, but... the material of art is never quite the same. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1145 days)
+## 🌟 Experiences (1146 days)
 
 ### 🧮 Programming languages
 
