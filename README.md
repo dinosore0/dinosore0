@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same. 
+  Right now it's only a notion, but I think I can get the money to make it into a concept, and later turn it into an idea. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1148 days)
