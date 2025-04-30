@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In poverty and other misfortunes of life, true friends are a sure refuge. The young they keep out of mischief to the old they are a comfort and aid in their weakness, and those in the prime of life they incite to noble deeds. 
+  If you don't like something, change it. If you can't change it, change your attitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1148 days)
