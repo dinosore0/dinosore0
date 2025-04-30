@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “I’m not going to make it.”—Brand.<br>“Yes, you are.  Yes, you are.”—Cooper 
+  If the service is free, the product being sold is you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1148 days)
