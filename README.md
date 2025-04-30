@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
+  I don't live in the past at all I'm always wanting to do something new. I make a point of constantly trying to forget and get things out of my mind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1148 days)
