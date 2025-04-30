@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Education is a weapon whose effects depend on who holds it in his hands and at whom it is aimed. 
+  Knowledge rests not upon truth alone, but upon error also. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1148 days)
