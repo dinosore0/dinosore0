@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the Soviet army it takes more courage to retreat than advance. 
+  Making the simple complicated is commonplace; making the complicated simple, awesomely simple, that's creativity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1149 days)
