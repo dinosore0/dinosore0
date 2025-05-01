@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one day the speed kills me, do not cry because I was smiling. 
+  Forward, as occasion offers. Never look round to see whether any shall note it... Be satisfied with success in even the smallest matter, and think that even such a result is no trifle. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1149 days)
