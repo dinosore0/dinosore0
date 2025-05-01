@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it. 
+  Religion is more than life. Remember that his own religion is the truest to every man even if it stands low in the scales of philosophical comparison. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1149 days)
