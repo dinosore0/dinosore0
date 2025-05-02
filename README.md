@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Office politics are bloody-minded, but weak on content. 
+  I believe there is something out there watching us. Unfortunately, it's the government. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1149 days)
+## 🌟 Experiences (1150 days)
 
 ### 🧮 Programming languages
 
