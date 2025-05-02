@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
+  Friendship, like the immortality of the soul, is too good to be believed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1150 days)
