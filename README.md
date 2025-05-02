@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing can happen more beautiful than death. 
+  Religion is more than life. Remember that his own religion is the truest to every man even if it stands low in the scales of philosophical comparison. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1150 days)
