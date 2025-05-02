@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Memories are the key not to the past, but to the future. 
+  The ultimate value of life depends upon awareness and the power of contemplation rather than upon mere survival. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1150 days)
