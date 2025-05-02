@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Now, God be praised, that to believing souls gives light in darkness, comfort in despair. 
+  There is hardly such a thing as a war in which it makes no difference who wins. Nearly always one side stands more of less for progress, the other side more or less for reaction. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1150 days)
