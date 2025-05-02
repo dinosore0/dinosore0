@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People assume when my hair is long, that I'm a lot cooler than I actually am. I'm not opposed to this misconception. 
+  My view is that at a younger age your optimism is more and you have more imagination etc. You have less bias. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1150 days)
