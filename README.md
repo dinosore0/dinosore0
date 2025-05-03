@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What we do in life, echoes in eternity. 
+  In the old world, you devoted 30% of your time to building a great service and 70% of your time to shouting about it. In the new world, that inverts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1151 days)
