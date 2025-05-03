@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success consists of going from failure to failure without loss of enthusiasm. 
+  Women love us for our defects. If we have enough of them, they will forgive us everything, even our gigantic intellects. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1151 days)
