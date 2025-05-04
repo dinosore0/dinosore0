@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not say, 'It is morning,' and dismiss it with a name of yesterday. See it for the first time as a newborn child that has no name. 
+  There is a wisdom in this beyond the rules of physic: a man's own observation what he finds good of and what he finds hurt of is the best physic to preserve health. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1152 days)
