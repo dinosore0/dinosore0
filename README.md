@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either. 
+  Mystical explanations are thought to be deep; the truth is that they are not even shallow. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1152 days)
