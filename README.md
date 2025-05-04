@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is easy to hate and it is difficult to love. This is how the whole scheme of things works. All good things are difficult to achieve and bad things are very easy to get. 
+  Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1152 days)
