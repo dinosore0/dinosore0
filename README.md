@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success is dangerous. One begins to copy oneself, and to copy oneself is more dangerous than to copy others. It leads to sterility. 
+  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1152 days)
