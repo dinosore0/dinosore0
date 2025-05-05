@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Great men are they who see that spiritual is stronger than any material force - that thoughts rule the world. 
+  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1153 days)
