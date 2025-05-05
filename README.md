@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Campaign behavior for wives: Always be on time. Do as little talking as humanly possible. Lean back in the parade car so everybody can see the president. 
+  Great men are they who see that spiritual is stronger than any material force - that thoughts rule the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1153 days)
