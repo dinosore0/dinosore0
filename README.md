@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No change of circumstances can repair a defect of character. 
+  In art the best is good enough. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1152 days)
+## 🌟 Experiences (1153 days)
 
 ### 🧮 Programming languages
 
