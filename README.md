@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world needs dreamers and the world needs doers. But above all, the world needs dreamers who do. 
+  A society grows great when old men plant trees whose shade they know they shall never sit in. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1153 days)
