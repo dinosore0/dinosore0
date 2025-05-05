@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
+  Those whom we can love, we can hate to others we are indifferent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1153 days)
