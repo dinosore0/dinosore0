@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything that happens once can never happen again. But everything that happens twice will surely happen a third time. 
+  Anyone with a new idea is a crank... until the idea succeeds. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1154 days)
