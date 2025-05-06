@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We’re just in the beginning stages of what will be a truly remarkable breakthrough for most people — as remarkable as the telephone. 
+  “If we find ourselves with a desire that nothing in this world can satisfy, the most probable explanation is…we were made for another world.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1153 days)
+## 🌟 Experiences (1154 days)
 
 ### 🧮 Programming languages
 
