@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “If we find ourselves with a desire that nothing in this world can satisfy, the most probable explanation is…we were made for another world.” 
+  A President needs political understanding to run the government, but he may be elected without it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1154 days)
