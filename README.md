@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are made wise not by the recollection of our past, but by the responsibility for our future. 
+  Oh, The Places You'll Go! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1154 days)
+## 🌟 Experiences (1155 days)
 
 ### 🧮 Programming languages
 
