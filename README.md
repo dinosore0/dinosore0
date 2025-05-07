@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's a poor sort of memory that only works backwards," the Queen remarked. 
+  To be pure and holy in all things is a necessary characteristic of the unenslaved mind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1155 days)
