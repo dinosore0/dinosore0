@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. 
+  One is loved because one is loved. No reason is needed for loving. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1155 days)
