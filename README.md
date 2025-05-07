@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only true wisdom is in knowing you know nothing. 
+  What we call happiness in the strictest sense comes from the (preferably sudden) satisfaction of needs which have been dammed up to a high degree. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1155 days)
