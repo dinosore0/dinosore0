@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have found that being honest is the best technique I can use. Right up front, tell people what you're trying to accomplish and what you're willing to sacrifice to accomplish it. 
+  Like all great travellers, I have seen more than I remember, and remember more than I have seen. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1155 days)
