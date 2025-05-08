@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music should strike fire from the heart of man, and bring tears form the eyes of woman. 
+  The gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1156 days)
