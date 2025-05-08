@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The older I grow the more I distrust the familiar doctrine that age brings wisdom. 
+  I claim that human mind or human society is not divided into watertight compartments called social, political and religious. All act and react upon one another. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1156 days)
