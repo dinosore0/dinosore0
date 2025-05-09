@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Evil is committed without effort, naturally, fatally goodness is always the product of some art. 
+  Destiny is not a matter of chance, it is a matter of choice. It is not something to be waited for, but something to be achieved. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1157 days)
