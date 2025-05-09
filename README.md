@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
+  If you want a vision of the future, imagine a boot stamping on a human face - forever. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1157 days)
