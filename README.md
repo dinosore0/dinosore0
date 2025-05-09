@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are faced with the paradoxical fact that education has become one of the chief obstacles to intelligence and freedom of thought. 
+  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1157 days)
