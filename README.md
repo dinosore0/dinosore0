@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Destiny is not a matter of chance, it is a matter of choice. It is not something to be waited for, but something to be achieved. 
+  You can't make positive choices for the rest of your life without an environment that makes those choices easy, natural, and enjoyable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1157 days)
