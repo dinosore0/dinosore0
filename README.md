@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My mentality is that of a samurai. I would rather commit seppuku than fail. 
+  The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1157 days)
