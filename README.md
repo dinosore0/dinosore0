@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
+  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1157 days)
