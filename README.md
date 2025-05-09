@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Being entirely honest with oneself is a good exercise. 
+  There are two ways to think about what money buys. There's the standard of living, which can be measured in dollars, and there's the quality of your life, which can't be measured at all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1157 days)
