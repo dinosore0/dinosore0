@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never, never, never, never give up. 
+  Life is not perfect. It never will be. You just have to make the very best of it.  And you have to open your heart to what the world can show you. And sometimes it's terrifying. And sometimes it's incredibly beautiful. And I'll take both, thanks. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1158 days)
