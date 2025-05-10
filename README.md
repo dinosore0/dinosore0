@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  At his best, man is the noblest of all animals; separated from law and justice, he is the worst. 
+  Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1158 days)
