@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Secret operations are essential in war upon them the army relies to make its every move. 
+  It is the supreme art of the teacher to awaken joy in creative expression and knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1159 days)
