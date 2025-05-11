@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Pleasure in the job puts perfection in the work. 
+  Government 'help' to business is just as disastrous as government persecution... the only way a government can be of service to national prosperity is by keeping its hands off. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1158 days)
+## 🌟 Experiences (1159 days)
 
 ### 🧮 Programming languages
 
