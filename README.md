@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some people are born on third base and go through life thinking they hit a triple. 
+  A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1161 days)
