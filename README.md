@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A play should give you something to think about. When I see a play and understand it the first time, then I know it can't be much good. 
+  The fox has many tricks. The hedgehog has but one. But that is the best of all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1161 days)
