@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are taught you must blame your father, your sisters, your brothers, the school, the teachers - but never blame yourself. It's never your fault. But it's always your fault, because if you wanted to change you're the one who has got to change. 
+  Government 'help' to business is just as disastrous as government persecution... the only way a government can be of service to national prosperity is by keeping its hands off. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1161 days)
