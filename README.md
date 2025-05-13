@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Americans play to win at all times. I wouldn't give a hoot and hell for a man who lost and laughed. That's why Americans have never lost nor ever lose a war. 
+  A play should give you something to think about. When I see a play and understand it the first time, then I know it can't be much good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1161 days)
