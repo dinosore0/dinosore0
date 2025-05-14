@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let it be your constant method to look into the design of people's actions, and see what they would be at, as often as it is practicable and to make this custom the more significant, practice it first upon yourself. 
+  Bad taste creates many more millionaires than good taste. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1162 days)
