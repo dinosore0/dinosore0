@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Logic will get you from A to B. Imagination will take you everywhere. 
+  I don't have no fear of death. My only fear is coming back reincarnated. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1162 days)
