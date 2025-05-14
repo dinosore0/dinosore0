@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This is why I’m taking extra time to really try to get it right. I’ll have plenty of time to refine the style, but I want the basics solid. 
+  I think you can have 10,000 explanations for failure, but no good explanation for success. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1162 days)
