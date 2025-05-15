@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. 
+  Man cannot discover new oceans unless he has the courage to lose sight of the shore. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1163 days)
