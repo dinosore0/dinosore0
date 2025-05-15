@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not go where the path may lead, go instead where there is no path and leave a trail. 
+  Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1163 days)
