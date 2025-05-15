@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One forgives to the degree that one loves. 
+  I have no other view than to promote the public good, and am unambitious of honors not founded in the approbation of my Country. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1163 days)
