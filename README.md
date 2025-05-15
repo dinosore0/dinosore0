@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A woman's mind is cleaner than a man's. She changes it more often. 
+  Life is like music it must be composed by ear, feeling, and instinct, not by rule. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1163 days)
