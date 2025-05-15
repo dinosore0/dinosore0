@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our nature consists in motion complete rest is death. 
+  A bird perched on a branch is never afraid of the branch breaking.  Her trust is in her wings. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1163 days)
