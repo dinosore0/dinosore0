@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Intellectual growth should commence at birth and cease only at death. 
+  It occurred to me that there was no difference between men, in intelligence or race, so profound as the difference between the sick and the well. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1162 days)
+## 🌟 Experiences (1163 days)
 
 ### 🧮 Programming languages
 
