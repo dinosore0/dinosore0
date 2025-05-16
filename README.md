@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Consider how hard it is to change yourself and you'll understand what little chance you have in trying to change others. 
+  Happiness is like a butterfly: the more you chase it, the more it will elude you, but if you turn your attention to other things, it will come and sit softly on your shoulder. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1164 days)
