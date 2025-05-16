@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People disparage knowing and the intellectual life, and urge doing. I am content with knowing, if only I could know. 
+  I cannot believe in a God who wants to be praised all the time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1164 days)
