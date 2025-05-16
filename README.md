@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The time to repair the roof is when the sun is shining. 
+  I think frugality drives innovation, just like other constraints do. One of the only ways to get out of a tight box is to invent your way out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1164 days)
