@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beginning of knowledge is the discovery of something we do not understand. 
+  In most communities it is illegal to cry 'fire' in a crowded assembly. Should it not be considered serious international misconduct to manufacture a general war scare in an effort to achieve local political aims? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1164 days)
