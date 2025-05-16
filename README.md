@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In rivers, the water that you touch is the last of what has passed and the first of that which comes so with present time. 
+  Brave words. I've heard them before, from thousands of species across thousands of worlds, since long before you were created. But, now they are all Borg. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1164 days)
