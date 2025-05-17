@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The tent is a symbol of being transient.  It's a symbol of being at home, wherever you are. 
+  The best of artists has no conception that the marble alone does not contain within itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1164 days)
+## 🌟 Experiences (1165 days)
 
 ### 🧮 Programming languages
 
