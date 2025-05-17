@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
+  In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1165 days)
