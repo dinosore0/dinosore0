@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The secret to being a writer is that you have to write. It's not enough to think about writing or to study literature or plan a future life as an author. You really have to lock yourself away, alone, and get to work. 
+  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1165 days)
