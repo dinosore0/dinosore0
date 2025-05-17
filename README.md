@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The relationship to one's fellow man is the relationship of prayer, the relationship to oneself is the relationship of striving; it is from prayer that one draws the strength for one's striving. 
+  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1165 days)
