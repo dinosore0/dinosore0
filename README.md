@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The impulse to cruelty is, in many people, almost as violent as the impulse to sexual love - almost as violent and much more mischievous. 
+  Everywhere is nowhere. When a person spends all his time in foreign travel, he ends by having many acquaintances, but no friends. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1165 days)
