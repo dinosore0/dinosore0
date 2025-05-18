@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The formulation of a problem is often more essential than its solution, which may be merely a matter of mathematical or experimental skill. 
+  Always desire to learn something useful. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1166 days)
