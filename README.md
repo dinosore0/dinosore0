@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To his dog, every man is Napoleon; hence the constant popularity of dogs. 
+  Darkness cannot drive out darkness only light can do that. Hate cannot drive out hate only love can do that. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1166 days)
