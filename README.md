@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The momentous thing in human life is the art of winning the soul to good or evil. 
+  Was this the face that launched a thousand ships, and burnt the topless towers of Ileum? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1166 days)
