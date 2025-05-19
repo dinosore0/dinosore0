@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A woman's mind is cleaner than a man's. She changes it more often. 
+  Say not, 'I have found the truth,' but rather, 'I have found a truth.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1167 days)
