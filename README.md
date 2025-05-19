@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be approved of God alone should be one's aim. 
+  “I’m not going to make it.”—Brand.<br>“Yes, you are.  Yes, you are.”—Cooper 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1167 days)
