@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you wish to make an apple pie from scratch, you must first create the universe. 
+  If I could explain it to the average person, I wouldn't have been worth the Nobel Prize. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1167 days)
