@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fox has many tricks. The hedgehog has but one. But that is the best of all. 
+  Happiness is not something ready made. It comes from your own actions. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1166 days)
+## 🌟 Experiences (1167 days)
 
 ### 🧮 Programming languages
 
