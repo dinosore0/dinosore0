@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Chance gives rise to thoughts, and chance removes them no art can keep or acquire them. 
+  Freedom is the freedom to say that two plus two make four. If that is granted, all else follows. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1168 days)
