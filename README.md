@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Being entirely honest with oneself is a good exercise. 
+  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1168 days)
