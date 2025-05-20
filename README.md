@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader. 
+  There is none made so great, but he may both need the help and service, and stand in fear of the power and unkindness, even of the meanest of mortals. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1168 days)
