@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins? 
+  It may be that the satisfaction I need depends on my going away, so that when I've gone and come back, I'll find it at home. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1168 days)
