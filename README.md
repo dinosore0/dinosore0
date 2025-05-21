@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. 
+  Failure is simply the opportunity to begin again, this time more intelligently. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1169 days)
