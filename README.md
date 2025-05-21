@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Behold the child, by Nature's kindly law pleased with a rattle, tickled with a straw. 
+  Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1169 days)
