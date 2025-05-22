@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men must live and create. Live to the point of tears. 
+  He who is to be a good ruler must have first been ruled. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1169 days)
+## 🌟 Experiences (1170 days)
 
 ### 🧮 Programming languages
 
