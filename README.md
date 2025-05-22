@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I hear music, I fear no danger. I am invulnerable. I see no foe. I am related to the earliest times, and to the latest. 
+  Failures are finger posts on the road to achievement. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1170 days)
