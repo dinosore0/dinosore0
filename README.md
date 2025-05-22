@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man, alone, has the power to transform his thoughts into physical reality; man, alone, can dream and make his dreams come true. 
+  I had rather have a fool to make me merry than experience to make me sad and to travel for it too! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1170 days)
