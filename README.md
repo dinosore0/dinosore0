@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you wish to be a success in the world, promise everything, deliver nothing. 
+  Someone's sitting in the shade today because someone planted a tree a long time ago. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1170 days)
