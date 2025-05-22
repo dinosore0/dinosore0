@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Formal education will make you a living; self-education will make you a fortune. 
+  A lot of the best ideas seem silly or bad initially—you want an idea at the intersection of “seems like bad idea” and “is good idea”. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1170 days)
