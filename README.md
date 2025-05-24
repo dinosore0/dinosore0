@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I believe a leaf of grass is no less than the journey-work of the stars. 
+  If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1172 days)
