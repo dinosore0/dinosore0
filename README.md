@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My best friend is the one who brings out the best in me. 
+  Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1172 days)
