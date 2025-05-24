@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't give your money to the church. They should be giving their money to you. 
+  The act of birth is the first experience of anxiety, and thus the source and prototype of the affect of anxiety. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1172 days)
