@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There comes a pause, for human strength will not endure to dance without cessation and everyone must reach the point at length of absolute prostration. 
+  Get busy living or get busy dying 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1173 days)
