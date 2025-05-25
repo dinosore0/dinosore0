@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without knowing what I am and why I am here, life is impossible. 
+  It may be that the satisfaction I need depends on my going away, so that when I've gone and come back, I'll find it at home. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1173 days)
