@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The opposite of a fact is falsehood, but the opposite of one profound truth may very well be another profound truth. 
+  Ever tried. Ever failed. No matter. Try again. Fail again. Fail better. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1173 days)
