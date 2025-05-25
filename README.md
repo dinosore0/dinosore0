@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not death that a man should fear, but he should fear never beginning to live. 
+  I don't understand it. Jack will spend any amount of money to buy votes but he balks at investing a thousand dollars in a beautiful painting. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1173 days)
