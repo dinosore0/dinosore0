@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The older I grow the more I distrust the familiar doctrine that age brings wisdom. 
+  Death and life have their determined appointments riches and honors depend upon heaven. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1173 days)
