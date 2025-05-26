@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The function of leadership is to produce more leaders, not more followers. 
+  Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1174 days)
