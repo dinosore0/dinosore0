@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge is a treasure, but practice is the key to it. 
+  Look within. Within is the fountain of good, and it will ever bubble up, if thou wilt ever dig. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1174 days)
