@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There's no art to find the mind's construction in the face. 
+  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1174 days)
