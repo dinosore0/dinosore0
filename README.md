@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. 
+  Freedom is the freedom to say that two plus two make four. If that is granted, all else follows. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1175 days)
