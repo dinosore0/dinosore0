@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Two possibilities exist: Either we are alone in the Universe or we are not. Both are equally terrifying. 
+  Live fast, die old, and make very sure everyone knows you were there. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1174 days)
+## 🌟 Experiences (1175 days)
 
 ### 🧮 Programming languages
 
