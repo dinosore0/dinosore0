@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Science may have found a cure for most evils but it has found no remedy for the worst of them all - the apathy of human beings. 
+  Some people think that doctors and nurses can put scrambled eggs back in the shell. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1176 days)
