@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't fake it when you're alone with God, you know. 
+  Quality is not an act, it is a habit. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
-## 🌟 Experiences (1175 days)
+## 🌟 Experiences (1176 days)
 
 ### 🧮 Programming languages
 
