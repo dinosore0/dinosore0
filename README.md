@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is doing what you're afraid to do.  There can be no courage unless you're scared. 
+  It's better to be unhappy alone than unhappy with someone - so far. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1176 days)
