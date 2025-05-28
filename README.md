@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is, generally, in the season of prosperity that men discover their real temper, principles, and designs. 
+  Sex at age 90 is like trying to shoot pool with a rope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1176 days)
