@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hatred does not cease by hatred, but only by love this is the eternal rule. 
+  Every formula of every religion has in this age of reason, to submit to the acid test of reason and universal assent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1177 days)
