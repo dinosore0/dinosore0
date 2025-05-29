@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What do I think of Western civilization? I think it would be a very good idea. 
+  A positive attitude gives you power over your circumstances instead of circumstances having power over you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1177 days)
