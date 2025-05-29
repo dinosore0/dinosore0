@@ -55,7 +55,7 @@ The Daily Quote will be updated automatically every 30 minutes!! [How can I do t
     <a href="#"><img alt="SQLite" src ="https://img.shields.io/badge/SQLite-%2307405e.svg?logo=sqlite&logoColor=white"></a>
     <a href="#"><img alt="MongoDB" src ="https://img.shields.io/badge/MongoDB-%234ea94b.svg?logo=mongodb&logoColor=white"></a>
     <a href="#"><img alt="MySQL" src="https://img.shields.io/badge/MySQL-%2300f.svg?logo=mysql&logoColor=white"></a>
-    <a href="#"><img alt="Amazon AWS" src="https://img.shields.io/badge/Amazon%20AWS-%23232F3E.svg?logo=amazon%20aws&logoColor=white"></a>
+    <a href="#"><img alt="AWS" src="https://img.shields.io/badge/Amazon%20AWS-%23232F3E.svg?logo=aws&logoColor=white"></a>
     <a href="#"><img alt="Amazon S3" src="https://img.shields.io/badge/Amazon%20S3-%23569A31.svg?logo=amazon%20s3&logoColor=white"></a>
 </p>
 
