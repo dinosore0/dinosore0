@@ -25,6 +25,8 @@ jobs:
     steps:
       - name: Clone repo
         uses: actions/checkout@v3
+      - name: Pull latest main
+        run: git pull origin main --rebase
       - name: bash update.sh
         run:  bash ./scripts/update.sh
 
