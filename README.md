@@ -98,3 +98,4 @@ The Daily Quote will be updated automatically every 30 minutes!! [How can I do t
   <br/>
   <a href="https://github.com/dino-claw"><img alt="Dino's Github Stats" src="https://denvercoder1-github-readme-stats.vercel.app/api?username=dino-claw&show_icons=true&count_private=true&theme=react&hide_border=true&bg_color=1F222E&title_color=F85D7F&icon_color=F8D866" /></a>
 </details> -->
+![Visitor Count](https://visitor-badge.laobi.icu/badge?page_id=dinosore0.dinosore0)
