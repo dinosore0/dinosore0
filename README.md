@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People really don’t like to hear success explained away as luck — especially successful people. 
+  Money is the last enemy that shall never be subdued. While there is flesh there is money or the want of money, but money is always on the brain so long as there is a brain in reasonable order. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1178 days)
