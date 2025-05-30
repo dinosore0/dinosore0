@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bad manner spoils everything, even reason and justice a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself. 
+  Don't manage - lead change before you have to. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1178 days)
@@ -98,4 +98,3 @@ The Daily Quote will be updated automatically every 30 minutes!! [How can I do t
   <br/>
   <a href="https://github.com/dino-claw"><img alt="Dino's Github Stats" src="https://denvercoder1-github-readme-stats.vercel.app/api?username=dino-claw&show_icons=true&count_private=true&theme=react&hide_border=true&bg_color=1F222E&title_color=F85D7F&icon_color=F8D866" /></a>
 </details> -->
-![Visitor Count](https://visitor-badge.laobi.icu/badge?page_id=dinosore0.dinosore0)
