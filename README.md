@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't manage - lead change before you have to. 
+  Home is where you feel at home and are treated well. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
 ## 🌟 Experiences (1178 days)
@@ -85,7 +85,7 @@ The Daily Quote will be updated automatically every 30 minutes!! [How can I do t
 
 ## 🔥 Streak stats
 
-> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dinosore0&theme=radical&hide_border=true)](https://github.com/dinosore0)
+> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dino-claw&theme=radical&hide_border=true)](https://github.com/dino-claw)
 
 
 ## 📊 Github stats
