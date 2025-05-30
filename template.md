@@ -4,7 +4,7 @@
 </h3>
 
 <p align="center">
-  <a href="https://github.com/dino-claw"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experienced+in+diverse+technologies&center=true&width=450&height=45"></a>
+  <a href="https://github.com/dinosore0"><img src="https://readme-typing-svg.herokuapp.com/?lines=Full-stack+developer;DevOps+Engineer;Experienced+in+diverse+technologies&center=true&width=450&height=45"></a>
 </p>
 
 ## 🙋‍♂️ Connect with me
@@ -18,21 +18,21 @@
 Today's insight:  
   ###Brief tip or insight### 
 </pre>
-The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dino-claw/dino-claw)
+The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences ###Experienced days###
 
 ### 🧮 Programming languages
 
 <p>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3ATypeScript+&type=repositories"><img alt="TypeScript" src="https://img.shields.io/badge/TypeScript%20-%23007ACC.svg?logo=typescript&logoColor=white"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3ASQL+&type=repositories"><img alt="SQL" src="https://img.shields.io/badge/SQL%20-%230085A1.svg?logo=amazon-dynamodb&logoColor=white"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3APython+&type=repositories"><img alt="Python" src="https://img.shields.io/badge/Python%20-%23306998.svg?logo=python&logoColor=white"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3AJava+&type=repositories"><img alt="Java" src="https://img.shields.io/badge/Java%20-%23E94C2F.svg?logo=java&logoColor=white"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3ABash+&type=repositories"><img alt="Bash" src="https://img.shields.io/badge/Bash%20-%234E5B5E.svg?logo=gnu-bash&logoColor=white"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3APowerShell+&type=repositories"><img alt="PowerShell" src="https://img.shields.io/badge/PowerShell%20-%230096D6.svg?logo=powershell&logoColor=white"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3AJavaScript+&type=repositories"><img alt="JavaScript" src="https://img.shields.io/badge/JavaScript%20-%23F7DF1E.svg?logo=javascript&logoColor=black"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3AC%2B%2B++++&type=repositories"><img alt="C++" src="https://img.shields.io/badge/C++%20-%230056A0.svg?logo=c%2B%2B&logoColor=white"></a>
-    <a href="https://github.com/search?q=user%3Adino-claw+is%3Arepo+language%3AC%23+&type=repositories"><img alt="C#" src="https://img.shields.io/badge/C%23%20-%236A1B9A.svg?logo=c-sharp&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3ATypeScript+&type=repositories"><img alt="TypeScript" src="https://img.shields.io/badge/TypeScript%20-%23007ACC.svg?logo=typescript&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3ASQL+&type=repositories"><img alt="SQL" src="https://img.shields.io/badge/SQL%20-%230085A1.svg?logo=amazon-dynamodb&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3APython+&type=repositories"><img alt="Python" src="https://img.shields.io/badge/Python%20-%23306998.svg?logo=python&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3AJava+&type=repositories"><img alt="Java" src="https://img.shields.io/badge/Java%20-%23E94C2F.svg?logo=java&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3ABash+&type=repositories"><img alt="Bash" src="https://img.shields.io/badge/Bash%20-%234E5B5E.svg?logo=gnu-bash&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3APowerShell+&type=repositories"><img alt="PowerShell" src="https://img.shields.io/badge/PowerShell%20-%230096D6.svg?logo=powershell&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3AJavaScript+&type=repositories"><img alt="JavaScript" src="https://img.shields.io/badge/JavaScript%20-%23F7DF1E.svg?logo=javascript&logoColor=black"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3AC%2B%2B++++&type=repositories"><img alt="C++" src="https://img.shields.io/badge/C++%20-%230056A0.svg?logo=c%2B%2B&logoColor=white"></a>
+    <a href="https://github.com/search?q=user%3Adinosore0+is%3Arepo+language%3AC%23+&type=repositories"><img alt="C#" src="https://img.shields.io/badge/C%23%20-%236A1B9A.svg?logo=c-sharp&logoColor=white"></a>
 </p>
 
 
@@ -85,16 +85,17 @@ The Daily Quote will be updated automatically every 30 minutes!! [How can I do t
 
 ## 🔥 Streak stats
 
-> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dino-claw&theme=radical&hide_border=true)](https://github.com/dino-claw)
+> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dinosore0&theme=radical&hide_border=true)](https://github.com/dinosore0)
 
 
 ## 📊 Github stats
 <!--   green snake -->
-![Dino-claw's github activity graph](https://raw.githubusercontent.com/dino-claw/dino-claw/output/github-snake.svg)  
+![Dino's github activity graph](https://raw.githubusercontent.com/dinosore0/dinosore0/output/github-snake.svg)  
 [![wakatime](https://wakatime.com/badge/user/73fbb789-32b7-490f-aaa7-b8b31a96c603.svg)](https://wakatime.com/@73fbb789-32b7-490f-aaa7-b8b31a96c603)  
 
 <!--   <details>
   <summary>💻 GitHub Profile Stats</summary>
   <br/>
-  <a href="https://github.com/dino-claw"><img alt="Dino's Github Stats" src="https://denvercoder1-github-readme-stats.vercel.app/api?username=dino-claw&show_icons=true&count_private=true&theme=react&hide_border=true&bg_color=1F222E&title_color=F85D7F&icon_color=F8D866" /></a>
+  <a href="https://github.com/dinosore0"><img alt="Dino's Github Stats" src="https://denvercoder1-github-readme-stats.vercel.app/api?username=dinosore0&show_icons=true&count_private=true&theme=react&hide_border=true&bg_color=1F222E&title_color=F85D7F&icon_color=F8D866" /></a>
 </details> -->
+![Visitor Count](https://visitor-badge.laobi.icu/badge?page_id=dinosore0.dinosore0)
