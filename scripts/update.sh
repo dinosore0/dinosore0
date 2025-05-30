@@ -10,7 +10,7 @@
 # git pull
 git config user.name "dino"
 git config user.email "cuongtruong2015@gmail.com"
-git pull
+git pull --rebase
 # Define file paths and start date
 TEMPLATE_FILE="template.md"
 README_FILE="README.md"
