@@ -85,7 +85,7 @@ The Daily Quote will be updated automatically every 30 minutes!! [How can I do t
 
 ## 🔥 Streak stats
 
-> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dino-claw&theme=radical&hide_border=true)](https://github.com/dino-claw)
+> [![GitHub Streak](https://github-readme-streak-stats.herokuapp.com?user=dinosore0&theme=radical&hide_border=true)](https://github.com/dinosore0)
 
 
 ## 📊 Github stats
