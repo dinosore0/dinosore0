@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The young man knows the rules, but the old man knows the exceptions. 
+  If you make any money, the government shoves you in the creek once a year with it in your pockets, and all that don't get wet you can keep. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1179 days)
