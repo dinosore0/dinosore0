@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “I’m not going to make it.”—Brand.<br>“Yes, you are.  Yes, you are.”—Cooper 
+  I think it's crucial that young women learn to code as early as possible to ensure that we have a voice in what the world looks like. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1179 days)
