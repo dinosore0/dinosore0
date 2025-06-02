@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By failing to prepare, you are preparing to fail. 
+  Surround yourself with the best people you can find, delegate authority, and don't interfere as long as the policy you've decided upon is being carried out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1181 days)
