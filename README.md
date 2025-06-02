@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry. 
+  A positive attitude gives you power over your circumstances instead of circumstances having power over you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1180 days)
+## 🌟 Experiences (1181 days)
 
 ### 🧮 Programming languages
 
