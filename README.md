@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything's about company.  A gourmet meal with an a-----e is a horrible meal. 
+  Flattery is like cologne; water, to be smelt, not swallowed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1182 days)
