@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am not a saint, unless you think of a saint as a sinner who keeps on trying. 
+  I try to buy stock in businesses that are so wonderful that an idiot can run them. Because sooner or later, one will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1182 days)
