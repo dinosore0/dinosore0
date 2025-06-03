@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man alone is born crying, lives complaining, and dies disappointed. 
+  When you are enthusiastic about what you do, you feel this positive energy. It's very simple. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1182 days)
