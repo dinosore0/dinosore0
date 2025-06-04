@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If we don't know life, how can we know death? 
+  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1183 days)
