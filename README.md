@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing. 
+  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1183 days)
