@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The kind of beauty I want most is the hard-to-get kind that comes from within - strength, courage, dignity. 
+  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1183 days)
+## 🌟 Experiences (1184 days)
 
 ### 🧮 Programming languages
 
