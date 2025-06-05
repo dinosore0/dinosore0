@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man cannot discover new oceans unless he has the courage to lose sight of the shore. 
+  If you never want to be criticized, for goodness' sake don't do anything new. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1184 days)
