@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are two kinds of companies, those that work to try to charge more and those that work to charge less. We will be the second. 
+  Sometimes you just gotta pet the whales. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1184 days)
