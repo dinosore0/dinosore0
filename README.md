@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've done everything I wanted to do, even if I have had to pay a very high price - which has been the case most of the time. 
+  Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1185 days)
