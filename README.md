@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would rather live my life as if there is a God and die to find out there isn't, than live my life as if there isn't and die to find out there is. 
+  The greatest way to live with honor in this world is to be what we pretend to be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1185 days)
