@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want others to be happy, practice compassion. If you want to be happy, practice compassion. 
+  We have wasted History like a bunch of drunks shooting dice back in the men's crapper of the local bar. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1186 days)
