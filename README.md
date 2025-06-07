@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care. 
+  In Republics, the great danger is, that the majority may not sufficiently respect the rights of the minority. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1186 days)
