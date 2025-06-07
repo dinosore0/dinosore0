@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If God treats you well by teaching you a disastrous lesson, you never forget it. 
+  If you want others to be happy, practice compassion. If you want to be happy, practice compassion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1186 days)
