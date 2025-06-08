@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith, like a jackal, feeds among the tombs, and even from these dead doubts she gathers her most vital hope. 
+  My own business always bores me to death. I prefer other people's. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1187 days)
