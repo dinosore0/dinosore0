@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime. 
+  Ghost stars shine their light upon us, long after they're gone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1187 days)
