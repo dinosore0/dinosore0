@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Just as a candle cannot burn without fire, men cannot live without a spiritual life. 
+  Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1187 days)
