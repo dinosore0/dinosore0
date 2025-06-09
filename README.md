@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is good? All that heightens the feeling of power, the will to power, power itself in man. 
+  “And now that you don’t have to be perfect, you can be good.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1188 days)
