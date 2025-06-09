@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life can only be understood backwards; but it must be lived forwards. 
+  What is good? All that heightens the feeling of power, the will to power, power itself in man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1188 days)
