@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
+  Happiness is not something ready made. It comes from your own actions. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1188 days)
