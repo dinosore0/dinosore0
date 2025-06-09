@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Patience is the best remedy for every trouble. 
+  Find a job you love and you'll never have to work again. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1187 days)
+## 🌟 Experiences (1188 days)
 
 ### 🧮 Programming languages
 
