@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work. 
+  You always gain by giving love. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1189 days)
