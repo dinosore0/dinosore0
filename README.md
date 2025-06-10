@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tie your self worth to something that you will lose, and you'll be left with nothing. 
+  Proverbs are always platitudes until you have personally experienced the truth of them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1189 days)
