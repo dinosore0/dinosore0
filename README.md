@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
+  In a thousand different ways, we are taught to think small.  We are taught to think we can’t change the status quo.  That does not have to be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1189 days)
