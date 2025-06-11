@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would no longer see barricades. Stumbling blocks would now be seen as stepping stones to something better. 
+  How much more grievous are the consequences of anger than the causes of it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1190 days)
