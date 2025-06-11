@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes just when I say hello the right way, I'm like, 'Whoa, I'm so cool.' 
+  It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1189 days)
+## 🌟 Experiences (1190 days)
 
 ### 🧮 Programming languages
 
