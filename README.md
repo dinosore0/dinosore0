@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We've got this gift of love, but love is like a precious plant. You can't just accept it and leave it in the cupboard or just think it's going to get on by itself. You've got to keep watering it. You've got to really look after it and nurture it. 
+  Life is a tragedy when seen in close-up, but a comedy in long-shot. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1190 days)
