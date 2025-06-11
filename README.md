@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The purpose of education is to replace an empty mind with an open one. 
+  If you dream the proper dreams, and share the myths with people, they will want to grow up to be like you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1190 days)
