@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The moment you think you understand a great work of art, it's dead for you. 
+  You, yourself, as much as anybody in the entire universe, deserve your love and affection. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1191 days)
