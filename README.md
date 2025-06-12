@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In rivers, the water that you touch is the last of what has passed and the first of that which comes so with present time. 
+  Happiness is secured through virtue; it is a good attained by man's own will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1191 days)
