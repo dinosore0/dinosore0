@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards. 
+  Those who bring sunshine to the lives of others cannot keep it from themselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1192 days)
