@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Humor has justly been regarded as the finest perfection of poetic genius. 
+  Take a course in good water and air and in the eternal youth of Nature you may renew your own. Go quietly, alone no harm will befall you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1192 days)
