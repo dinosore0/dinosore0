@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Rhetoric is a poor substitute for action, and we have trusted only to rhetoric. If we are really to be a great nation, we must not merely talk we must act big. 
+  Maturing is realizing how many things don’t require your comment. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1193 days)
