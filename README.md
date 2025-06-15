@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When art dresses in worn-out material it is most easily recognized as art. 
+  When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1193 days)
+## 🌟 Experiences (1194 days)
 
 ### 🧮 Programming languages
 
