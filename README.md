@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is in true beauty, as in courage, something which narrow souls cannot dare to admire. 
+  There is no wider gulf in the universe than yawns between those on the hither and thither side of vital experience. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1195 days)
