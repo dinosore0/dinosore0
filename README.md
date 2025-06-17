@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Company cultures are like country cultures. Never try to change one. Try, instead, to work with what you've got. 
+  I am only one; but still I am one. I cannot do everything; but still I can do something. I will not refuse to do the something I can do. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1196 days)
