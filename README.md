@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If we love our country, we should also love our countrymen. 
+  Forward, as occasion offers. Never look round to see whether any shall note it... Be satisfied with success in even the smallest matter, and think that even such a result is no trifle. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1197 days)
