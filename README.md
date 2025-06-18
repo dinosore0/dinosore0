@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hate facts. I always say the chief end of man is to form general propositions - adding that no general proposition is worth a d--n. 
+  There is no failure except in no longer trying. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1197 days)
