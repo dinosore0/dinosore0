@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Death does not concern us, because as long as we exist, death is not here. And when it does come, we no longer exist. 
+  For beautiful eyes, look for the good in others for beautiful lips, speak only words of kindness and for poise, walk with the knowledge that you are never alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1197 days)
