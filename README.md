@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If Bill Gates woke up with Oprah's money, he'd jump out the window. 
+  Clouds come floating into my life, no longer to carry rain or usher storm, but to add color to my sunset sky. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1198 days)
