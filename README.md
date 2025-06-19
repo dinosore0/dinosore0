@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
+  Seeing a murder on television can … help work off one’s antagonisms. And if you haven’t any antagonisms, the commercials will give you some. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1198 days)
