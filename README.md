@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not only does God play dice, but... he sometimes throws them where they cannot be seen. 
+  On tension: "Instead of a surprise, tell them to it's coming over and over. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1198 days)
