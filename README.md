@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is a great discovery still to be made in literature, that of paying literary men by the quantity they do not write. 
+  Tell your heart that the fear of suffering is worse than the suffering itself. And no heart has ever suffered when it goes in search of its dream. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1199 days)
