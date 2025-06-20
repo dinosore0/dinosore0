@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As the poet said, 'Only God can make a tree,' probably because it's so hard to figure out how to get the bark on. 
+  Life was always a matter of waiting for the right moment to act. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1199 days)
