@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And the first rude sketch that the world had seen was joy to his mighty heart, till the Devil whispered behind the leaves 'It's pretty, but is it Art?' 
+  It may be that the satisfaction I need depends on my going away, so that when I've gone and come back, I'll find it at home. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1200 days)
