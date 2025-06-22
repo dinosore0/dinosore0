@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Better is the enemy of good. 
+  I learned from a very young age that if I pursued the things that truly excited me, that they would reward in more important ways, like happiness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1201 days)
