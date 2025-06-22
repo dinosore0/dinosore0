@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Climate change is a terrible problem, and it absolutely needs to be solved. It deserves to be a huge priority. 
+  Everyday life is like programming, I guess. If you love something you can put beauty into it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1201 days)
