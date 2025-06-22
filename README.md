@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I want my food dead. Not sick, not dying, dead. 
+  Better is the enemy of good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1200 days)
+## 🌟 Experiences (1201 days)
 
 ### 🧮 Programming languages
 
