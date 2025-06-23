@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Riches come forth from one who owns little, while another of material wealth turns penniless. 
+  Old men are dangerous: it doesn't matter to them what is going to happen to the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1202 days)
