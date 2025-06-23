@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved. 
+  Riches come forth from one who owns little, while another of material wealth turns penniless. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1202 days)
