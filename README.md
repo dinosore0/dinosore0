@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People in their handlings of affairs often fail when they are about to succeed. If one remains as careful at the end as he was at the beginning, there will be no failure. 
+  Wrinkles should merely indicate where smiles have been. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1203 days)
