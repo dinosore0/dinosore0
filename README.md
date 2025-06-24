@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never attempt to make money on the stock market. I buy on the assumption that they could close the market the next day and not reopen it for five years. 
+  A life is like a garden. Perfect moments can be had, but not preserved, except in memory. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1203 days)
