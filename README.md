@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
+  Music should strike fire from the heart of man, and bring tears form the eyes of woman. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1203 days)
