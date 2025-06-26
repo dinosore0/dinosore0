@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Being entirely honest with oneself is a good exercise. 
+  Those who intend on becoming great should love neither themselves nor their own things, but only what is just, whether it happens to be done by themselves or others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1205 days)
