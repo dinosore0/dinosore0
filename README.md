@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am not a vegetarian because I love animals; I am a vegetarian because I hate plants. 
+  Never stop dreaming big 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1204 days)
+## 🌟 Experiences (1205 days)
 
 ### 🧮 Programming languages
 
