@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sea speaks a language polite people never repeat. It is a colossal scavenger slang and has no respect. 
+  Any man who reads too much and uses his own brain too little falls into lazy habits of thinking. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1206 days)
