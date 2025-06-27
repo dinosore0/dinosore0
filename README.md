@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any man who reads too much and uses his own brain too little falls into lazy habits of thinking. 
+  You don't have to deserve your mother's love. You have to deserve your father's. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1206 days)
