@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People really don’t like to hear success explained away as luck — especially successful people. 
+  The sea speaks a language polite people never repeat. It is a colossal scavenger slang and has no respect. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1205 days)
+## 🌟 Experiences (1206 days)
 
 ### 🧮 Programming languages
 
