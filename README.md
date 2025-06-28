@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is the nothing without best, you only need resttestuser0001 
+  It seems like such a terrible shame that innocent civilians have to get hurt in wars, otherwise combat would be such a wonderfully healthy way to rid the human race of unneeded trash. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1207 days)
