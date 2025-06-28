@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Freedom is the freedom to say that two plus two make four. If that is granted, all else follows. 
+  If you set goals and go after them with all the determination you can muster, your gifts will take you places that will amaze you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1207 days)
