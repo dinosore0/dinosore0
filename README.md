@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My great hope is to laugh as much as I cry to get my work done and try to love somebody and have the courage to accept the love in return. 
+  The best artist has that thought alone Which is contained within the marble shell The sculptor's hand can only break the spell To free the figures slumbering in the stone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1209 days)
