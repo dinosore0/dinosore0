@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Intelligence is the ability to adapt to change. 
+  Judgments, value judgments concerning life, for or against, can in the last resort never be true: they possess value only as symptoms, they come into consideration only as symptoms - in themselves such judgments are stupidities. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1210 days)
