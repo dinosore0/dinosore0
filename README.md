@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I’m going to go down getting my data. That’s the only reason I chase. It’s for the data. 
+  “And now that you don’t have to be perfect, you can be good.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1210 days)
