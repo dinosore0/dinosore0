@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music should probably provide answers in terms of lyrical content, and giving people a sense of togetherness and oneness, as opposed to being alone in their thoughts and dilemmas or regrets or happiness or whatever. 
+  Deep into that darkness peering, long I stood there, wondering, fearing, doubting, dreaming dreams no mortal ever dared to dream before. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1211 days)
