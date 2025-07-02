@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In Republics, the great danger is, that the majority may not sufficiently respect the rights of the minority. 
+  Always speak the truth, think before you speak, and write it down afterwards. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1211 days)
