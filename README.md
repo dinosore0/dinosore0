@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Freedom from effort in the present merely means that there has been effort stored up in the past. 
+  Success is full of promise till one gets it, and then it seems like a nest from which the bird has flown. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1212 days)
