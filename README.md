@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Talent hits a target no one else can hit. Genius hits a target no one else can see. 
+  It is not enough to know your craft - you have to have feeling. Science is all very well, but for us imagination is worth far more. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1213 days)
