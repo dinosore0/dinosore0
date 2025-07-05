@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
+  I believe a leaf of grass is no less than the journey-work of the stars. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1214 days)
