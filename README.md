@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greater the difficulty, the more the glory in surmounting it. 
+  I think people should be allowed to do anything they want. We haven't tried that for a while. Maybe this time it'll work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1214 days)
