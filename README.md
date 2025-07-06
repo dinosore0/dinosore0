@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Each age, it is found, must write its own books or rather, each generation for the next succeeding. 
+  The present moment has always been available to spiritual seekers, but as long as you are seeking you are not available to the present moment. “Seeking” implies that you are looking to the future for some answer, or for some achievement, spiritual or otherwise. Everybody is in the seeking mode, seeking to add something to who they are, whether it be money, relationships, possessions, knowledge, status.. or spiritual attainment 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1215 days)
