@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When a hundred men stand together, each of them loses his mind and gets another one. 
+  To be able to endure odium is the first art to be learned by those who aspire to power. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1215 days)
