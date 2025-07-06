@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not only does God play dice, but... he sometimes throws them where they cannot be seen. 
+  If I went to work in a factory the first thing I'd do is join a union. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1215 days)
