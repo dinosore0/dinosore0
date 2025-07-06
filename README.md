@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be able to endure odium is the first art to be learned by those who aspire to power. 
+  Not only does God play dice, but... he sometimes throws them where they cannot be seen. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1215 days)
