@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is the strange fate of man, that even in the greatest of evils the fear of the worst continues to haunt him. 
+  I had a cat once, but every time I tried to give him a bath, the fur stuck to my tongue. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1216 days)
