@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A bad manner spoils everything, even reason and justice a good one supplies everything, gilds a No, sweetens a truth, and adds a touch of beauty to old age itself. 
+  Nothing is so intolerable to man as being fully at rest, without a passion, without business, without entertainment, without care. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1217 days)
