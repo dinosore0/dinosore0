@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Consistency is contrary to nature, contrary to life. The only completely consistent people are dead. 
+  Each age, it is found, must write its own books or rather, each generation for the next succeeding. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1218 days)
