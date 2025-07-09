@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is a great discovery still to be made in literature, that of paying literary men by the quantity they do not write. 
+  To know even one life has breathed easier because you have lived. This is to have succeeded. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1218 days)
