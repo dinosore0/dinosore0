@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world? 
+  When you practice gratefulness, there is a sense of respect toward others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1219 days)
