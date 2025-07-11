@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It destroys one's nerves to be amiable every day to the same human being. 
+  Women who seek to be equal with men lack ambition. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1219 days)
+## 🌟 Experiences (1220 days)
 
 ### 🧮 Programming languages
 
