@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Leadership is getting someone to do what they don't want to do, to achieve what they want to achieve. 
+  He is greatest whose strength carries up the most hearts by the attraction of his own. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1221 days)
