@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only those who will risk going too far can possibly find out how far one can go. 
+  It will never rain roses: when we want to have more roses we must plant more trees. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1222 days)
