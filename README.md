@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you are winning a war almost everything that happens can be claimed to be right and wise. 
+  Learn from the past, set vivid, detailed goals for the future, and live in the only moment of time over which you have any control: now. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1222 days)
