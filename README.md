@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Dream as if you'll live forever. Live as if you'll die today. 
+  Friendship may, and often does, grow into love, but love never subsides into friendship. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1221 days)
+## 🌟 Experiences (1222 days)
 
 ### 🧮 Programming languages
 
