@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It always seems impossible until it is done. 
+  I love inside jokes. I hope to be a part of one someday. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1222 days)
+## 🌟 Experiences (1223 days)
 
 ### 🧮 Programming languages
 
