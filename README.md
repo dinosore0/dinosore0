@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is like an ice-cream cone, you have to lick it one day at a time. 
+  You could rattle the stars. You could do anything, if you only dared. And deep down, you know it too, and that’s what scares you the most 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1224 days)
