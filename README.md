@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Health is the soul that animates all the enjoyments of life, which fade and are tasteless without it. 
+  Death, therefore, the most awful of evils, is nothing to us, seeing that, when we are, death is not come, and, when death is come, we are not. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1223 days)
+## 🌟 Experiences (1224 days)
 
 ### 🧮 Programming languages
 
