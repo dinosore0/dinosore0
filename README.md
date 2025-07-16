@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the forces in the world are not so powerful as an idea whose time has come. 
+  Anger is the enemy of non-violence and pride is a monster that swallows it up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1225 days)
