@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A good leader takes a little more than his share of the blame, a little less than his share of the credit. 
+  We can have no progress without change, whether it be basketball or anything else. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1225 days)
