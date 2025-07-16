@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  For beautiful eyes, look for the good in others for beautiful lips, speak only words of kindness and for poise, walk with the knowledge that you are never alone. 
+  If you want to increase your success rate, double your failure rate. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1224 days)
+## 🌟 Experiences (1225 days)
 
 ### 🧮 Programming languages
 
