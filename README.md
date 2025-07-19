@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nature is trying very hard to make us succeed, but nature does not depend on us. We are not the only experiment. 
+  I fundamentally believe that if you are not learning new things, you stop doing great and useful things. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1228 days)
