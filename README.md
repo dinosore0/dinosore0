@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The end move in politics is always to pick up a gun. 
+  Never let the future disturb you. You will meet it, if you have to, with the same weapons of reason which today arm you against the present. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1229 days)
