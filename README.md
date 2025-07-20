@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want a vision of the future, imagine a boot stamping on a human face - forever. 
+  My size has helped make me an amazing performer too. The cliche of the Funny Fat Friend: I absolutely was that character - I am that character... It's a complicated bag of tools I acquired, and I've put them all to work onstage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1229 days)
