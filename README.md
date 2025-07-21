@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Genius is the ability to put into effect what is on your mind. 
+  Nothing is too much trouble when one loves, and there is always time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1229 days)
+## 🌟 Experiences (1230 days)
 
 ### 🧮 Programming languages
 
