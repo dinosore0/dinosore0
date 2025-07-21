@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  History, despite its wrenching pain, cannot be unlived, but if faced with courage, need not be lived again. 
+  Marriage is a wonderful institution, but who would want to live in an institution? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1230 days)
