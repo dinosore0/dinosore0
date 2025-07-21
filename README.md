@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Marriage is a wonderful institution, but who would want to live in an institution? 
+  Tie your self worth to something that you will lose, and you'll be left with nothing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1230 days)
