@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When people gain the right knowledge, in such a way that they understand it completely, and then have the opportunity for effective instruction to apply what they comprehend then like magic, they can see the fruits of their efforts in the form of changes that serve us feedback in their lives. 
+  I wake up every morning at nine and grab for the morning paper. Then I look at the obituary page. If my name is not on it, I get up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1231 days)
