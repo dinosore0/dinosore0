@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am only one; but still I am one. I cannot do everything; but still I can do something. I will not refuse to do the something I can do. 
+  No bird soars too high, if he soars with his own wings. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1231 days)
