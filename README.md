@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you set goals and go after them with all the determination you can muster, your gifts will take you places that will amaze you. 
+  Animals are such agreeable friends - they ask no questions they pass no criticisms. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1231 days)
+## 🌟 Experiences (1232 days)
 
 ### 🧮 Programming languages
 
