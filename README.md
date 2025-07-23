@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you accept the expectations of others, especially negative ones, then you never will change the outcome. 
+  Every young man would do well to remember that all successful business stands on the foundation of morality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1232 days)
