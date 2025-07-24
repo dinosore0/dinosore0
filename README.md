@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So you know cats are interesting. They are kind of like girls. If they come and talk to you it's great. But if you try to talk to them it doesn't always go so well. 
+  The death of a beautiful woman, is unquestionably the most poetical topic in the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1233 days)
