@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men always want to be a woman's first love - women like to be a man's last romance. 
+  You have to take risks. We will only understand the miracle of life fully when we allow the unexpected to happen. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1234 days)
