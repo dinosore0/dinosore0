@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tie your self worth to something that you will lose, and you'll be left with nothing. 
+  Never in the field of human conflict was so much owed by so many to so few. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1234 days)
