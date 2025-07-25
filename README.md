@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You have to take risks. We will only understand the miracle of life fully when we allow the unexpected to happen. 
+  Success depends upon previous preparation, and without such preparation there is sure to be failure. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1234 days)
