@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Each problem has hidden in it an opportunity so powerful that it literally dwarfs the problem. 
+  Every man must do two things alone; he must do his own believing and his own dying. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1235 days)
