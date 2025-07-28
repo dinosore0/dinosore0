@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
+  Women are never disarmed by compliments. Men always are. That is the difference between the sexes. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1237 days)
