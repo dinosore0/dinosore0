@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A girl should be two things: classy and fabulous. 
+  Look at the sky. We are not alone. The whole universe is friendly to us and conspires only to give the best to those who dream and work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1237 days)
