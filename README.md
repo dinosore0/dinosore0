@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them. 
+  The great city is that which has the greatest man or woman: if it be a few ragged huts, it is still the greatest city in the whole world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1237 days)
