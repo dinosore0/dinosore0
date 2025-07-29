@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not because angels are holier than men or devils that makes them angels, but because they do not expect holiness from one another, but from God only. 
+  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1238 days)
