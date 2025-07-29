@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few. 
+  Failure means a stripping away of the inessential. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1238 days)
