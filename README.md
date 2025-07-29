@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. 
+  When men speak ill of thee, live so as nobody may believe them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1238 days)
