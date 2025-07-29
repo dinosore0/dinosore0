@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Politics is the entertainment branch of industry. 
+  Opportunities are usually disguised as hard work, so most people don't recognize them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1237 days)
+## 🌟 Experiences (1238 days)
 
 ### 🧮 Programming languages
 
