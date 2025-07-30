@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We come altogether fresh and raw into the several stages of life, and often find ourselves without experience, despite our years. 
+  Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1239 days)
