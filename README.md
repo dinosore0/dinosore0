@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All gods are homemade, and it is we who pull their strings, and so, give them the power to pull ours. 
+  A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1239 days)
