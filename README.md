@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nobody can bring you peace but yourself. 
+  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1240 days)
