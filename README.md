@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It isn't about 'games', for me, personally, and it never really was. It was about creating something, anything, far bigger than yourself. 
+  If there is something to pardon in everything, there is also something to condemn. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1240 days)
