@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If there is something to pardon in everything, there is also something to condemn. 
+  Don't be afraid of death; be afraid of an unlived life. You don't have to live forever, you just have to live 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1240 days)
