@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don’t need an alarm clock. My ideas wake me. 
+  Belief is the death of intelligence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1239 days)
+## 🌟 Experiences (1240 days)
 
 ### 🧮 Programming languages
 
