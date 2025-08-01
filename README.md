@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You either get tired fighting for peace, or you die. 
+  Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1241 days)
