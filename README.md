@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We come altogether fresh and raw into the several stages of life, and often find ourselves without experience, despite our years. 
+  You could rattle the stars. You could do anything, if you only dared. And deep down, you know it too, and that’s what scares you the most 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1241 days)
