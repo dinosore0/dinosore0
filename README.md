@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be kind, for everyone you meet is fighting a hard battle. 
+  Man cannot discover new oceans unless he has the courage to lose sight of the shore. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1242 days)
