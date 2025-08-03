@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music is the mediator between the spiritual and the sensual life. 
+  Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1243 days)
