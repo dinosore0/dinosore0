@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fortune, which has a great deal of power in other matters but especially in war, can bring about great changes in a situation through very slight forces. 
+  I'm well past the age where I'm acceptable. You get to a certain age and you are forbidden access. You're not going to get the kind of coverage that you would like in music magazines, you're not going to get played on radio and you're not going to get played on television. I have to survive on word of mouth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1243 days)
