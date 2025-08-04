@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most courageous act is still to think for yourself. Aloud. 
+  Change you mindset. Educate yourself. Stay positive. Cut toxic people off. Eat Healthy. Focus on your goals. Spend some time alone. Read books. Drink more water. Take care of your skin. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1244 days)
