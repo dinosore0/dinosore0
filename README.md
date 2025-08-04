@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you try and take a cat apart to see how it works, the first thing you have on your hands is a non-working cat. 
+  You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1244 days)
