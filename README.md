@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Truth is the silliest thing under the sun. Try to get a living by the Truth and go to the Soup Societies. Heavens! Let any clergyman try to preach the Truth from its very stronghold, the pulpit, and they would ride him out of his church on his own pulpit bannister. 
+  Consumed with that which it was nourish'd by. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1244 days)
