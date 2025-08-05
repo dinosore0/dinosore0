@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I will speak daggers to her, but use none. 
+  In three words I can sum up everything I've learned about life: it goes on. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1244 days)
+## 🌟 Experiences (1245 days)
 
 ### 🧮 Programming languages
 
