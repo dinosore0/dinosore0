@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If people think nature is their friend, then they sure don't need an enemy. 
+  But who prays for Satan? Who in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1245 days)
