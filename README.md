@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't be afraid of death; be afraid of an unlived life. You don't have to live forever, you just have to live 
+  Life is not about how fast you run or how high you climb but how well you bounce. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1245 days)
