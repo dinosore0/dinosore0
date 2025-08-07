@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Logic will get you from A to B. Imagination will take you everywhere. 
+  Only men who are not interested in women are interested in women's clothes. Men who like women never notice what they wear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1247 days)
