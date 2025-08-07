@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You that would judge me, do not judge alone this book or that, come to this hallowed place where my friends' portraits hang and look thereon Ireland's history in their lineaments trace think where man's glory most begins and ends and say my glory was I had such friends. 
+  The average person puts only 25% of his energy and ability into his work. The world takes off its hat to those who put in more than 50% of their capacity, and stands on its head for those few and far between souls who devote 100%. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1247 days)
