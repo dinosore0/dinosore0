@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Neither a borrower nor a lender be; For loan oft loses both itself and friend, and borrowing dulls the edge of husbandry. 
+  Everywhere is nowhere. When a person spends all his time in foreign travel, he ends by having many acquaintances, but no friends. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1248 days)
