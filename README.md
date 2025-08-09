@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Who in the world am I? Ah, that's the great puzzle. 
+  Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1249 days)
