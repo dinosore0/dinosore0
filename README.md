@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Detachment does not consist in setting fire to one's house, or becoming bankrupt or throwing one's fortune out of the window, or even giving away all of one's possessions. Detachment consists in refraining from letting our possessions possess us. 
+  Although nature commences with reason and ends in experience it is necessary for us to do the opposite, that is to commence with experience and from this to proceed to investigate the reason. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1249 days)
