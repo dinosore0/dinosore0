@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give. 
+  The aim of art is to represent not the outward appearance of things, but their inward significance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1250 days)
