@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is like music it must be composed by ear, feeling, and instinct, not by rule. 
+  There are only two tragedies in life: one is not getting what one wants, and the other is getting it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1250 days)
