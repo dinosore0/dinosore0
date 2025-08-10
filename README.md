@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Words have no power to impress the mind without the exquisite horror of their reality. 
+  Remember happiness doesn't depend upon who you are or what you have it depends solely on what you think. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1250 days)
