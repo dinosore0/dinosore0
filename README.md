@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Under all speech that is good for anything there lies a silence that is better, Silence is deep as Eternity speech is shallow as Time. 
+  Our greatest glory is not in never falling, but in rising every time we fall. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1250 days)
