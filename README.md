@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is so strong as gentleness, nothing so gentle as real strength. 
+  In the depth of winter I finally learned that there was in me an invincible summer. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1251 days)
