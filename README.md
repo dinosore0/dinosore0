@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I want to be thoroughly used up when I die, for the harder I work the more I live. I rejoice in life for its own sake. 
+  When people gain the right knowledge, in such a way that they understand it completely, and then have the opportunity for effective instruction to apply what they comprehend then like magic, they can see the fruits of their efforts in the form of changes that serve us feedback in their lives. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1251 days)
