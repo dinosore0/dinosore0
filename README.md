@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As soon as there is life there is danger. 
+  One should not pursue goals that are easily achieved. One must develop an instinct for what one can just barely achieve through one's greatest efforts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1251 days)
