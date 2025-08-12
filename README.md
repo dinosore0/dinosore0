@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ladies, if you want to know the way to my heart... good spelling and good grammar, good punctuation, capitalize only where you are supposed to capitalize, it's done. 
+  Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1252 days)
