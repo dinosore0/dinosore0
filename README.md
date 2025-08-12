@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Chains of habit are too light to be felt until they are too heavy to be broken. 
+  I think frugality drives innovation, just like other constraints do. One of the only ways to get out of a tight box is to invent your way out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1252 days)
