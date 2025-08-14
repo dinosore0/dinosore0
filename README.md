@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The republican is the only form of government which is not eternally at open or secret war with the rights of mankind. 
+  No one is born hating another person because of the color of his skin, or his background, or his religion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1254 days)
