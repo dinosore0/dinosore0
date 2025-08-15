@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. 
+  I thank God for my handicaps, for through them I have found myself, my work and my God. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1255 days)
