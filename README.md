@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge slowly builds up what Ignorance in an hour pulls down. 
+  Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1256 days)
