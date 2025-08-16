@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have no fear that the result of our experiment will be that men may be trusted to govern themselves without a master. 
+  People are not judging YOU, they are telling you who THEY are. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1256 days)
