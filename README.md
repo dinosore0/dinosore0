@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nature, to be commanded, must be obeyed. 
+  I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1256 days)
