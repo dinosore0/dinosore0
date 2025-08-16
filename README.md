@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If at first you don't succeed, destroy all evidence that you tried. 
+  I met in the street a very poor young man who was in love. His hat was old, his coat worn, his cloak was out at the elbows, the water passed through his shoes, - and the stars through his soul. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1255 days)
+## 🌟 Experiences (1256 days)
 
 ### 🧮 Programming languages
 
