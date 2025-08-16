@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be. 
+  Knowledge slowly builds up what Ignorance in an hour pulls down. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1256 days)
