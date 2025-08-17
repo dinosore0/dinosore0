@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is like an ice-cream cone, you have to lick it one day at a time. 
+  Learning to program teaches you how to think. Computer science is a liberal art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1257 days)
