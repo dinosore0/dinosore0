@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whenever you find yourself on the side of the majority, it is time to pause and reflect. 
+  Analysis does not set out to make pathological reactions impossible, but to give the patient's ego freedom to decide one way or another. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1257 days)
