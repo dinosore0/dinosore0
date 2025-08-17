@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Analysis does not set out to make pathological reactions impossible, but to give the patient's ego freedom to decide one way or another. 
+  Happiness makes up in height for what it lacks in length. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1257 days)
