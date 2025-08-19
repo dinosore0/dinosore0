@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love and compassion are necessities, not luxuries. Without them humanity cannot survive. 
+  If you want to conquer fear, don't sit home and think about it. Go out and get busy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1259 days)
