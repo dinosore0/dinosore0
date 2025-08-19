@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is in true beauty, as in courage, something which narrow souls cannot dare to admire. 
+  Do the thing you fear most and the death of fear is certain. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1259 days)
