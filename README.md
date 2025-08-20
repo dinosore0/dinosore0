@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness doesn't depend on any external conditions, it is governed by our mental attitude. 
+  The fewer the facts, the stronger the opinion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1260 days)
