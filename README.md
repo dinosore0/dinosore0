@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I felt extremely uncomfortable as the focal point, in the spotlight. I really like the behind the scenes role, because all my freedom is there. 
+  Happiness doesn't depend on any external conditions, it is governed by our mental attitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1260 days)
