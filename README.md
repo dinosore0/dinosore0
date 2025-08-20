@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The highest education is that which does not merely give us information but makes our life in harmony with all existence. 
+  Life is as tedious as twice-told tale, vexing the dull ear of a drowsy man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1260 days)
