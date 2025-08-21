@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Put not your trust in money, but put your money in trust. 
+  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1261 days)
