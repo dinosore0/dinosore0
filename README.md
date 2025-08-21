@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
+  Happiness is not something ready made. It comes from your own actions. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1261 days)
