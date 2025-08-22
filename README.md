@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Achieving life is not the equivalent of avoiding death. 
+  Consistency is contrary to nature, contrary to life. The only completely consistent people are dead. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1262 days)
