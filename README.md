@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before you embark on a journey of revenge, dig two graves. 
+  The only thing that could spoil a day was people. People were always the limiters of happiness except for the very few that were as good as spring itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1262 days)
