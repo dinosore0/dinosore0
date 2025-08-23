@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  That the saints may enjoy their beatitude and the grace of God more abundantly they are permitted to see the punishment of the damned in hell. 
+  I never attempt to make money on the stock market. I buy on the assumption that they could close the market the next day and not reopen it for five years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1262 days)
+## 🌟 Experiences (1263 days)
 
 ### 🧮 Programming languages
 
