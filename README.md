@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never in the field of human conflict was so much owed by so many to so few. 
+  We live in a Newtonian world of Einsteinian physics ruled by Frankenstein logic. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1263 days)
