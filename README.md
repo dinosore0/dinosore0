@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nine-tenths of wisdom is being wise in time. 
+  Communists have always played an active role in the fight by colonial countries for their freedom, because the short-term objects of Communism would always correspond with the long-term objects of freedom movements. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1263 days)
