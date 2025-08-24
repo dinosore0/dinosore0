@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The world is full of magical things patiently waiting for our wits to grow sharper. 
+  Courage is doing what you're afraid to do.  There can be no courage unless you're scared. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1264 days)
