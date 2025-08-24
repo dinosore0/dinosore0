@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the depth of winter I finally learned that there was in me an invincible summer. 
+  The world is full of magical things patiently waiting for our wits to grow sharper. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1264 days)
