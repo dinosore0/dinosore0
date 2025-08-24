@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your manuscript is both good and original but the part that is good is not original, and the part that is original is not good. 
+  A spoonful of honey will catch more flies than a gallon of vinegar. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1264 days)
