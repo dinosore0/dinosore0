@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've done everything I wanted to do, even if I have had to pay a very high price - which has been the case most of the time. 
+  An API is like a joke, if you have to explain it it's not that good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1263 days)
+## 🌟 Experiences (1264 days)
 
 ### 🧮 Programming languages
 
