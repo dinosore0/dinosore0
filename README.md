@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is impossible to live without failing at something, unless you live so cautiously that you might has well not have lived at all, in which case you have failed by default. 
+  The best of artists has no conception that the marble alone does not contain within itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1265 days)
