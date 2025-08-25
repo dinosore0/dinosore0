@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People often say that motivation doesn't last. Well, neither does bathing, that's why we recommend it daily. 
+  The lunatic, the lover, and the poet, are of imagination; all compact. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1265 days)
