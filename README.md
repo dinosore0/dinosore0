@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
+  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1266 days)
