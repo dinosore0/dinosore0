@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't spend time beating on a wall, hoping to transform it into a door. 
+  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1266 days)
