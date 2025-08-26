@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Perfect happiness is a beautiful sunset, the giggle of a grandchild, the first snowfall. It’s the little things that make happy moments, not the grand events. Joy comes in sips, not gulps. 
+  If we do discover a complete theory, it should be in time understandable in broad principle by everyone. Then we shall all, philosophers, scientists, and just ordinary people be able to take part in the discussion of why we and the universe exist. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1265 days)
+## 🌟 Experiences (1266 days)
 
 ### 🧮 Programming languages
 
