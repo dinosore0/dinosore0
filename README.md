@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
+  If God did not exist, it would be necessary to invent Him. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1267 days)
