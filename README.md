@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
+  Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1266 days)
+## 🌟 Experiences (1267 days)
 
 ### 🧮 Programming languages
 
