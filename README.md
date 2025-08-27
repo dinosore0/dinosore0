@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down. 
+  If you know how to read, you have a complete education about life, then you know how to vote within a democracy. But if you don't know how to read, you don't know how to decide. That's the great thing about our country - we're a democracy of readers, and we should keep it that way. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1267 days)
