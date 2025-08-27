@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have decided to stick with love. Hate is too great a burden to bear. 
+  The more I think about it, the more I realize there is nothing more artistic than to love others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1267 days)
