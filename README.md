@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Brave men rejoice in adversity, just as brave soldiers triumph in war. 
+  Faith, there hath been many great men that have flattered the people who ne'er loved them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1267 days)
