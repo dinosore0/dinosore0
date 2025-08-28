@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not think there is any other quality so essential to success, of any kind, as perseverance. It overcomes almost everything. 
+  Happiness can exist only in acceptance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1268 days)
