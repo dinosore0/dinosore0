@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best evaluation I can make of a player is to look in his eyes and see how scared they are. 
+  Opportunities are usually disguised as hard work, so most people don't recognize them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1268 days)
