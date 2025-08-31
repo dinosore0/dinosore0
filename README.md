@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Progress is a nice word. But change is its motivator. And change has its enemies. 
+  It is the mark of an educated mind to be able to entertain a thought without accepting it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1271 days)
