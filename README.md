@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And it must follow, as the night the day, thou canst not then be false to any man. 
+  It is wonderful how much time good people spend fighting the devil. If they would only expend the same amount of energy loving their fellow men, the devil would die in his own tracks of ennui. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1271 days)
