@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let every eye negotiate for itself and trust no agent. 
+  Good education is not what fills your head with facts but what stimulates curiosity. You then learn for the rest of your life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1271 days)
+## 🌟 Experiences (1272 days)
 
 ### 🧮 Programming languages
 
