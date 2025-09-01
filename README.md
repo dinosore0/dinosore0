@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Priests are not men of the world it is not intended that they should be and a University training is the one best adapted to prevent their becoming so. 
+  Slang is a language that rolls up its sleeves, spits on its hands and goes to work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1272 days)
