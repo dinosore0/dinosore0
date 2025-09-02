@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People grow through experience if they meet life honestly and courageously. This is how character is built. 
+  Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1273 days)
