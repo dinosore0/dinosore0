@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The key to everything is patience. You get the chicken by hatching the egg, not by smashing it. 
+  Youth is a wonderful thing. What a crime to waste it on children. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1273 days)
