@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage. 
+  Only by the sweat of my own brow. I am a totally working man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1274 days)
