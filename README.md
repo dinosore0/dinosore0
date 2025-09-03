@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If history were taught in the form of stories, it would never be forgotten. 
+  Brave men rejoice in adversity, just as brave soldiers triumph in war. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1274 days)
