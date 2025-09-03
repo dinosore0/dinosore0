@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There comes a pause, for human strength will not endure to dance without cessation and everyone must reach the point at length of absolute prostration. 
+  Doubt that the sun doth move, doubt truth to be a liar, but never doubt I love. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1274 days)
