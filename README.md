@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your edge is where you stop short, or where you compromise your fullest gift, and, instead, cater to your fears. 
+  There are no rules of architecture for a castle in the clouds. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1275 days)
