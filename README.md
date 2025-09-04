@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love is like a beautiful flower which I may not touch, but whose fragrance makes the garden a place of delight just the same. 
+  Death does not concern us, because as long as we exist, death is not here. And when it does come, we no longer exist. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1275 days)
