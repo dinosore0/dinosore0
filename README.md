@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You're just left with yourself all the time, whatever you do anyway. You've got to get down to your own God in your own temple. It's all down to you, mate. 
+  It is a sign of contraction of the mind when it is content, or of weariness. A spirited mind never stops within itself it is always aspiring and going beyond its strength. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1275 days)
