@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's amazing that the amount of news that happens in the world every day always just exactly fits the newspaper. 
+  Depth of friendship does not depend on length of acquaintance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1277 days)
