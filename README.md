@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Poetry is a deal of joy and pain and wonder, with a dash of the dictionary. 
+  Poets utter great and wise things which they do not themselves understand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1277 days)
