@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art never improves, but... the material of art is never quite the same. 
+  I think frugality drives innovation, just like other constraints do. One of the only ways to get out of a tight box is to invent your way out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1278 days)
