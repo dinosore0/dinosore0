@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am tormented with an everlasting itch for things remote. I love to sail forbidden seas. 
+  There's no present. There's only the immediate future and the recent past. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1278 days)
