@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me, why is the media here so negative? Why are we in India so embarrassed to recognise our own strengths, our achievements? We are such a great nation. We have so many amazing success stories but we refuse to acknowledge them. Why? 
+  I have found little that is 'good' about human beings on the whole. In my experience most of them are trash, no matter whether they publicly subscribe to this or that ethical doctrine or to none at all. That is something that you cannot say aloud, or perhaps even think. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1279 days)
