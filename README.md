@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Communism has never come to power in a country that was not disrupted by war or corruption, or both. 
+  In poverty and other misfortunes of life, true friends are a sure refuge. The young they keep out of mischief to the old they are a comfort and aid in their weakness, and those in the prime of life they incite to noble deeds. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1280 days)
