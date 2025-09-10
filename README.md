@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm not comfortable being around too many people. I don't like being out in public too much. I don't like going to bars. I don't like doing celebrity stuff. So most of the characters I play are people who don't always feel comfortable beyond their small circle of friends. 
+  Every day begins with an act of courage and hope: getting out of bed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1281 days)
