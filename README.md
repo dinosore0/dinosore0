@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws. 
+  Every time I see an adult on a bicycle, I no longer despair for the future of the human race. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1282 days)
