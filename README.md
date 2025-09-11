@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every time I see an adult on a bicycle, I no longer despair for the future of the human race. 
+  Words have no power to impress the mind without the exquisite horror of their reality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1282 days)
