@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
+  There is something terribly morbid in the modern sympathy with pain. One should sympathise with the colour, the beauty, the joy of life. The less said about life's sores the better. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1281 days)
+## 🌟 Experiences (1282 days)
 
 ### 🧮 Programming languages
 
