@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In times of great stress or adversity, it's always best to keep busy, to plow your anger and your energy into something positive. 
+  The best of artists has no conception that the marble alone does not contain within itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1283 days)
