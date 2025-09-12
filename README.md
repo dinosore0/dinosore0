@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The trouble lies in the fact that people do not have an object - one thing to which they stick, letting all else go. Success is the product of the severest kind of mental and physical application. 
+  Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don't start measuring her limbs. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1283 days)
