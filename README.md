@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man, alone, has the power to transform his thoughts into physical reality; man, alone, can dream and make his dreams come true. 
+  Often when you think you’re at the end of something, you’re at the beginning of something else. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1283 days)
