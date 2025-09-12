@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Often when you think you’re at the end of something, you’re at the beginning of something else. 
+  Success is walking from failure to failure with no loss of enthusiasm. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1283 days)
