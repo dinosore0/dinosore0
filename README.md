@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I think that people want peace so much that one of these days government had better get out of their way and let them have it. 
+  The trouble lies in the fact that people do not have an object - one thing to which they stick, letting all else go. Success is the product of the severest kind of mental and physical application. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1283 days)
