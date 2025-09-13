@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones. 
+  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1284 days)
