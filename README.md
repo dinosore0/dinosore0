@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
+  Accept challenges, so that you may feel the exhilaration of victory. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1284 days)
