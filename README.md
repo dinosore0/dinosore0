@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Dream as if you'll live forever. Live as if you'll die today. 
+  No man ever believes that the Bible means what it says:  He is always convinced that it says what he means. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1284 days)
+## 🌟 Experiences (1285 days)
 
 ### 🧮 Programming languages
 
