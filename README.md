@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Peace cannot be achieved through violence, it can only be attained through understanding. 
+  For a people who are free, and who mean to remain so, a well-organized and armed militia is their best security. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1285 days)
