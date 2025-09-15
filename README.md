@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every war when it comes, or before it comes, is represented not as a war but as an act of self-defense against a homicidal maniac. 
+  Do not go where the path may lead, go instead where there is no path and leave a trail. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1286 days)
