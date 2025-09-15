@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never travel without my diary. One should always have something sensational to read in the train. 
+  Man has, as it were, become a kind of prosthetic God. When he puts on all his auxiliary organs, he is truly magnificent but those organs have not grown on him and they still give him much trouble at times. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1285 days)
+## 🌟 Experiences (1286 days)
 
 ### 🧮 Programming languages
 
