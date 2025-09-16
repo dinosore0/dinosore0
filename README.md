@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There was never an angry man that thought his anger unjust. 
+  If there is any delay in that feedback loop between thinking of something and seeing it and building on it, then there is this whole world of ideas which will never be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1287 days)
