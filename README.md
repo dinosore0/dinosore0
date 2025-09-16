@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any fool can tell the truth, but it requires a man of some sense to know how to lie well. 
+  What do I think of Western civilization? I think it would be a very good idea. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1287 days)
