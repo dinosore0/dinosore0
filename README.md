@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A business absolutely devoted to service will have only one worry about profits. They will be embarrassingly large. 
+  He who has not the spirit of this age, has all the misery of it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1287 days)
