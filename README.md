@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is absurd to divide people into good and bad. People are either charming or tedious. 
+  My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1288 days)
