@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One morning I shot an elephant in my pajamas. How he got into my pajamas I'll never know. 
+  Design is a funny word. Some people think design means how it looks. But of course, if you dig deeper, it's really how it works. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1288 days)
