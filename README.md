@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hatred does not cease by hatred, but only by love this is the eternal rule. 
+  First you take a drink, then the drink takes a drink, then the drink takes you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1287 days)
+## 🌟 Experiences (1288 days)
 
 ### 🧮 Programming languages
 
