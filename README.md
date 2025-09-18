@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The virtues, like the Muses, are always seen in groups. A good principle was never found solitary in any breast. 
+  Each problem has hidden in it an opportunity so powerful that it literally dwarfs the problem. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1289 days)
