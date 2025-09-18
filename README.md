@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If they want peace, nations should avoid the pin-pricks that precede cannon shots. 
+  The view of Jerusalem is the history of the world it is more, it is the history of earth and of heaven. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1289 days)
