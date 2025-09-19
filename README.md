@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Leadership is a privilege to better the lives of others. It is not an opportunity to satisfy personal greed. 
+  The wise are wise only because they love. The fool are fools only because they think they can understand love. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1290 days)
