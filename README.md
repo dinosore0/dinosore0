@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself. 
+  Life is meant to be a challenge, because challenges are what make you grow. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1290 days)
