@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Young love is a flame very pretty, often very hot and fierce, but still only light and flickering. The love of the older and disciplined heart is as coals, deep-burning, unquenchable. 
+  The worst thing in this world, next to anarchy, is government. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1291 days)
