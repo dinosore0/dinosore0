@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Will you look back on life and say "I wish I had" or "I'm glad I did"? 
+  The man who does not read good books has no advantage over the man who cannot read them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1291 days)
