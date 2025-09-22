@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tragedy is a tool for the living to gain wisdom, not a guide by which to live. 
+  In the practice of tolerance, one's enemy is the best teacher. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1293 days)
