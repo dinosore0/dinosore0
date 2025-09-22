@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take a course in good water and air and in the eternal youth of Nature you may renew your own. Go quietly, alone no harm will befall you. 
+  To describe my mother would be to write about a hurricane in its perfect power. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1293 days)
