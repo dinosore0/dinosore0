@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our scientific power has outrun our spiritual power. We have guided missiles and misguided men. 
+  Nothing in life is to be feared.  It is only to be understood. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1293 days)
