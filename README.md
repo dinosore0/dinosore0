@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people. 
+  Strength does not come from physical capacity. It comes from an indomitable will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1293 days)
