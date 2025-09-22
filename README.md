@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
+  Remember happiness doesn't depend upon who you are or what you have it depends solely on what you think. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1293 days)
