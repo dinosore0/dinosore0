@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I followed my heart, and it led me to the beach. 
+  It is impossible to live without failing at something, unless you live so cautiously that you might has well not have lived at all, in which case you have failed by default. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1294 days)
