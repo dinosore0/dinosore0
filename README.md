@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance. 
+  I followed my heart, and it led me to the beach. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1294 days)
