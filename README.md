@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You must not fight too often with one enemy, or you will teach him all your art of war. 
+  To live a pure unselfish life, one must count nothing as one's own in the midst of abundance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1294 days)
+## 🌟 Experiences (1295 days)
 
 ### 🧮 Programming languages
 
