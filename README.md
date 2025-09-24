@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's amazing what ordinary people can do if they set out without preconceived notions. 
+  A woman's mind is cleaner than a man's. She changes it more often. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1295 days)
