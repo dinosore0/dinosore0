@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The art of being happy lies in the power of extracting happiness from common things. 
+  It is a scientific fact that your body will not absorb cholesterol if you take it from another person's plate. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1295 days)
