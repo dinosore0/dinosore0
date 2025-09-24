@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fact that we imagine ourselves to be right and everybody else wrong is the greatest of all obstacles in the path towards unity... 
+  Faced with what is right, to leave it undone shows a lack of courage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1295 days)
