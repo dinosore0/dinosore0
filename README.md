@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. 
+  When the best leader's work is done the people say, 'We did it ourselves.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1295 days)
+## 🌟 Experiences (1296 days)
 
 ### 🧮 Programming languages
 
