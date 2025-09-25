@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nine-tenths of wisdom is being wise in time. 
+  An American monkey, after getting drunk on brandy, would never touch it again, and thus is much wiser than most men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1296 days)
