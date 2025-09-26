@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And it must follow, as the night the day, thou canst not then be false to any man. 
+  Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1297 days)
