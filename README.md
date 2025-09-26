@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  They may not remember what you said. They may not remember what you did. But they will never forget how you made them feel. 
+  It only takes 20 years for a liberal to become a conservative without changing a single idea. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1297 days)
