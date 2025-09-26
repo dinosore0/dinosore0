@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have more possibilities available in each moment than we realize. 
+  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1297 days)
