@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Follow your body because most of the time it knows where to go 
+  JUST DO IT！ 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1296 days)
+## 🌟 Experiences (1297 days)
 
 ### 🧮 Programming languages
 
