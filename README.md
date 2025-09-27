@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What we have once enjoyed we can never lose. All that we love deeply becomes a part of us. 
+  Like all great travellers, I have seen more than I remember, and remember more than I have seen. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1298 days)
