@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To give thanks in solitude is enough. Thanksgiving has wings and goes where it must go. Your prayer knows much more about it than you do. 
+  The art of living well and the art of dying well are one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1298 days)
