@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And if you don't believe the sun will rise, stand alone and greet the coming night in the last remaining light. 
+  I sometimes think that God in creating man somewhat overestimated his ability. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1299 days)
