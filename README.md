@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When we are born we cry that we are come to this great stage of fools. 
+  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1299 days)
