@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All difficult things have their origin in that which is easy, and great things in that which is small. 
+  Treat your men as you would your own beloved sons. And they will follow you into the deepest valley. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1299 days)
