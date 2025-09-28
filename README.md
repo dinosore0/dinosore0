@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let your schooling interfere with your education. 
+  It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1298 days)
+## 🌟 Experiences (1299 days)
 
 ### 🧮 Programming languages
 
