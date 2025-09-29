@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Treat your men as you would your own beloved sons. And they will follow you into the deepest valley. 
+  Reason is God's crowning gift to man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1299 days)
+## 🌟 Experiences (1300 days)
 
 ### 🧮 Programming languages
 
