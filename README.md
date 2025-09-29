@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
+  If you know how to read, you have a complete education about life, then you know how to vote within a democracy. But if you don't know how to read, you don't know how to decide. That's the great thing about our country - we're a democracy of readers, and we should keep it that way. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1300 days)
