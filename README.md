@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It seems like such a terrible shame that innocent civilians have to get hurt in wars, otherwise combat would be such a wonderfully healthy way to rid the human race of unneeded trash. 
+  Everything's got a moral, if only you can find it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1300 days)
+## 🌟 Experiences (1301 days)
 
 ### 🧮 Programming languages
 
