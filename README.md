@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering. 
+  I don't believe one grows older. I think that what happens early on in life is that at a certain age one stands still and stagnates. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1301 days)
