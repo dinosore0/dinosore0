@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What it lies in our power to do, it lies in our power not to do. 
+  It is not enough to know your craft - you have to have feeling. Science is all very well, but for us imagination is worth far more. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1301 days)
