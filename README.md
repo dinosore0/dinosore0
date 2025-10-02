@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The future is no more uncertain than the present. 
+  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1303 days)
