@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We’re just in the beginning stages of what will be a truly remarkable breakthrough for most people — as remarkable as the telephone. 
+  What's another word for Thesaurus? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1303 days)
