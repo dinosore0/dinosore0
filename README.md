@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nixon is one of the few in the history of this country to run for high office talking out of both sides of his mouth at the same time and lying out of both sides. 
+  Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1304 days)
