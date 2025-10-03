@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Heaven has no rage like love to hatred turned, nor hell a fury like a woman scorned. 
+  He who steals a little steals with the same wish as he who steals much, but with less power. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1304 days)
