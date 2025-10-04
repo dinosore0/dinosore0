@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In order to find truth we must give up our prejudices, our own small trivial notions; an open receptive mind is essential. If our chalice is full of self, there is no room in it for the water of life. 
+  Age appears to be best in four things old wood best to burn, old wine to drink, old friends to trust, and old authors to read. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1305 days)
