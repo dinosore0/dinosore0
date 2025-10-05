@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To be positive is to be mistaken at the top of one's voice. 
+  If anyone is crazy enough to want to kill a president of the United States, he can do it. All he must be prepared to do is give his life for the president's. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1306 days)
