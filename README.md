@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Intelligence is the ability to adapt to change. 
+  Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1307 days)
