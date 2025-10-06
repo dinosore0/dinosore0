@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Mystical explanations are thought to be deep; the truth is that they are not even shallow. 
+  A man only lives once and the best strategy is always to make most of it. Success is not the only reason for existence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1307 days)
