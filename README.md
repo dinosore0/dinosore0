@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be content with what you are, and wish not change nor dread your last day, nor long for it. 
+  Only men who are not interested in women are interested in women's clothes. Men who like women never notice what they wear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1308 days)
