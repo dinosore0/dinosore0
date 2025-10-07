@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're more interested in what you have achieved, or what you're financial position enables you to do than that thing that got those things, you're screwed. 
+  Failure is nature's plan to prepare you for great responsibilities. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1308 days)
