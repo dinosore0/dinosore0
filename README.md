@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You better cut the pizza in four pieces because I'm not hungry enough to eat six. 
+  The man who does not read good books has no advantage over the man who cannot read them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1309 days)
