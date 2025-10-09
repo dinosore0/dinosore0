@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To give thanks in solitude is enough. Thanksgiving has wings and goes where it must go. Your prayer knows much more about it than you do. 
+  Neither a borrower nor a lender be; For loan oft loses both itself and friend, and borrowing dulls the edge of husbandry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1310 days)
