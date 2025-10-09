@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always speak the truth, think before you speak, and write it down afterwards. 
+  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1310 days)
