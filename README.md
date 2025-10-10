@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith is not believing that God can. It is knowing that God will. 
+  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1311 days)
