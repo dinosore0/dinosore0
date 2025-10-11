@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one day the speed kills me, do not cry because I was smiling. 
+  Wise leaders generally have wise counselors because it takes a wise person themselves to distinguish them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1312 days)
