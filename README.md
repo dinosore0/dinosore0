@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
+  Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1311 days)
+## 🌟 Experiences (1312 days)
 
 ### 🧮 Programming languages
 
