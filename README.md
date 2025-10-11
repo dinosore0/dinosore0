@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wise leaders generally have wise counselors because it takes a wise person themselves to distinguish them. 
+  I don't live in the past at all I'm always wanting to do something new. I make a point of constantly trying to forget and get things out of my mind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1312 days)
