@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men must be governed by God or they will be ruled by tyrants. 
+  Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1313 days)
