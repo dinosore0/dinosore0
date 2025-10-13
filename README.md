@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The man that hath no music in himself, Nor is not moved with concord of sweet sounds, is fit for treasons, stratagems and spoils. 
+  If there is anything I've learned from Linux, it's that projects have a life of their own, and you should not try to enforce your vision too strongly on them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1313 days)
+## 🌟 Experiences (1314 days)
 
 ### 🧮 Programming languages
 
