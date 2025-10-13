@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness. 
+  I was a peripheral visionary. I could see the future, but only way off to the side. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1314 days)
