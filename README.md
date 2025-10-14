@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do what makes u feel alive never belive anyone is for u cuz in the end u stand alone 
+  First you take a drink, then the drink takes a drink, then the drink takes you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1315 days)
