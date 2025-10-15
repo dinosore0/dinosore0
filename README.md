@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let the future disturb you. You will meet it, if you have to, with the same weapons of reason which today arm you against the present. 
+  In a disordered mind, as in a disordered body, soundness of health is impossible. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1315 days)
+## 🌟 Experiences (1316 days)
 
 ### 🧮 Programming languages
 
