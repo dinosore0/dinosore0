@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Proverbs are always platitudes until you have personally experienced the truth of them. 
+  The man who views the world at 50 the same he did at 20 has wasted thirty years of his life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1316 days)
