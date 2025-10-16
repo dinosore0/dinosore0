@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
+  Pray thee, spare, thyself at times: for it becomes a wise man sometimes to relax the high pressure of his attention to work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1317 days)
