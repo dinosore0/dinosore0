@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself. 
+  Success is getting what you want. Happiness is wanting what you get. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1317 days)
