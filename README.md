@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let it be your constant method to look into the design of people's actions, and see what they would be at, as often as it is practicable and to make this custom the more significant, practice it first upon yourself. 
+  A person with a flexible schedule and average resources will be happier than a rich person who has everything except a flexible schedule. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1316 days)
+## 🌟 Experiences (1317 days)
 
 ### 🧮 Programming languages
 
