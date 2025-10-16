@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Real difficulties can be overcome; it is only the imaginary ones that are unconquerable 
+  Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1317 days)
