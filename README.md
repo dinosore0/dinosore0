@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  However many holy words you read, however many you speak, what good will they do you if you do not act on upon them? 
+  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1319 days)
