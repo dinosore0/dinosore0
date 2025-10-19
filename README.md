@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How much more grievous are the consequences of anger than the causes of it. 
+  Everywhere is nowhere. When a person spends all his time in foreign travel, he ends by having many acquaintances, but no friends. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1320 days)
