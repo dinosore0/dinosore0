@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A place for everything, everything in its place. 
+  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1320 days)
