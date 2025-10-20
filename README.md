@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most important thing to us is that our customers love our products. Not just buy them, but love them. 
+  If you've been playing poker for half an hour and you still don't know who the patsy is, you're the patsy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1321 days)
