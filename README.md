@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life can only be understood backwards; but it must be lived forwards. 
+  Speak the truth, do not yield to anger give, if thou art asked for little by these three steps thou wilt go near the gods. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1322 days)
