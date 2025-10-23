@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Who is wise in love, love most, say least. 
+  There are several good protections against temptation, but the surest is cowardice. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1323 days)
+## 🌟 Experiences (1324 days)
 
 ### 🧮 Programming languages
 
