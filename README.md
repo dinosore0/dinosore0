@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I've come to believe that all my past failure and frustration were actually laying the foundation for the understandings that have created the new level of living I now enjoy. 
+  Business can learn about new conditions the same way a gene pool does. I'm not claiming companies can get smarter, just that dumb ones will die. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1325 days)
