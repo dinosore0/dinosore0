@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If history were taught in the form of stories, it would never be forgotten. 
+  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1325 days)
