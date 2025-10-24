@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Motivation is the art of getting people to do what you want them to do because they want to do it. 
+  Many of life's failures are people who did not realize how close they were to success when they gave up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1325 days)
