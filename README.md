@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
+  The stone age came to an end not for lack of stones. And the oil age will come to an end not for lack of oil. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1325 days)
