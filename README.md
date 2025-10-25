@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tact is the ability to tell someone to go to hell in a manner in which they look forward to the trip 
+  It's only after we've lost everything that we're free to do anything. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1325 days)
+## 🌟 Experiences (1326 days)
 
 ### 🧮 Programming languages
 
