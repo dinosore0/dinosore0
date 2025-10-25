@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your manuscript is both good and original but the part that is good is not original, and the part that is original is not good. 
+  It is better to be violent, if there is violence in our hearts, than to put on the cloak of nonviolence to cover impotence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1326 days)
