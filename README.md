@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
+  It is generally recognised that women are better than men at languages, personal relations and multi-tasking, but less good at map-reading and spatial awareness. It is therefore not unreasonable to suppose that women might be less good at mathematics and physics. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1327 days)
