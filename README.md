@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ineffable joy of forgiving and being forgiven forms an ecstasy that might well arouse the envy of the gods. 
+  Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1328 days)
