@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life would be tragic if it weren't funny. 
+  Freedom is what you do with what's been done to you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1328 days)
