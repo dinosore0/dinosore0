@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only those who will risk going too far can possibly find out how far one can go. 
+  Old men are dangerous: it doesn't matter to them what is going to happen to the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1329 days)
