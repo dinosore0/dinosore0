@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nobody gets to live life backward. Look ahead, that is where your future lies. 
+  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1329 days)
