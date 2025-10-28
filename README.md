@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Before you embark on a journey of revenge, dig two graves. 
+  Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1328 days)
+## 🌟 Experiences (1329 days)
 
 ### 🧮 Programming languages
 
