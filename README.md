@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The troubles of this world pass, and what we have left is what we have made of our souls... 
+  You can close more business in two months by becoming interested in other people than you can in two years by trying to get people interested in you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1330 days)
