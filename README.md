@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can search throughout the entire universe for someone who is more deserving of your love and affection than you are yourself, and that person is not to be found anywhere. You yourself, as much as anybody in the entire universe deserve your love and affection. 
+  The over-all point is that new technology will not necessarily replace old technology, but it will date it. By definition. Eventually, it will replace it. But it's like people who had black-and-white TVs when color came out. They eventually decided whether or not the new technology was worth the investment. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1330 days)
