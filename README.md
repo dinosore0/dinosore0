@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you love life, don't waste time, for time is what life is made up of. 
+  I would rather walk with a friend in the dark than walk alone in the light. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1329 days)
+## 🌟 Experiences (1330 days)
 
 ### 🧮 Programming languages
 
