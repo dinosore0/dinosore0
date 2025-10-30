@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
+  Now, God be praised, that to believing souls gives light in darkness, comfort in despair. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1331 days)
