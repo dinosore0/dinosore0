@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It will be I, it will be the silence, where I am, I don't know, I'll never know, in the silence you don't know, you must go on, I can't go on, I'll go on. 
+  Dig within. Within is the wellspring of Good; and it is always ready to bubble up, if you just dig. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1330 days)
+## 🌟 Experiences (1331 days)
 
 ### 🧮 Programming languages
 
