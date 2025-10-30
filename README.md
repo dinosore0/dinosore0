@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Dig within. Within is the wellspring of Good; and it is always ready to bubble up, if you just dig. 
+  A wise man can learn more from a foolish question than a fool can learn from a wise answer. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1331 days)
