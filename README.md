@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wise men speak because they have something to say; Fools because they have to say something. 
+  You could rattle the stars. You could do anything, if you only dared. And deep down, you know it too, and that’s what scares you the most 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1331 days)
