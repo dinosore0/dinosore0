@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The supreme quality for leadership is unquestionably integrity. Without it, no real success is possible, no matter whether it is on a section gang, a football field, in an army, or in an office. 
+  What might be taken for a precocious genius is the genius of childhood. When the child grows up, it disappears without a trace. It may happen that this boy will become a real painter some day, or even a great painter. But then he will have to begin everything again, from zero. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1331 days)
