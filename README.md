@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life's most persistent and urgent question is, 'What are you doing for others?' 
+  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1332 days)
