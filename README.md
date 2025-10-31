@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life and death are one thread, the same line viewed from different sides. 
+  Wisdom doesn't necessarily come with age. Sometimes age just shows up all by itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1332 days)
