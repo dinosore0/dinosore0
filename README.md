@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Buddhas move freely through birth and death, appearing and disappearing at will. 
+  “If religion is opposed to reason and science, faith is impossible; and when faith and confidence in the divine religion are not manifest in the heart, there can be no spiritual attainment.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1332 days)
