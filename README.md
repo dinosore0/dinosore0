@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Remember no one can make you feel inferior without your consent. 
+  The key to everything is patience. You get the chicken by hatching the egg, not by smashing it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1332 days)
