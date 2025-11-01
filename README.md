@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are only two kinds of languages: the ones people complain about and the ones nobody uses. 
+  What we have once enjoyed we can never lose. All that we love deeply becomes a part of us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1333 days)
