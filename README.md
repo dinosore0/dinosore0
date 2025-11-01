@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations. 
+  A society grows great when old men plant trees whose shade they know they shall never sit in. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1333 days)
