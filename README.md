@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I challenge you to make your life a masterpiece. I challenge you to join the ranks of those people who live what they teach, who walk their talk. 
+  If we do discover a complete theory, it should be in time understandable in broad principle by everyone. Then we shall all, philosophers, scientists, and just ordinary people be able to take part in the discussion of why we and the universe exist. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1334 days)
