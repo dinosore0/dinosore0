@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My mentality is that of a samurai. I would rather commit seppuku than fail. 
+  It is not doing the thing we like to do, but liking the thing we have to do, that makes life blessed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1334 days)
