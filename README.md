@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything. 
+  I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1334 days)
