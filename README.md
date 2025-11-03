@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
+  He who is to be a good ruler must have first been ruled. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1335 days)
