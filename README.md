@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Fall in love with the process and the results will come. 
+  In large states public education will always be mediocre, for the same reason that in large kitchens the cooking is usually bad. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1335 days)
