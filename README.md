@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In my afternoon walk I would fain forget all my morning occupations and my obligations to society. 
+  It’s a funny thing about life; if you refuse to accept anything but the best, you very often get it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1334 days)
+## 🌟 Experiences (1335 days)
 
 ### 🧮 Programming languages
 
