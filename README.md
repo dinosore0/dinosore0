@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best way to get a bad law repealed is to enforce it strictly. 
+  It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1335 days)
