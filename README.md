@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Proverbs are always platitudes until you have personally experienced the truth of them. 
+  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1336 days)
