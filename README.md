@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. 
+  Believe you can and you're halfway there. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1335 days)
+## 🌟 Experiences (1336 days)
 
 ### 🧮 Programming languages
 
