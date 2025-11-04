@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
+  Any customer can have a car painted any color that he wants so long as it is black. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1336 days)
