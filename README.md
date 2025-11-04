@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
+  What would there be in a story of happiness? Only what prepares it, only what destroys it can be told. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1336 days)
