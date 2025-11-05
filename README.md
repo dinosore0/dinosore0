@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When art critics get together, they talk about Form and Structure and Meaning. When artists get together, they talk about where you can buy cheap turpentine. 
+  Blow, blow, thou winter wind! Thou art not so unkind as man's ingratitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1337 days)
