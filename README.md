@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All women become like their mothers. That is their tragedy. No man does. That's his. 
+  Detachment does not consist in setting fire to one's house, or becoming bankrupt or throwing one's fortune out of the window, or even giving away all of one's possessions. Detachment consists in refraining from letting our possessions possess us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1337 days)
