@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want me to do things only for ROI reasons, you should get out of this stock. 
+  Love is the word used to label the sexual excitement of the young, the habituation of the middle-aged, and the mutual dependence of the old. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1337 days)
