@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man cannot discover new oceans unless he has the courage to lose sight of the shore. 
+  If you want me to do things only for ROI reasons, you should get out of this stock. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1337 days)
