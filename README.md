@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you practice gratefulness, there is a sense of respect toward others. 
+  The tent is a symbol of being transient.  It's a symbol of being at home, wherever you are. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1338 days)
