@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God's dream is that you and I and all of us will realize that we are family, that we are made for togetherness, for goodness, and for compassion. 
+  Faced with what is right, to leave it undone shows a lack of courage. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1338 days)
