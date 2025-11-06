@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A vow is a purely religious act which cannot be taken in a fit of passion. It can be taken only with a mind purified and composed and with God as witness. 
+  Any man who reads too much and uses his own brain too little falls into lazy habits of thinking. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1337 days)
+## 🌟 Experiences (1338 days)
 
 ### 🧮 Programming languages
 
