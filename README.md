@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When bad men combine, the good must associate else they will fall one by one, an unpitied sacrifice in a contemptible struggle. 
+  Love is like war: easy to begin but very hard to stop. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1339 days)
