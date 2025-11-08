@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Very often design is the most immediate way of defining what products become in people's minds. 
+  Everybody has something that chews them up and, for me, that thing was always loneliness. The cinema has the power to make you not feel lonely, even when you are. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1340 days)
