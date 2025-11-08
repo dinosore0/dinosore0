@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do your work with your whole heart, and you will succeed - there's so little competition. 
+  Life was always a matter of waiting for the right moment to act. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1339 days)
+## 🌟 Experiences (1340 days)
 
 ### 🧮 Programming languages
 
