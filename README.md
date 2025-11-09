@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The secret of success in life is for a man to be ready for his opportunity when it comes. 
+  There's no business like show business, but there are several businesses like accounting. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1340 days)
+## 🌟 Experiences (1341 days)
 
 ### 🧮 Programming languages
 
