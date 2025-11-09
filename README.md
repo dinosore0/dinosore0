@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Forgiveness is the fragrance that the violet sheds on the heel that has crushed it. 
+  Depth of friendship does not depend on length of acquaintance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1341 days)
