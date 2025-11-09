@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Your present circumstances don't determine where you can go they merely determine where you start. 
+  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1341 days)
