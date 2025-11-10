@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He is greatest whose strength carries up the most hearts by the attraction of his own. 
+  Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1342 days)
