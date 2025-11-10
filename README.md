@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What do I think of Western civilization? I think it would be a very good idea. 
+  It may be that the satisfaction I need depends on my going away, so that when I've gone and come back, I'll find it at home. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1341 days)
+## 🌟 Experiences (1342 days)
 
 ### 🧮 Programming languages
 
