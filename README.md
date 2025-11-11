@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Reversing your treatment of the man you have wronged is better than asking his forgiveness. 
+  I like anywhere with a beach. A beach and warm weather are all I really need. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1343 days)
