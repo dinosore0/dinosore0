@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes you recognize that there is a category of human experience that has not been identified but everyone knows about it. That is when I find a term to describe it. 
+  Although strength should fail, the effort will deserve praise. In great enterprises the attempt is enough. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1344 days)
