@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The intention to live as long as possible isn't one of the mind's best intentions, because quantity isn't the same as quality. 
+  Silence is an ornament for women. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1344 days)
