@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I do not concern myself with gods and spirits either good or evil nor do I serve any. 
+  Everything happens to everybody sooner or later if there is time enough. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1344 days)
