@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I believe it's time that women truly owned their superpowers and used their beauty and strength to change the world around them. 
+  I do not concern myself with gods and spirits either good or evil nor do I serve any. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1344 days)
