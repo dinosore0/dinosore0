@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I examine myself and my methods of thought I come to the conclusion that the gift of fantasy has meant more to me than my talent for absorbing positive knowledge. 
+  Peace cannot be achieved through violence, it can only be attained through understanding. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1345 days)
