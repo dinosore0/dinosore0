@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The line between failure and success is so fine that we scarcely know when we pass it: so fine that we are often on the line and do not know it. 
+  I know that I am intelligent, because I know that I know nothing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1345 days)
+## 🌟 Experiences (1346 days)
 
 ### 🧮 Programming languages
 
