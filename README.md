@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
+  We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1346 days)
