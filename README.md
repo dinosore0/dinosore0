@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. 
+  To know even one life has breathed easier because you have lived. This is to have succeeded. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1346 days)
