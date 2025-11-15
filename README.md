@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ache for home lives in all of us, the safe place where we can go as we are and not be questioned. 
+  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1347 days)
