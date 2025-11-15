@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  At his best, man is the noblest of all animals; separated from law and justice, he is the worst. 
+  A life is like a garden. Perfect moments can be had, but not preserved, except in memory. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1347 days)
