@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I love sleep. My life has the tendency to fall apart when I'm awake, you know? 
+  O Death, rock me asleep, bring me to quiet rest, let pass my weary guiltless ghost out of my careful breast. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1348 days)
