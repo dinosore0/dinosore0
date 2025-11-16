@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The only real failure in life is not to be true to the best one knows. 
+  We come altogether fresh and raw into the several stages of life, and often find ourselves without experience, despite our years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1348 days)
