@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The secret to being a writer is that you have to write. It's not enough to think about writing or to study literature or plan a future life as an author. You really have to lock yourself away, alone, and get to work. 
+  Be willing to be a begineer every single morning. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1348 days)
