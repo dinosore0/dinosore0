@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What is moral is what you feel good after, and what is immoral is what you feel bad after. 
+  And it must follow, as the night the day, thou canst not then be false to any man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1348 days)
+## 🌟 Experiences (1349 days)
 
 ### 🧮 Programming languages
 
