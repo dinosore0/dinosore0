@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
+  I'd rather attempt to do something great and fail than to attempt to do nothing and succeed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1349 days)
