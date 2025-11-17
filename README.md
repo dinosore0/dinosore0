@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The ideal man bears the accidents of life with dignity and grace, making the best of circumstances. 
+  The best evaluation I can make of a player is to look in his eyes and see how scared they are. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1349 days)
