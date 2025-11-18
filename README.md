@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Great men are they who see that spiritual is stronger than any material force - that thoughts rule the world. 
+  Success doesn't come to you... you go to it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1349 days)
+## 🌟 Experiences (1350 days)
 
 ### 🧮 Programming languages
 
