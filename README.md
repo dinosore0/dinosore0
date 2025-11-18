@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Women have simple tastes. They get pleasure out of the conversation of children in arms and men in love. 
+  I am not superstitious, but I am a little stitious. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1350 days)
