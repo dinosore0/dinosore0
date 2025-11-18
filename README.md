@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We can change our lives. We can do, have, and be exactly what we wish. 
+  Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1350 days)
