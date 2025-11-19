@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Seeing a murder on television can … help work off one’s antagonisms. And if you haven’t any antagonisms, the commercials will give you some. 
+  God is a thought who makes crooked all that is straight. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1351 days)
