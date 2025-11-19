@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have wasted History like a bunch of drunks shooting dice back in the men's crapper of the local bar. 
+  No evil can happen to a good man, either in life or after death. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1350 days)
+## 🌟 Experiences (1351 days)
 
 ### 🧮 Programming languages
 
