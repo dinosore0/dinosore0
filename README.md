@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul. 
+  The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1351 days)
