@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The first requisite of a good citizen in this republic of ours is that he shall be able and willing to pull his own weight. 
+  It is one of the beautiful compensations in this life that no one can sincerely try to help another without helping himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1351 days)
+## 🌟 Experiences (1352 days)
 
 ### 🧮 Programming languages
 
