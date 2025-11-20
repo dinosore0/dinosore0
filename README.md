@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people do not listen with the intent to understand; they listen with the intent to reply. 
+  I hated every minute of training, but I said, 'Don't quit. Suffer now and live the rest of your life as a champion.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1352 days)
