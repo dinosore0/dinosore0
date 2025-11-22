@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anger and intolerance are the enemies of correct understanding. 
+  Don't walk behind me; I may not lead. Don't walk in front of me; I may not follow. Just walk beside me and be my friend. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1354 days)
