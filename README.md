@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I had rather have a fool to make me merry than experience to make me sad and to travel for it too! 
+  If you ever find happiness by hunting for it, you will find it, as the old woman did her lost spectacles, safe on her own nose all the time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1355 days)
