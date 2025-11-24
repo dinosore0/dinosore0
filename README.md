@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When it comes to life the critical thing is whether you take things for granted or take them with gratitude. 
+  That last day does not bring extinction to us, but change of place. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1356 days)
