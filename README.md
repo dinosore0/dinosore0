@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  That last day does not bring extinction to us, but change of place. 
+  Suffering becomes beautiful when anyone bears great calamities with cheerfulness, not through insensibility but through greatness of mind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1356 days)
