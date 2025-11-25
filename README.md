@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  They must often change, who would be constant in happiness or wisdom. 
+  When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1357 days)
