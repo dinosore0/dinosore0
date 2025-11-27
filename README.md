@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Patriotism is the virtue of the vicious. 
+  Blow, blow, thou winter wind! Thou art not so unkind as man's ingratitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1359 days)
