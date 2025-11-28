@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the world 's a stage, and all the men and women merely players. They have their exits and their entrances; And one man in his time plays many parts. 
+  The only real progress lies in learning to be wrong all alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1360 days)
