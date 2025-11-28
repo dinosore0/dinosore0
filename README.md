@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
+  There is no lonelier man in death, except the suicide, than that man who has lived many years with a good wife and then outlived her. If two people love each other there can be no happy end to it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1360 days)
