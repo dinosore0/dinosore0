@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who is the author of a war lets loose the whole contagion of hell and opens a vein that bleeds a nation to death. 
+  Analysis does not set out to make pathological reactions impossible, but to give the patient's ego freedom to decide one way or another. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1361 days)
