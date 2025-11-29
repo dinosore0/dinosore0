@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves. 
+  Nothing is impossible, the word itself says 'I'm possible'! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1361 days)
