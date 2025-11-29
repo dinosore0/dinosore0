@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most violent element in society is ignorance. 
+  For the introduction of a new kind of music must be shunned as imperiling the whole state since styles of music are never disturbed without affecting the most important political institutions. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1361 days)
