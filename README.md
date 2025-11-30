@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Associate with men of good quality if you esteem your own reputation; for it is better to be alone than in bad company. 
+  Not to expose your true feelings to an adult seems to be instinctive from the age of seven or eight onwards. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1362 days)
