@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God will never direct us to be prideful, arrogant and unforgiving, immoral or slothful or full of fear. We step into these things because we are insensitive to the leadership of the Holy Spirit within us. 
+  If you have no respect for your own values how can you be worthy of respect from others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1362 days)
