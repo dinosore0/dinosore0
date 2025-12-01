@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Perfection is achieved, not when there is nothing more to add, but when there is nothing left to take away. 
+  Doubt that the sun doth move, doubt truth to be a liar, but never doubt I love. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1363 days)
