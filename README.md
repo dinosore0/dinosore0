@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “And now that you don’t have to be perfect, you can be good.” 
+  We're living in a time when the world has suddenly discovered India because it's run out of raw material for its imagination. The raw materials for imagination are inexhaustible here. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1363 days)
