@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If mama ain't happy, ain't nobody happy. 
+  Only men who are not interested in women are interested in women's clothes. Men who like women never notice what they wear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1363 days)
