@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Doubt that the sun doth move, doubt truth to be a liar, but never doubt I love. 
+  Great is truth, but still greater, from a practical point of view, is silence about truth. By simply not mentioning certain subjects... totalitarian propagandists have influenced opinion much more effectively than they could have by the most eloquent denunciations. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1363 days)
