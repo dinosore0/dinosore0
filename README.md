@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Concerning God, freewill and destiny: Of all that earth has been or yet may be, all that vain men imagine or believe, or hope can paint or suffering may achieve, we descanted. 
+  Yesterday is but today's memory, and tomorrow is today's dream. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1363 days)
