@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How incessant and great are the ills with which a prolonged old age is replete. 
+  Never stop dreaming big 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1362 days)
+## 🌟 Experiences (1363 days)
 
 ### 🧮 Programming languages
 
