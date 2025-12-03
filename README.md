@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Destiny is not a matter of chance, it is a matter of choice. It is not something to be waited for, but something to be achieved. 
+  If Microsoft ever does applications for Linux it means I've won. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1365 days)
