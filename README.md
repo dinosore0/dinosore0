@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If Microsoft ever does applications for Linux it means I've won. 
+  Worry does not empty tomorrow of its sorrow. It empties today of its strength. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1365 days)
