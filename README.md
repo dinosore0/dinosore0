@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everywhere is nowhere. When a person spends all his time in foreign travel, he ends by having many acquaintances, but no friends. 
+  The only certain freedom's in departure. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1365 days)
