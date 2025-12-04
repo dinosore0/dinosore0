@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  That the saints may enjoy their beatitude and the grace of God more abundantly they are permitted to see the punishment of the damned in hell. 
+  Everyone has been made for some particular work, and the desire for that work has been put in every heart. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1366 days)
