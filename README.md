@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The true sign of intelligence is not knowledge but imagination. 
+  Look within. Within is the fountain of good, and it will ever bubble up, if thou wilt ever dig. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1367 days)
