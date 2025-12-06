@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nature is wont to hide herself. 
+  Concerning God, freewill and destiny: Of all that earth has been or yet may be, all that vain men imagine or believe, or hope can paint or suffering may achieve, we descanted. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1368 days)
