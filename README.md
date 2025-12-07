@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I always looked really young for my age. And once I hit 23, 24 and 25, I was then allowed to play the cool 18-year-olds and stuff. 
+  Any customer can have a car painted any color that he wants so long as it is black. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1369 days)
