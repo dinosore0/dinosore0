@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
+  I have long known that it is part of God's plan for me to spend a little time with each of the most stupid people on earth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1369 days)
