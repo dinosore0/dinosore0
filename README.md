@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There comes a pause, for human strength will not endure to dance without cessation and everyone must reach the point at length of absolute prostration. 
+  Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1369 days)
