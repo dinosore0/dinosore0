@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whenever the people are well-informed, they can be trusted with their own government. 
+  The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1370 days)
