@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Even death is not to be feared by one who has lived wisely. 
+  Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1370 days)
