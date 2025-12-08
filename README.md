@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Bad times have a scientific value. These are occasions a good learner would not miss. 
+  Our character is not so much the product of race and heredity as of those circumstances by which nature forms our habits, by which we are nurtured and live. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1370 days)
