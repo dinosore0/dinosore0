@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Excuses change nothing, but make everyone feel better. 
+  Every great dream begins with a dreamer. Always remember, you have within you the strength, patience, and passion to reach for the stars and change the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1371 days)
