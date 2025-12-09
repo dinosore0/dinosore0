@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The game is won one play at a time. 
+  Life is an exciting business, and most exciting when it is lived for others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1370 days)
+## 🌟 Experiences (1371 days)
 
 ### 🧮 Programming languages
 
