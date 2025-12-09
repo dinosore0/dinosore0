@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You know, I have found a new way to get high and stay spaced out for hours on end, and the government can't stop me... It's called senility. 
+  The best preparation for good work tomorrow is to do good work today. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1371 days)
