@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The fox has many tricks. The hedgehog has but one. But that is the best of all. 
+  Yesterday is but today's memory, and tomorrow is today's dream. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1371 days)
