@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There aren't many downsides to being rich, other than paying taxes and having relatives asking for money. But being famous, that's a 24 hour job right there. 
+  A good leader takes a little more than his share of the blame, a little less than his share of the credit. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1372 days)
