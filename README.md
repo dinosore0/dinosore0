@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best way to create the future is to: Act. Learn. Build. Repeat. 
+  It is easier to find men who will volunteer to die, than to find those who are willing to endure pain with patience. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1373 days)
