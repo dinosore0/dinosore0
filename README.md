@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Have let your schooling interfere with your education. 
+  The best preparation for good work tomorrow is to do good work today. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1372 days)
+## 🌟 Experiences (1373 days)
 
 ### 🧮 Programming languages
 
