@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A great man is always willing to be little. 
+  People assume when my hair is long, that I'm a lot cooler than I actually am. I'm not opposed to this misconception. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1374 days)
