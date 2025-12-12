@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There's nothing wrong with having a tree as a friend. 
+  If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1374 days)
