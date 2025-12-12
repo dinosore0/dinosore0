@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I could explain it to the average person, I wouldn't have been worth the Nobel Prize. 
+  It is possible to commit no mistakes and still lose. That is not weakness, that is life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1374 days)
