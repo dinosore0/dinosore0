@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is one who knows the way, goes the way and shows the way. 
+  God writes the Gospel not in the Bible alone, but also on trees, and in the flowers and clouds and stars. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1374 days)
