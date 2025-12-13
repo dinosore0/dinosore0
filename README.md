@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
+  Brevity is the soul of wit. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1375 days)
