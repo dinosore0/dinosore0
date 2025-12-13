@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I forgot to shake hands and be friendly. It was an important lesson about leadership. 
+  Try not to become a man of success, but rather try to become a man of value. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1375 days)
