@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Religion is a culture of faith; science is a culture of doubt. 
+  I forgot to shake hands and be friendly. It was an important lesson about leadership. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1375 days)
