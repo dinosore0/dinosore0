@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All the world 's a stage, and all the men and women merely players. They have their exits and their entrances; And one man in his time plays many parts. 
+  In this journey you must become a lover of your enemies, so that the purity of your love may attract the hearts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1376 days)
