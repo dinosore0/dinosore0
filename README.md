@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Freedom from effort in the present merely means that there has been effort stored up in the past. 
+  Animals that we eat are raised for food in the most economical way possible, and the serious food producers do it in the most humane way possible. I think anyone who is a carnivore needs to understand that meat does not originally come in these neat little packages. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1377 days)
