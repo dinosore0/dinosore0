@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The true sign of intelligence is not knowledge but imagination. 
+  There are people in the world so hungry, that God cannot appear to them except in the form of bread. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1376 days)
+## 🌟 Experiences (1377 days)
 
 ### 🧮 Programming languages
 
