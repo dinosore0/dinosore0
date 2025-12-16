@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Earth laughs in flowers. 
+  Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1378 days)
