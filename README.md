@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering. 
+  Be kind whenever possible. It is always possible. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1378 days)
