@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The wise are wise only because they love. The fool are fools only because they think they can understand love. 
+  Sometimes I think we're alone in the universe, and sometimes I think we're not. In either case the idea is quite staggering. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1378 days)
