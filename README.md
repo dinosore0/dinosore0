@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If there is anything I've learned from Linux, it's that projects have a life of their own, and you should not try to enforce your vision too strongly on them. 
+  One is loved because one is loved. No reason is needed for loving. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1379 days)
