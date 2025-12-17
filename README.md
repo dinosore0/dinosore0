@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men always talk about the most important things to perfect strangers. In the perfect stranger we perceive man himself; the image of a God is not disguised by resemblances to an uncle or doubts of wisdom of a mustache. 
+  Make everything as simple as possible, but not simpler. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1379 days)
