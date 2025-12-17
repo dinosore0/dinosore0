@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have a great respect for incremental improvement, and I've done that sort of thing in my life, but I've always been attracted to the more revolutionary changes. I don't know why. Because they're harder. They're much more stressful emotionally. And you usually go through a period where everybody tells you that you've completely failed. 
+  Success is never final, failure is never fatal. It's courage that counts. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1379 days)
