@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you think of yourselves as helpless and ineffectual, it is certain that you will create a despotic government to be your master. The wise despot, therefore, maintains among his subjects a popular sense that they are helpless and ineffectual. 
+  I have no other view than to promote the public good, and am unambitious of honors not founded in the approbation of my Country. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1380 days)
