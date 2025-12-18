@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're doing something you love, an hour feels like 5 minutes.  If you are doing something that doesn't resonate with your spirit, 5 minutes feels like an hour. 
+  The smallest act of kindness is worth more than the grandest intention. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1380 days)
