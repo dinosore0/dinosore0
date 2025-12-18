@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My theory has always been, that if we are to dream, the flatteries of hope are as cheap, and pleasanter, than the gloom of despair. 
+  God is not on the side of the big battalions, but on the side of those who shoot best. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1380 days)
