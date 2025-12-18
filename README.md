@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
+  Cherish your visions and your dreams as they are the children of your soul, the blueprints of your ultimate achievements. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1380 days)
