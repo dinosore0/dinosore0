@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. 
+  Slang is a language that rolls up its sleeves, spits on its hands and goes to work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1381 days)
