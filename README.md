@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A pair of powerful spectacles has sometimes sufficed to cure a person in love. 
+  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1381 days)
