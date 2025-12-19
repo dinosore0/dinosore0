@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Consider the spatial concepts of here and there. Nobody supposes that these mark a distinction in objective space; nobody supposes that some areas of space have hereness and the others have thereness. The fact that for each of us, at any time, some areas of space are here and the others are there is merely a consequence of the fact that each of us has a location in space, by virtue of having bodies. Here is simply where I am. For bodiless angels there’s no here and no there.<br>Perhaps past, present, and future are like that. Just as each of us has a location in space, by virtue of each having a body and those bodies having a location, so also each of our actions and responses has a location in time—that is, in the B-series. Perhaps the present is simply the location in time of my act of writing down these words, and of whatever else is simultaneous with that. The past would then be whatever precedes that, and the future whatever succeeds it. It’s only because there are selves having bodies with spatial locations that the concepts of here and there have applicability; perhaps it’s only because there are agents whose actions and reactions have locations in the B-series that the concepts of past, present, and future have applicability. 
+  Nothing good ever comes of violence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1381 days)
