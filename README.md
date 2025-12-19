@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. 
+  He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1381 days)
