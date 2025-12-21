@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are disturbed not by things, but by the view which they take of them. 
+  Obviously one must hold oneself responsible for the evil impulses of one's dreams. In what other way can one deal with them? Unless the content of the dream rightly understood is inspired by alien spirits, it is part of my own being. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1383 days)
