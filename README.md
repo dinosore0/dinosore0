@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
+  Courageous people do not fear forgiving, for the sake of peace. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1383 days)
