@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The age of a woman doesn't mean a thing. The best tunes are played on the oldest fiddles. 
+  The secret of my success is a two word answer: Know people. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1383 days)
