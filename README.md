@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let everyone try and find that as a result of daily prayer he adds something new to his life, something with which nothing can be compared. 
+  Before you embark on a journey of revenge, dig two graves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1384 days)
