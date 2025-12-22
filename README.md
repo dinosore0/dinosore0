@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Behold the child, by Nature's kindly law pleased with a rattle, tickled with a straw. 
+  I had rather have a fool to make me merry than experience to make me sad and to travel for it too! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1384 days)
