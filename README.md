@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  After climbing a great hill, one only finds that there are many more hills to climb. 
+  There is always some madness in love. But there is also always some reason in madness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1384 days)
+## 🌟 Experiences (1385 days)
 
 ### 🧮 Programming languages
 
