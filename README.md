@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
+  The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1385 days)
