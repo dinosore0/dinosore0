@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know of only one duty, and that is to love. 
+  Don't walk behind me; I may not lead. Don't walk in front of me; I may not follow. Just walk beside me and be my friend. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1385 days)
