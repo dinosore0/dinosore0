@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs. 
+  Home is behind, the world ahead,<br>and there are many paths to tread<br>through shadows to the edge of night,<br>until the stars are all alight. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1385 days)
