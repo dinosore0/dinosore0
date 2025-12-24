@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work. 
+  Men must live and create. Live to the point of tears. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1386 days)
