@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm happy to report that 'The New Press' is still in business to this day. But not thanks to me. I was a really bad publishing intern. 
+  Cowards die many times before their deaths; the valiant never taste of death but once. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1387 days)
