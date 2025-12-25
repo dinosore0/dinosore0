@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The word 'happiness' would lose its meaning if it were not balanced by sadness. 
+  Doing well is the result of doing good. That's what capitalism is all about. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1387 days)
