@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Natural ability without education has more often attained to glory and virtue than education without natural ability. 
+  How bitter a thing it is to look into happiness through another man's eyes! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1387 days)
