@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As regards the individual nature, woman is defective and misbegotten, for the active power of the male seed tends to the production of a perfect likeness in the masculine sex while the production of a woman comes from defect in the active power. 
+  Fiction reveals truth that reality obscures. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1388 days)
