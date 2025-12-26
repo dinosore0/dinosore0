@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Very often design is the most immediate way of defining what products become in people's minds. 
+  America is the most grandiose experiment the world has seen, but, I am afraid, it is not going to be a success. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1388 days)
