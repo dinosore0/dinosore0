@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want me to do things only for ROI reasons, you should get out of this stock. 
+  Sometimes when you innovate, you make mistakes. It is best to admit them quickly, and get on with improving your other innovations. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1388 days)
