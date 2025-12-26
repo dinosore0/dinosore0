@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I cannot be awake, for nothing looks to me as it did before, Or else I am awake, for the first time, and all before has been a mean sleep. 
+  “You only live once, but if you do it right, once is enough.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1388 days)
