@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  America is the most grandiose experiment the world has seen, but, I am afraid, it is not going to be a success. 
+  I cannot be awake, for nothing looks to me as it did before, Or else I am awake, for the first time, and all before has been a mean sleep. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1388 days)
