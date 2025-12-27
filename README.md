@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever you want to do in this world, it is achievable. The most important thing that I've found, that perhaps you could use, is be passionate and enthusiastic in the direction that you choose in life, and you'll be a winner. 
+  My mom and I have always been really close. She's always been the friend that was always there. There were times when, in middle school and junior high, I didn't have a lot of friends. But my mom was always my friend. Always. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1389 days)
