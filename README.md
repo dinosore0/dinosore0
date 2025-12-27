@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Wherever you go, whatever you do, be in love. 
+  Freedom from effort in the present merely means that there has been effort stored up in the past. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1388 days)
+## 🌟 Experiences (1389 days)
 
 ### 🧮 Programming languages
 
