@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Often when you think you’re at the end of something, you’re at the beginning of something else. 
+  The happiness of one's own heart alone cannot satisfy the soul one must try to include, as necessary to one's own happiness, the happiness of others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1390 days)
