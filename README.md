@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Time heals griefs and quarrels, for we change and are no longer the same persons. Neither the offender nor the offended are any more themselves. 
+  If you're not confused, I don't think you understand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1390 days)
+## 🌟 Experiences (1391 days)
 
 ### 🧮 Programming languages
 
