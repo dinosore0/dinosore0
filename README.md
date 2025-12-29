@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People love chopping wood. In this activity one immediately sees results. 
+  Courage is the greatest of all virtues, because if you haven't courage, you may not have an opportunity to use any of the others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1391 days)
