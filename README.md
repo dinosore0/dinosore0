@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would rather live my life as if there is a God and die to find out there isn't, than live my life as if there isn't and die to find out there is. 
+  The secret of success is learning how to use pain and pleasure instead of having pain and pleasure use you. If you do that, you're in control of your life. If you don't, life controls you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1392 days)
