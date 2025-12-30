@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you never want to be criticized, for goodness' sake don't do anything new. 
+  There are many people who feel that it is useless and futile to continue talking about peace and non-violence against a government whose only reply is savage attacks on an unarmed and defenceless people. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1392 days)
