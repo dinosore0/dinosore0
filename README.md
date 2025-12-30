@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  This console here was the best part of my life. And I spent almost 10 years at this console. It is my life, it will always be my life. And I will never leave it behind. 
+  I remember straightening my hair because I wanted to be like everybody else, and now the fact that anybody would emulate what I do? It's just funny. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1392 days)
