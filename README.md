@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I said to my soul, be still, and wait without hope, For hope would be hope for the wrong thing. 
+  It's better to be unhappy alone than unhappy with someone - so far. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1393 days)
