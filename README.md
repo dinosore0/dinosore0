@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. 
+  Don't manage - lead change before you have to. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1393 days)
