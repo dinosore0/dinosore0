@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The faults of a superior person are like the sun and moon. They have their faults, and everyone sees them they change and everyone looks up to them. 
+  It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1395 days)
