@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I went to work in a factory the first thing I'd do is join a union. 
+  The sea speaks a language polite people never repeat. It is a colossal scavenger slang and has no respect. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1396 days)
