@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Get the facts first. You can distort them later. 
+  A business absolutely devoted to service will have only one worry about profits. They will be embarrassingly large. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1397 days)
