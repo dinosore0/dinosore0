@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One of the secrets of life is that all that is really worth the doing is what we do for others. 
+  The sound of a kiss is not so loud as that of a cannon, but its echo lasts a great deal longer. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1397 days)
