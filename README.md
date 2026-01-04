@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Choose a job you love, and you will never have to work a day in your life. 
+  I fundamentally believe that if you are not learning new things, you stop doing great and useful things. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1397 days)
