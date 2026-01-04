@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is always some madness in love. But there is also always some reason in madness. 
+  The fool doth think he is wise, but the wise man knows himself to be a fool. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1397 days)
