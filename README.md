@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Depth of friendship does not depend on length of acquaintance. 
+  Climate change is a terrible problem, and it absolutely needs to be solved. It deserves to be a huge priority. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1397 days)
