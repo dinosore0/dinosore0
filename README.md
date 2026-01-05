@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The sound of a kiss is not so loud as that of a cannon, but its echo lasts a great deal longer. 
+  Aim for the sky, but move slowly, enjoying every step along the way. It is all those little steps that make the journey complete. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1398 days)
