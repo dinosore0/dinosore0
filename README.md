@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When one has the feeling of dislike for evil, when one feels tranquil, one finds pleasure in listening to good teachings when one has these feelings and appreciates them, one is free of fear. 
+  It is the strange fate of man, that even in the greatest of evils the fear of the worst continues to haunt him. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1398 days)
