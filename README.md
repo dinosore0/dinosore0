@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No one ever told me that grief felt so like fear. 
+  I would rather live my life as if there is a God and die to find out there isn't, than live my life as if there isn't and die to find out there is. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1398 days)
+## 🌟 Experiences (1399 days)
 
 ### 🧮 Programming languages
 
