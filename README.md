@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't study comedy; it's within you. It's a personality. My humor is an attitude. 
+  Do you want to spend the rest of your life selling sugared water or do you want a chance to change the world? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1399 days)
