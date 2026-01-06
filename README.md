@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I quote others only in order to better express myself. 
+  When I hear music, I fear no danger. I am invulnerable. I see no foe. I am related to the earliest times, and to the latest. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1399 days)
