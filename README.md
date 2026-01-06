@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you live a life of make-believe, your life isn't worth anything until you do something that does challenge your reality. And to me, sailing the open ocean is a real challenge, because it's life or death. 
+  The best artist has that thought alone Which is contained within the marble shell The sculptor's hand can only break the spell To free the figures slumbering in the stone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1399 days)
