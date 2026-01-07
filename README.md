@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The boundaries which divide Life from Death are at best shadowy and vague. Who shall say where the one ends, and where the other begins? 
+  The art of writing is the art of discovering what you believe. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1400 days)
