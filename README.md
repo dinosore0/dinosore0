@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A dog is the only thing on earth that loves you more than you love yourself. 
+  “If we find ourselves with a desire that nothing in this world can satisfy, the most probable explanation is…we were made for another world.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1400 days)
