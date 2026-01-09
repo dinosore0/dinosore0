@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My great concern is not whether you have failed, but whether you are content with your failure. 
+  There are trivial truths and the great truths. The opposite of a trivial truth is plainly false. The opposite of a great truth is also true. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1402 days)
