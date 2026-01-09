@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Doubt that the sun doth move, doubt truth to be a liar, but never doubt I love. 
+  If our soldiers are not overburdened with money, it is not because they have a distaste for riches if their lives are not unduly long, it is not because they are disinclined to longevity. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1402 days)
