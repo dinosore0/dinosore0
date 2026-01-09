@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
+  Life is a tragedy when seen in close-up, but a comedy in long-shot. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1402 days)
