@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day. 
+  “Nothing is more fruitful for man than the knowledge of his own shortcomings.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1403 days)
