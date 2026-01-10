@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
+  Success is often achieved by those who don't know that failure is inevitable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1403 days)
