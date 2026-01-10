@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The hate of men will pass, and dictators die, and the power they took from the people will return to the people. And so long as men die, liberty will never perish. 
+  A great man is always willing to be little. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1403 days)
