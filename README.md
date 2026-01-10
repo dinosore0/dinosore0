@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only those who will risk going too far can possibly find out how far one can go. 
+  The momentous thing in human life is the art of winning the soul to good or evil. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1402 days)
+## 🌟 Experiences (1403 days)
 
 ### 🧮 Programming languages
 
