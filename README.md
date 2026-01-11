@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Money has never made man happy, nor will it, there is nothing in its nature to produce happiness. The more of it one has the more one wants. 
+  God gives the nuts, but he does not crack them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1404 days)
