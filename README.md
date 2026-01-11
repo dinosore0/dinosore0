@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It always seems impossible until it is done. 
+  If you suffer, thank God! It is a sure sign that you are alive. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1403 days)
+## 🌟 Experiences (1404 days)
 
 ### 🧮 Programming languages
 
