@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. 
+  Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1404 days)
