@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not say, 'It is morning,' and dismiss it with a name of yesterday. See it for the first time as a newborn child that has no name. 
+  If a business does well, the stock eventually follows. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1405 days)
