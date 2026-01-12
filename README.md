@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  But time growing old teaches all things. 
+  You don’t have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1405 days)
