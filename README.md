@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What we do in life, echoes in eternity. 
+  Yesterday is but today's memory, and tomorrow is today's dream. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1405 days)
