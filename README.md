@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Art is parasitic on life, just as criticism is parasitic on art. 
+  Those who want to reap the benefits of this great nation must bear the fatigue of supporting it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1406 days)
