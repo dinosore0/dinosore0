@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Chains of habit are too light to be felt until they are too heavy to be broken. 
+  Behold the child, by Nature's kindly law pleased with a rattle, tickled with a straw. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1406 days)
