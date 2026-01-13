@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those who want to reap the benefits of this great nation must bear the fatigue of supporting it. 
+  An excellent man; he has no enemies and none of his friends like him. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1406 days)
