@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's a very strange thing, love. You can't get rid of it. If you try to give it out, you get more back. If you try to hang onto it, you lose it. 
+  If a business does well, the stock eventually follows. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1407 days)
