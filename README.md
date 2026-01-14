@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
+  Study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1407 days)
