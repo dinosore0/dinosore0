@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Perfect happiness is a beautiful sunset, the giggle of a grandchild, the first snowfall. It’s the little things that make happy moments, not the grand events. Joy comes in sips, not gulps. 
+  Fable is more historical than fact, because fact tells us about one man and fable tells us about a million men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1408 days)
