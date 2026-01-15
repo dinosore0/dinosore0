@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
+  No change of circumstances can repair a defect of character. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1408 days)
