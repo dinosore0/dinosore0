@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing. 
+  One must not be afraid of new ideas, no matter the source.  And we must never fear the truth, even when it pains us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1408 days)
