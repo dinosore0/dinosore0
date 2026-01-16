@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Right now it's only a notion, but I think I can get the money to make it into a concept, and later turn it into an idea. 
+  If you can look into the seeds of time, and say which grain will grow and which will not, speak then unto me. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1409 days)
