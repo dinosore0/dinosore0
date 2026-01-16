@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To travel is to discover that everyone is wrong about other countries. 
+  One cool judgment is worth a thousand hasty counsels. The thing to do is to supply light and not heat. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1409 days)
