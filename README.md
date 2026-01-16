@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are what we repeatedly do. Excellence, then, is not an act, but a habit. 
+  If you don't know how great this country is, I know someone who does; Russia. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1409 days)
