@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One cool judgment is worth a thousand hasty counsels. The thing to do is to supply light and not heat. 
+  Success is walking from failure to failure with no loss of enthusiasm. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1409 days)
