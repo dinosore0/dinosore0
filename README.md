@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge is a treasure, but practice is the key to it. 
+  Any fool can tell the truth, but it requires a man of some sense to know how to lie well. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1409 days)
