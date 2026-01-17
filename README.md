@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm a heroine addict. I need to have sex with women who have saved someone's life. 
+  Surplus wealth is a sacred trust which its possessor is bound to administer in his lifetime for the good of the community. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1410 days)
