@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beginning of knowledge is the discovery of something we do not understand. 
+  Thou wilt find rest from vain fancies if thou doest every act in life as though it were thy last. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1410 days)
