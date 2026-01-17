@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Attitude is a little thing that makes a big difference. 
+  Imagination is the beginning of creation. You imagine what you desire, you will what you imagine and at last you create what you will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1410 days)
