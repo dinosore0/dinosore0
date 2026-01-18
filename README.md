@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Hell isn't merely paved with good intentions it's walled and roofed with them. Yes, and furnished too. 
+  As long as you know men are like children, you know everything! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1411 days)
