@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Woman is fine for her own satisfaction alone. No man will admire her the more, no woman will like her the better for it. Neatness and fashion are enough for the former, and a something of shabbiness or impropriety will be most endearing to the latter. 
+  It is not doing the thing we like to do, but liking the thing we have to do, that makes life blessed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1411 days)
