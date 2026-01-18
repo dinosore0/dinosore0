@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People disparage knowing and the intellectual life, and urge doing. I am content with knowing, if only I could know. 
+  It is an infantile superstition of the human spirit that virginity would be thought a virtue and not the barrier that separates ignorance from knowledge. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1411 days)
