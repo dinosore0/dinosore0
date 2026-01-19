@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality. 
+  Clever and attractive women do not want to vote they are willing to let men govern as long as they govern men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1412 days)
