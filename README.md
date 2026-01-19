@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me and I forget; teach me and I may remember; involve me and I learn. 
+  Be not the slave of your moods, but their master. But if you are so angry, so depressed and so sore that your spirit cannot find deliverance and peace even in prayer, then quickly go and give some pleasure to someone lowly or sorrowful, or to a guilty or innocent sufferer! Sacrifice yourself, your talent, your time, your rest to another, to one who has to bear a heavier load than you -- and your unhappy mood will dissolve into a blessed, contented submission to God. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1412 days)
