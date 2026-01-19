@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are two ways to think about what money buys. There's the standard of living, which can be measured in dollars, and there's the quality of your life, which can't be measured at all. 
+  Love all, trust a few, do wrong to none. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1412 days)
