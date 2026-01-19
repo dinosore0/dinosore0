@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Love all, trust a few, do wrong to none. 
+  The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1412 days)
