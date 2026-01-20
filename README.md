@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Protecting the rights of even the least individual among us is basically the only excuse the government has for even existing. 
+  The mind is not a vessel to be filled but a fire to be kindled. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1413 days)
