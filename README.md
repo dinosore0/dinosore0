@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am not a vegetarian because I love animals; I am a vegetarian because I hate plants. 
+  So I've seen life as one long learning process. And if I see - you know, if I fly on somebody else's airline and find the experience is not a pleasant one, which it wasn't in - 21 years ago, then I'd think, well, you know, maybe I can create the kind of airline that I'd like to fly on. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1413 days)
