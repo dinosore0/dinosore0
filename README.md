@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I was young, I observed that nine out of ten things I did were failures. So I did ten times more work. 
+  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1414 days)
