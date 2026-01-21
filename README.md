@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I want to be thoroughly used up when I die, for the harder I work the more I live. I rejoice in life for its own sake. 
+  I will speak daggers to her, but use none. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1414 days)
