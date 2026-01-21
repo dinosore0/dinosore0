@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every day we should hear at least one little song, read one good poem, see one exquisite picture, and, if possible, speak a few sensible words. 
+  When I was young, I observed that nine out of ten things I did were failures. So I did ten times more work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1414 days)
