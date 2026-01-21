@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People are not judging YOU, they are telling you who THEY are. 
+  Maturity: Be able to stick with a job until it is finished. Be able to bear an injustice without having to get even. Be able to carry money without spending it. Do your duty without being supervised. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1414 days)
