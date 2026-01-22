@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you never want to be criticized, for goodness' sake don't do anything new. 
+  Love is like war: easy to begin but very hard to stop. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1414 days)
+## 🌟 Experiences (1415 days)
 
 ### 🧮 Programming languages
 
