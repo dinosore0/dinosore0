@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So I've seen life as one long learning process. And if I see - you know, if I fly on somebody else's airline and find the experience is not a pleasant one, which it wasn't in - 21 years ago, then I'd think, well, you know, maybe I can create the kind of airline that I'd like to fly on. 
+  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1415 days)
