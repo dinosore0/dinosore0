@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let your soul stand cool and composed before a million universes. 
+  It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1417 days)
