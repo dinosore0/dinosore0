@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Time travel used to be thought of as just science fiction, but Einstein's general theory of relativity allows for the possibility that we could warp space-time so much that you could go off in a rocket and return before you set out. 
+  There is nothing either good or bad, but thinking makes it so. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1417 days)
