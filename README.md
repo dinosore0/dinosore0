@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All our dreams can come true, if we have the courage to pursue them. 
+  It is not enough to know your craft - you have to have feeling. Science is all very well, but for us imagination is worth far more. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1417 days)
