@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Courage is the first of human qualities because it is the quality which guarantees the others. 
+  Computer science is no more about computers than astronomy is about telescopes. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1418 days)
