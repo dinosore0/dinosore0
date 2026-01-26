@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Management is nothing more than motivating other people. 
+  Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1419 days)
