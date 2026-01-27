@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one day the speed kills me, do not cry because I was smiling. 
+  Many iOS developers model App Store pricing after mass-market superhits. Would you enter the restaurant business by mimicking McDonalds? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1420 days)
