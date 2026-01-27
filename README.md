@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The key to immortality is first living a life worth remembering. 
+  A person without a sense of humor is like a wagon without springs. It's jolted by every pebble on the road. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1420 days)
