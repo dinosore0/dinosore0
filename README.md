@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  fantasize, at least two projects 
+  Some people walk in the rain, others just get wet. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1421 days)
+## 🌟 Experiences (1422 days)
 
 ### 🧮 Programming languages
 
