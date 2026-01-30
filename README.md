@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only those who will risk going too far can possibly find out how far one can go. 
+  A drunkard would not give money to sober people. He said they would only eat it, and buy clothes and send their children to school with it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1423 days)
