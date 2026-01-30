@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The physical world, including our bodies, is a response of the observer. We create our bodies as we create the experience of our world. 
+  On a level plain, simple mounds look like hills and the insipid flatness of our present bourgeoisie is to be measured by the altitude of its great intellects. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1423 days)
