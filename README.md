@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The man who makes no mistakes does not usually make anything. 
+  The hate of men will pass, and dictators die, and the power they took from the people will return to the people. And so long as men die, liberty will never perish. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1424 days)
