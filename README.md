@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Earth teach me to forget myself as melted snow forgets its life. Earth teach me resignation as the leaves which die in the fall. Earth teach me courage as the tree which stands all alone. Earth teach me regeneration as the seed which rises in the spring. 
+  The conscious mind may be compared to a fountain playing in the sun and falling back into the great subterranean pool of subconscious from which it rises. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1424 days)
