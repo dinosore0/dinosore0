@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good education is not what fills your head with facts but what stimulates curiosity. You then learn for the rest of your life. 
+  It is easier to find men who will volunteer to die, than to find those who are willing to endure pain with patience. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1424 days)
