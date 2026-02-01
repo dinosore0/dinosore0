@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Everyone went donuts over them 
+  Perhaps this realization ought to prompt us to reconsider the alternative that God is simply timeless without creation and temporal subsequent to creation. Detractors of this position simply assume that if God’s life lacks earlier and later parts, then it has no phases. But why could there not be two phases of God’s life, one timeless and one temporal, which are not related to each other as earlier and later? Critics have perhaps too quickly assumed that if any phase of God’s life is timeless, the whole must be timeless. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1425 days)
