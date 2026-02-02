@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Elections are won by men and women chiefly because most people vote against somebody rather than for somebody. 
+  Men always want to be a woman's first love - women like to be a man's last romance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1426 days)
