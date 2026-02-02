@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men always want to be a woman's first love - women like to be a man's last romance. 
+  Do not look down upon any Muslim, for even the most inferior believer is great in the eyes of God. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1426 days)
