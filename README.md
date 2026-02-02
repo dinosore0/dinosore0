@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I get 0.5 seconds to react to a ball, sometimes even less than that. I can't be thinking of what XYZ has said about me. I need to surrender myself to my natural instincts. My subconscious mind knows exactly what to do. It is trained to react. At home, my family doesn't discuss media coverage. 
+  He who has overcome his fears will truly be free. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1426 days)
