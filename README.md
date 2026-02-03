@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Virtue is persecuted more by the wicked than it is loved by the good. 
+  Pretty much at all times music motivates me. How can I say this without sounding in any way proud of myself? Obviously I've always written songs that are critical of our government, and talk about our times. Hopefully you attempt to be timeless while doing it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1427 days)
