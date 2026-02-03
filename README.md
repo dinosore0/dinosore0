@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A play should give you something to think about. When I see a play and understand it the first time, then I know it can't be much good. 
+  If mama ain't happy, ain't nobody happy. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1427 days)
