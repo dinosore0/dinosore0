@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords. 
+  Natural ability without education has more often raised a man to glory and virtue than education without natural ability. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1428 days)
