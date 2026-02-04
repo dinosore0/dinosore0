@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If I miss one day of practice, I notice it. If I miss two days, the critics notice it. If I miss three days, the audience notices it. 
+  All significant truths are private truths. As they become public they cease to become truths they become facts, or at best, part of the public character or at worst, catchwords. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1428 days)
