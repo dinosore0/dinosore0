@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No b-----d ever won a war by dying for his country. He won it by making the other poor dumb b-----d die for his country. 
+  If you try and take a cat apart to see how it works, the first thing you have on your hands is a non-working cat. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1428 days)
