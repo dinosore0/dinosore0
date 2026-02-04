@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All gods are homemade, and it is we who pull their strings, and so, give them the power to pull ours. 
+  Hell isn't merely paved with good intentions it's walled and roofed with them. Yes, and furnished too. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1428 days)
