@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  So long as the memory of certain beloved friends lives in my heart, I shall say that life is good. 
+  It is absurd to divide people into good and bad. People are either charming or tedious. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1429 days)
