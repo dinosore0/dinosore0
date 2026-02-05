@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. 
+  The first sign of faith is love. The message of the holy, divine Manifestations is love; the phenomena of creation are based upon love; the radiance of the world is due to love; the well-being and happiness of the world depend upon it. Therefore, I admonish you that you must strive throughout the human world to diffuse the light of love... 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1429 days)
