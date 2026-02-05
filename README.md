@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Memories are the key not to the past, but to the future. 
+  True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1429 days)
