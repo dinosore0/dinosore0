@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How far that little candle throws his beams!<br>So shines a good deed in a naughty world. 
+  Great is truth, but still greater, from a practical point of view, is silence about truth. By simply not mentioning certain subjects... totalitarian propagandists have influenced opinion much more effectively than they could have by the most eloquent denunciations. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1429 days)
