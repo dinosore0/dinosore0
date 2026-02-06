@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What you do not want done to yourself, do not do to others. 
+  If the service is free, the product being sold is you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1429 days)
+## 🌟 Experiences (1430 days)
 
 ### 🧮 Programming languages
 
