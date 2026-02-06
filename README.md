@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I'm convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure perseverance. 
+  The death of a beautiful woman, is unquestionably the most poetical topic in the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1430 days)
