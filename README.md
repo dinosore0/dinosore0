@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The generality of men are naturally apt to be swayed by fear rather than reverence, and to refrain from evil rather because of the punishment that it brings than because of its own foulness. 
+  Failure seldom stops you. What stops you is the fear of failure. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1432 days)
