@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you tell people where to go, but not how to get there, you'll be amazed at the results. 
+  Thou wilt find rest from vain fancies if thou doest every act in life as though it were thy last. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1432 days)
+## 🌟 Experiences (1433 days)
 
 ### 🧮 Programming languages
 
