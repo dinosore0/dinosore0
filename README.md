@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Expectations are a form of first-class truth: If people believe it, it's true. 
+  It is the ultimate luxury to combine passion and contribution.  It's also a very clear path to happiness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1434 days)
