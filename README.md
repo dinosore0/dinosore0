@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One touch of nature makes the whole world kin. 
+  I never attempt to make money on the stock market. I buy on the assumption that they could close the market the next day and not reopen it for five years. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1434 days)
