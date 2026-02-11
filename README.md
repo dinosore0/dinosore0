@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Ladies, if you want to know the way to my heart... good spelling and good grammar, good punctuation, capitalize only where you are supposed to capitalize, it's done. 
+  Keep close to Nature's heart... and break clear away, once in awhile, and climb a mountain or spend a week in the woods. Wash your spirit clean. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1434 days)
+## 🌟 Experiences (1435 days)
 
 ### 🧮 Programming languages
 
