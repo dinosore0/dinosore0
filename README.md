@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What would life be if we had no courage to attempt anything? 
+  A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1435 days)
