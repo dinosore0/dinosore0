@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference. 
+  The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1435 days)
