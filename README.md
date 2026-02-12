@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  But who prays for Satan? Who in eighteen centuries, has had the common humanity to pray for the one sinner that needed it most. 
+  A skilful leech is better far, than half a hundred men of war. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1436 days)
