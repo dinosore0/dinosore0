@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A skilful leech is better far, than half a hundred men of war. 
+  Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1436 days)
