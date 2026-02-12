@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't cry because it's over. Smile because it happened. 
+  It is utterly false and cruelly arbitrary to put all the play and learning into childhood, all the work into middle age, and all the regrets into old age. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1436 days)
