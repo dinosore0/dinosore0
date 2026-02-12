@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives. 
+  Never let your schooling interfere with your education. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1435 days)
+## 🌟 Experiences (1436 days)
 
 ### 🧮 Programming languages
 
