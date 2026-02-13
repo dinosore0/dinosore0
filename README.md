@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No man should marry until he has studied anatomy and dissected at least one woman. 
+  You can't connect the dots looking forward; you can only connect them looking backward 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1437 days)
