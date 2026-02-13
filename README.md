@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Anyone with a new idea is a crank... until the idea succeeds. 
+  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1437 days)
