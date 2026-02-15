@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It's a very strange thing, love. You can't get rid of it. If you try to give it out, you get more back. If you try to hang onto it, you lose it. 
+  We'll try to cooperate fully with the IRS, because, as citizens, we feel a strong patriotic duty not to go to jail. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1439 days)
