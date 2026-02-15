@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The greatest fear that I have regarding the outcome for America of these disclosures is that nothing will change. 
+  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1438 days)
+## 🌟 Experiences (1439 days)
 
 ### 🧮 Programming languages
 
