@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Was this the face that launched a thousand ships, and burnt the topless towers of Ileum? 
+  A play should give you something to think about. When I see a play and understand it the first time, then I know it can't be much good. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1439 days)
