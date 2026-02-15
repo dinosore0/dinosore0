@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Begin - to begin is half the work, let half still remain; again begin this, and thou wilt have finished. 
+  My theory has always been, that if we are to dream, the flatteries of hope are as cheap, and pleasanter, than the gloom of despair. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1439 days)
