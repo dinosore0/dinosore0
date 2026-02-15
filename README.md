@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not look down upon any Muslim, for even the most inferior believer is great in the eyes of God. 
+  Rich gifts wax poor when givers prove unkind. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1439 days)
