@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Friendship is the marriage of the soul, and this marriage is liable to divorce. 
+  It is better to keep your mouth shut and appear stupid than to open it and remove all doubt. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1440 days)
