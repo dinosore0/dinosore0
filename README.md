@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it. 
+  Our greatest glory is not in never failing, but in raising up every time we fail. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1441 days)
