@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Silence alone is worthy to be heard. 
+  Run when you can, walk if you have to, crawl if you must; just never give up. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1440 days)
+## 🌟 Experiences (1441 days)
 
 ### 🧮 Programming languages
 
