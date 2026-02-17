@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As we advance in life it becomes more and more difficult, but in fighting the difficulties the inmost strength of the heart is developed. 
+  I don't believe in the after life, although I am bringing a change of underwear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1441 days)
