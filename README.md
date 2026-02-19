@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people are about as happy as they make up their minds to be. 
+  You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1443 days)
