@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Brave words. I've heard them before, from thousands of species across thousands of worlds, since long before you were created. But, now they are all Borg. 
+  Music is the mediator between the spiritual and the sensual life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1444 days)
