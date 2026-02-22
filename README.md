@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Less, but better. 
+  To know oneself is to study oneself in action with another person. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1445 days)
+## 🌟 Experiences (1446 days)
 
 ### 🧮 Programming languages
 
