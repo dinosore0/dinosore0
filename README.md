@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A little knowledge is a dangerous thing, but a little want of knowledge is also a dangerous thing. 
+  What we have once enjoyed we can never lose. All that we love deeply becomes a part of us. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1447 days)
