@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't apply the rules of a club to people who are not members of that club. 
+  Blow, blow, thou winter wind! Thou art not so unkind as man's ingratitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1447 days)
