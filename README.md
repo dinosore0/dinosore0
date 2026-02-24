@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing is impossible. 
+  “And now that you don’t have to be perfect, you can be good.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1447 days)
+## 🌟 Experiences (1448 days)
 
 ### 🧮 Programming languages
 
