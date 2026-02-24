@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I never attempt to make money on the stock market. I buy on the assumption that they could close the market the next day and not reopen it for five years. 
+  Life is not perfect. It never will be. You just have to make the very best of it.  And you have to open your heart to what the world can show you. And sometimes it's terrifying. And sometimes it's incredibly beautiful. And I'll take both, thanks. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1448 days)
