@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God is not on the side of the big battalions, but on the side of those who shoot best. 
+  Communism, like any other revealed religion, is largely made up of prophecies. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1449 days)
+## 🌟 Experiences (1450 days)
 
 ### 🧮 Programming languages
 
