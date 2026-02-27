@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Time is never wasted, when you’re wasted all the time. 
+  Great men are they who see that spiritual is stronger than any material force - that thoughts rule the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1451 days)
