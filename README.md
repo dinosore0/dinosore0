@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  From the moment I picked your book up until I laid it down I was convulsed with laughter. Someday I intend reading it. 
+  It's only after we've lost everything that we're free to do anything. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1452 days)
