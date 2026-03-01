@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I constantly look up words and meanings in search of the perfect variable, method, and class names. 
+  Some mischievous people always there. Last several thousand years, always there. In future, also. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1453 days)
