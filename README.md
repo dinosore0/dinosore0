@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Imperfection is beauty, madness is genius and it's better to be absolutely ridiculous than absolutely boring. 
+  Everyone thinks of changing the world, but no one thinks of changing himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1454 days)
