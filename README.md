@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you do not change direction, you may end up where you are heading. 
+  People haven't always been there for me, but music always has. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1454 days)
+## 🌟 Experiences (1455 days)
 
 ### 🧮 Programming languages
 
