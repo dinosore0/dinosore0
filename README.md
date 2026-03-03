@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
+  Blow, blow, thou winter wind! Thou art not so unkind as man's ingratitude. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1455 days)
