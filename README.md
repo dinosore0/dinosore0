@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Blow, blow, thou winter wind! Thou art not so unkind as man's ingratitude. 
+  The beauty of independence, departure, actions that rely on themselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1455 days)
