@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Take a chance! All life is a chance. The man who goes farthest is generally the one who is willing to do and dare. 
+  God is a thought who makes crooked all that is straight. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1456 days)
