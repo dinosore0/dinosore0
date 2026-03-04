@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing in the world is more dangerous than sincere ignorance and conscientious stupidity. 
+  The very word 'secrecy' is repugnant in a free and open society and we are as a people inherently and historically opposed to secret societies, to secret oaths, and to secret proceedings. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1456 days)
