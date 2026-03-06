@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the old world, you devoted 30% of your time to building a great service and 70% of your time to shouting about it. In the new world, that inverts. 
+  Take a chance! All life is a chance. The man who goes farthest is generally the one who is willing to do and dare. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1458 days)
