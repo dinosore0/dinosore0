@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All men's miseries derive from not being able to sit in a quiet room alone. 
+  Children begin by loving their parents; after a time they judge them; rarely, if ever, do they forgive them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1459 days)
