@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are made wise not by the recollection of our past, but by the responsibility for our future. 
+  People grow through experience if they meet life honestly and courageously. This is how character is built. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1459 days)
