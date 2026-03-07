@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Two possibilities exist: Either we are alone in the Universe or we are not. Both are equally terrifying. 
+  The death of a beautiful woman, is unquestionably the most poetical topic in the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1459 days)
