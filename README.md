@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Not just in commerce but in the world of ideas too our age is putting on a veritable clearance sale. Everything can be had so dirt cheap that one begins to wonder whether in the end anyone will want to make a bid. 
+  I like this place and willingly could waste my time in it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1459 days)
