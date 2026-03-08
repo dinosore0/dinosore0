@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I don't pity any man who does hard work worth doing. I admire him. I pity the creature who does not work, at whichever end of the social scale he may regard himself as being. 
+  The law will never make a man free; it is men who have got to make the law free. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1460 days)
