@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The law will never make a man free; it is men who have got to make the law free. 
+  All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1460 days)
