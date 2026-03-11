@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is not about how fast you run or how high you climb but how well you bounce. 
+  The glow of one warm thought is to me worth more than money. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1462 days)
+## 🌟 Experiences (1463 days)
 
 ### 🧮 Programming languages
 
