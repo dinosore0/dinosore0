@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Americans play to win at all times. I wouldn't give a hoot and hell for a man who lost and laughed. That's why Americans have never lost nor ever lose a war. 
+  Attitude is a little thing that makes a big difference. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1464 days)
