@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The wicked leader is he who the people despise. The good leader is he who the people revere. The great leader is he who the people say, 'We did it ourselves.' 
+  Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1465 days)
