@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who steals a little steals with the same wish as he who steals much, but with less power. 
+  The wicked leader is he who the people despise. The good leader is he who the people revere. The great leader is he who the people say, 'We did it ourselves.' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1465 days)
