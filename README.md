@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Even if you are on the right track, you’ll get run over if you just sit there. 
+  To gather with God's people in united adoration of the Father is as necessary to the Christian life as prayer. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1465 days)
