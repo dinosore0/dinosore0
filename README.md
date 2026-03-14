@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best scientist is open to experience and begins with romance - the idea that anything is possible. 
+  Man needs his difficulties because they are necessary to enjoy success. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1466 days)
