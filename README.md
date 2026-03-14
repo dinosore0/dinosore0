@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Even if you are on the right track, you’ll get run over if you just sit there. 
+  Have patience—wait, but do not sit idle; work while you are waiting; smile while you are wearied with monotony; be firm while everything around you is being shaken; be joyous while the ugly face of despair grins at you; speak aloud while the malevolent forces of the nether world try to crush your mind; be valiant and courageous while men all around you are cringing with fear and cowardice. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1466 days)
