@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When sorrows come, they come not single spies, but in battalions. 
+  Protecting the rights of even the least individual among us is basically the only excuse the government has for even existing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1466 days)
