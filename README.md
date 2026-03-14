@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you sing with a group of people, you learn how to subsume yourself into a group consciousness because a capella singing is all about the immersion of the self into the community. That's one of the great feelings - to stop being me for a little while and to become us. That way lies empathy, the great social virtue. 
+  At what point then is the approach of danger to be expected? I answer, if it ever reach us, it must spring up amongst us. It cannot come from abroad. If destruction be our lot, we must ourselves be its author and finisher. As a nation of freemen, we must live through all time, or die by suicide. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1466 days)
