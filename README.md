@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can always tell someone to go to Hell tomorrow. 
+  Your edge is where you stop short, or where you compromise your fullest gift, and, instead, cater to your fears. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1467 days)
