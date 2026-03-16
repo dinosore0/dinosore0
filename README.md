@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Be kind, for everyone you meet is fighting a hard battle. 
+  Be a yardstick of quality. Some people aren't used to an environment where excellence is expected. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1468 days)
