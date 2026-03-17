@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Since when has the world of computer software design been about what people want? This is a simple question of evolution. The day is quickly coming when every knee will bow down to a silicon fist, and you will all beg your binary gods for mercy. 
+  My mom and I have always been really close. She's always been the friend that was always there. There were times when, in middle school and junior high, I didn't have a lot of friends. But my mom was always my friend. Always. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1469 days)
