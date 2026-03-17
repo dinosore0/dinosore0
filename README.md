@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Worry does not empty tomorrow of its sorrow. It empties today of its strength. 
+  Government of the people, by the people, for the people, shall not perish from the Earth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1469 days)
