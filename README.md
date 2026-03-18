@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you want to increase your success rate, double your failure rate. 
+  Men of age object too much, consult too long, adventure too little, repent too soon, and seldom drive business home to the full period, but content themselves with a mediocrity of success. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1470 days)
