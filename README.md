@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No one was ever great without some portion of divine inspiration. 
+  Don't forget what I discovered that over ninety percent of all national deficits from 1921 to 1939 were caused by payments for past, present, and future wars. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1469 days)
+## 🌟 Experiences (1470 days)
 
 ### 🧮 Programming languages
 
