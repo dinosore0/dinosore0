@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In a thousand different ways, we are taught to think small.  We are taught to think we can’t change the status quo.  That does not have to be. 
+  The sage does not hoard. The more he helps others, the more he benefits himself, The more he gives to others, the more he gets himself. The Way of Heaven does one good but never does one harm. The Way of the sage is to act but not to compete. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1470 days)
