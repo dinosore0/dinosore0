@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Think of all the beauty still left around you and be happy. 
+  The cost of freedom is always high, but Americans have always paid it. And one path we shall never choose, and that is the path of surrender, or submission. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1471 days)
