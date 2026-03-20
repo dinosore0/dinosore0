@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I can call 'Flappy Bird' is a success of mine. But it also ruins my simple life. So now I hate it. 
+  One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1472 days)
