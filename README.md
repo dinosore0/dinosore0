@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Beauty is the greatest seducer of man. 
+  The difference between a Miracle and a Fact is exactly the difference between a mermaid and seal. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1472 days)
