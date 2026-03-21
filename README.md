@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. 
+  Let your life lightly dance on the edges of Time like dew on the tip of a leaf. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1472 days)
+## 🌟 Experiences (1473 days)
 
 ### 🧮 Programming languages
 
