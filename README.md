@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The tent is a symbol of being transient.  It's a symbol of being at home, wherever you are. 
+  There was never an angry man that thought his anger unjust. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1473 days)
