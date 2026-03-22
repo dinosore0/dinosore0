@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Experience is a revelation in the light of which we renounce our errors of youth for those of age. 
+  Men always talk about the most important things to perfect strangers. In the perfect stranger we perceive man himself; the image of a God is not disguised by resemblances to an uncle or doubts of wisdom of a mustache. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1474 days)
