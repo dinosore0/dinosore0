@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Good, better, best; never let it rest till your good is better and your better is best. 
+  Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1474 days)
