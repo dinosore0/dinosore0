@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When someone shows you who they are, believe them the first time. 
+  Doubt that the sun doth move, doubt truth to be a liar, but never doubt I love. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1474 days)
