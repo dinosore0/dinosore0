@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith is a state of openness or trust. 
+  It is not in the stars to hold our destiny but in ourselves. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1474 days)
+## 🌟 Experiences (1475 days)
 
 ### 🧮 Programming languages
 
