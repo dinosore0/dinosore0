@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No one was ever great without some portion of divine inspiration. 
+  Advertising has us chasing cars and clothes, working jobs we hate so we can buy s--t we don't need. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1476 days)
