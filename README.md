@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Broadly speaking, the short words are the best, and the old words best of all. 
+  The best way to create the future is to: Act. Learn. Build. Repeat. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1477 days)
