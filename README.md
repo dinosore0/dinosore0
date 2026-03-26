@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A lot of the best ideas seem silly or bad initially—you want an idea at the intersection of “seems like bad idea” and “is good idea”. 
+  If you tell people where to go, but not how to get there, you'll be amazed at the results. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1478 days)
