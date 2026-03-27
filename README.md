@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people do not listen with the intent to understand; they listen with the intent to reply. 
+  A strong argument for the religion of Christ is this - that offences against Charity are about the only ones which men on their death-beds can be made - not to understand - but to feel - as crime. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1478 days)
+## 🌟 Experiences (1479 days)
 
 ### 🧮 Programming languages
 
