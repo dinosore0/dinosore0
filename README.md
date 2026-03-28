@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every young man would do well to remember that all successful business stands on the foundation of morality. 
+  When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1480 days)
