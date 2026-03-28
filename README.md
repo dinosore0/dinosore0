@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never let the future disturb you. You will meet it, if you have to, with the same weapons of reason which today arm you against the present. 
+  I don't know why women want any of the things men have when one the things that women have is men. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1480 days)
