@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To keep the body in good health is a duty... otherwise we shall not be able to keep our mind strong and clear. 
+  Every young man would do well to remember that all successful business stands on the foundation of morality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1480 days)
