@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Design is a funny word. Some people think design means how it looks. But of course, if you dig deeper, it's really how it works. 
+  Aim for the sky, but move slowly, enjoying every step along the way. It is all those little steps that make the journey complete. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1480 days)
