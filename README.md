@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I will speak daggers to her, but use none. 
+  All gods are homemade, and it is we who pull their strings, and so, give them the power to pull ours. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1481 days)
