@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I have great hopes that we shall love each other all our lives as much as if we had never married at all. 
+  Remember happiness doesn't depend upon who you are or what you have it depends solely on what you think. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1481 days)
