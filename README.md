@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can learn many things from children.  How much patience you have, for instance 
+  God's dream is that you and I and all of us will realize that we are family, that we are made for togetherness, for goodness, and for compassion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1482 days)
