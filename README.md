@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We don't want tradition. We want to live in the present and the only history that is worth a tinker's dam is the history we make today. 
+  How much more grievous are the consequences of anger than the causes of it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1483 days)
