@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you suffer, thank God! It is a sure sign that you are alive. 
+  Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1483 days)
