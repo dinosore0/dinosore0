@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are strong so long as they represent a strong idea they become powerless when they oppose it. 
+  Growth for the sake of growth is the ideology of the cancer cell. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1483 days)
