@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you would hit the mark, you must aim a little above it. 
+  Every man's work, whether it be literature, or music or pictures or architecture or anything else, is always a portrait of himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1484 days)
