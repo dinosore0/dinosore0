@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When you arise in the morning, think of what a precious privilege it is to be alive - to breathe, to think, to enjoy, to love. 
+  What other people think of me is none of my business. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1485 days)
