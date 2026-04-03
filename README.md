@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “If religion is opposed to reason and science, faith is impossible; and when faith and confidence in the divine religion are not manifest in the heart, there can be no spiritual attainment.” 
+  The greatest way to live with honor in this world is to be what we pretend to be. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1486 days)
