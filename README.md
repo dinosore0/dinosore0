@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is more shameful to distrust our friends than to be deceived by them. 
+  If one is master of one thing and understands one thing well, one has at the same time, insight into and understanding of many things. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1487 days)
