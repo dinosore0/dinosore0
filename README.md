@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Depth of friendship does not depend on length of acquaintance. 
+  Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1487 days)
