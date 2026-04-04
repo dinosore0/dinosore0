@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Making the simple complicated is commonplace; making the complicated simple, awesomely simple, that's creativity. 
+  Depth of friendship does not depend on length of acquaintance. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1486 days)
+## 🌟 Experiences (1487 days)
 
 ### 🧮 Programming languages
 
