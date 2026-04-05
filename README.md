@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Animals are such agreeable friends - they ask no questions they pass no criticisms. 
+  Age is an issue of mind over matter. If you don't mind, it doesn't matter. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1488 days)
