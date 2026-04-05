@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing in life is to be feared.  It is only to be understood. 
+  Priests are not men of the world it is not intended that they should be and a University training is the one best adapted to prevent their becoming so. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1488 days)
