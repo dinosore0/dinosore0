@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  And it must follow, as the night the day, thou canst not then be false to any man. 
+  An approximate answer to the right problem is worth a good deal more than an exact answer to an approximate problem. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1489 days)
