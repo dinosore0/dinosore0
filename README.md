@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Immature love says: 'I love you because I need you.' Mature love says 'I need you because I love you.' 
+  You, yourself, as much as anybody in the entire universe, deserve your love and affection. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1492 days)
