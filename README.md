@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Opportunity is missed by most people because it is dressed in overalls and looks like work. 
+  Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1491 days)
+## 🌟 Experiences (1492 days)
 
 ### 🧮 Programming languages
 
