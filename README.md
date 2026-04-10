@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When people are very quotable, it can make it harder to listen to what they actually have to say. 
+  If you're going through hell, keep going. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1492 days)
+## 🌟 Experiences (1493 days)
 
 ### 🧮 Programming languages
 
