@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To hope means to be ready at every moment for that which is not yet born, and yet not become desperate if there is no birth in our lifetime. 
+  Mystical explanations are thought to be deep; the truth is that they are not even shallow. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1493 days)
