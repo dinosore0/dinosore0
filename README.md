@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Happiness is like a butterfly: the more you chase it, the more it will elude you, but if you turn your attention to other things, it will come and sit softly on your shoulder. 
+  No man should bring children into the world who is unwilling to persevere to the end in their nature and education. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1494 days)
