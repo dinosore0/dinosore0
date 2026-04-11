@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves. 
+  Opportunity is missed by most people because it is dressed in overalls and looks like work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1494 days)
