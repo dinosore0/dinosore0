@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I always looked really young for my age. And once I hit 23, 24 and 25, I was then allowed to play the cool 18-year-olds and stuff. 
+  I'd rather attempt to do something great and fail than to attempt to do nothing and succeed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1496 days)
