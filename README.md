@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half. 
+  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1499 days)
