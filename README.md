@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No one can arrive from being talented alone, work transforms talent into genius. 
+  Critics are men who sit and watch a battle from a high place and come down to shoot the survivors. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1499 days)
