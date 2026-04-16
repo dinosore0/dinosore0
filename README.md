@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Money is the last enemy that shall never be subdued. While there is flesh there is money or the want of money, but money is always on the brain so long as there is a brain in reasonable order. 
+  Half of the American people have never read a newspaper. Half never voted for President. One hopes it is the same half. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1499 days)
