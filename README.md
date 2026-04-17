@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man cannot discover new oceans unless he has the courage to lose sight of the shore. 
+  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1500 days)
