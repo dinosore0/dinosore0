@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
+  The voice of the intellect is a soft one, but it does not rest until it has gained a hearing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1500 days)
