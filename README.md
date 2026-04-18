@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Only work half a day. It doesn't matter which half you work -- the first 12 hours or the second 12 hours. 
+  Excellence is the best deterrent to racism or sexism. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1501 days)
