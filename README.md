@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Women must tell men always that they are the strong ones. They are the big, the strong, the wonderful. In truth, women are the strong ones. It is just my opinion, I am not a professor. 
+  2020 was deployed to prod without testing - tf486 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1502 days)
