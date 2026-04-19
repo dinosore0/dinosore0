@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The more powerful and original a mind, the more it will incline towards the religion of solitude. 
+  Our Lord has written the promise of resurrection, not in books alone, but in every leaf in springtime. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1502 days)
