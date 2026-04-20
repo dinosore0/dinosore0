@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The diversity in the faculties of men, from which the rights of property originate, is not less an insuperable obstacle to an uniformity of interests. The protection of these faculties is the first object of government. 
+  And the first rude sketch that the world had seen was joy to his mighty heart, till the Devil whispered behind the leaves 'It's pretty, but is it Art?' 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1503 days)
