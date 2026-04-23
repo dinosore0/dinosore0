@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Capitalism has always been a failure for the lower classes. It is now beginning to fail for the middle classes. 
+  Art is making something out of nothing and selling it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1506 days)
