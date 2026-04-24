@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Faith is not believing that God can. It is knowing that God will. 
+  You know, religion itself, Eastern and Western, is divisive and quarrelsome anyway. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1507 days)
