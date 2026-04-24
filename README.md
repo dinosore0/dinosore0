@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Behold the child, by Nature's kindly law pleased with a rattle, tickled with a straw. 
+  Faith is not believing that God can. It is knowing that God will. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1507 days)
