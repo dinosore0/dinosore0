@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you accept the expectations of others, especially negative ones, then you never will change the outcome. 
+  We choose to go to the moon in this decade and do the other things, not because they are easy, but because they are hard. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1507 days)
