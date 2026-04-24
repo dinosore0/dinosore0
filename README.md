@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Intellectual growth should commence at birth and cease only at death. 
+  If Bill Gates woke up with Oprah's money, he'd jump out the window. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1506 days)
+## 🌟 Experiences (1507 days)
 
 ### 🧮 Programming languages
 
