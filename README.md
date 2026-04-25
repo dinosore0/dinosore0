@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We will never have true civilization until we have learned to recognize the rights of others. 
+  The power of imagination makes us infinite. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1507 days)
+## 🌟 Experiences (1508 days)
 
 ### 🧮 Programming languages
 
