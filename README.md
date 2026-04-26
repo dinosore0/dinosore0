@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is a tragedy when seen in close-up, but a comedy in long-shot. 
+  The important thing is not to stop questioning; curiosity has its own reason for existing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1509 days)
