@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad. 
+  Reversing your treatment of the man you have wronged is better than asking his forgiveness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1510 days)
