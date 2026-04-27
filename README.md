@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Darkness cannot drive out darkness only light can do that. Hate cannot drive out hate only love can do that. 
+  A man who has never gone to school may steal from a freight car but if he has a university education, he may steal the whole railroad. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1510 days)
