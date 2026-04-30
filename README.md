@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I saw few die of hunger of eating, a hundred thousand. 
+  Time is never wasted, when you’re wasted all the time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1512 days)
+## 🌟 Experiences (1513 days)
 
 ### 🧮 Programming languages
 
