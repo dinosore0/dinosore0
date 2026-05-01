@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. 
+  My own view is that every company requires a long-term view. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1514 days)
