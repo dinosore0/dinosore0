@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Let not your heart be offended with anyone… Beware! Beware! lest ye offend any heart. 
+  If you’ve never met the devil on the road of life, it's because you’re both heading in the same direction. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1514 days)
