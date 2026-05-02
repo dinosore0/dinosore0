@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Never contract friendship with a man that is not better than thyself. 
+  Time rushes towards us with its hospital tray of infinitely varied narcotics, even while it is preparing us for its inevitably fatal operation. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1515 days)
