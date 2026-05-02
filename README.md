@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do not say, 'It is morning,' and dismiss it with a name of yesterday. See it for the first time as a newborn child that has no name. 
+  We should take care not to make the intellect our god it has, of course, powerful muscles, but no personality. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1515 days)
