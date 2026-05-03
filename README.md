@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My goal is to live until I die. 
+  Death is the best invention of life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1515 days)
+## 🌟 Experiences (1516 days)
 
 ### 🧮 Programming languages
 
