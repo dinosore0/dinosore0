@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
+  Let your life lightly dance on the edges of Time like dew on the tip of a leaf. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1516 days)
