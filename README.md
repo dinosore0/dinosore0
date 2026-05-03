@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is hardly such a thing as a war in which it makes no difference who wins. Nearly always one side stands more of less for progress, the other side more or less for reaction. 
+  By all means let's be open-minded, but not so open-minded that our brains drop out. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1516 days)
