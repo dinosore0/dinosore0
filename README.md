@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Time alone reveals the just man but you might discern a bad man in a single day. 
+  Our greatest glory is not in never falling, but in rising every time we fall. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1519 days)
