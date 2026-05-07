@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  How far that little candle throws his beams!<br>So shines a good deed in a naughty world. 
+  Faith certainly tells us what the senses do not, but not the contrary of what they see it is above, not against them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1520 days)
