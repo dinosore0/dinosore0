@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When I was young, I thought that money was the most important thing in life; now that I am old, I know that it is. 
+  To be outspoken is easy when you do not wait to speak the complete truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1520 days)
