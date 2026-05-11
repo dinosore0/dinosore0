@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I like this place and willingly could waste my time in it. 
+  I am a soul. I know well that what I shall render up to the grave is not myself. That which is myself will go elsewhere. Earth, thou art not my abyss! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1523 days)
+## 🌟 Experiences (1524 days)
 
 ### 🧮 Programming languages
 
