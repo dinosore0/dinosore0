@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Health is the soul that animates all the enjoyments of life, which fade and are tasteless without it. 
+  It destroys one's nerves to be amiable every day to the same human being. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1526 days)
