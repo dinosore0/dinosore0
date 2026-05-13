@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whatever my individual desires were to be free, I was not alone. There were many others who felt the same way. 
+  Proverbs are always platitudes until you have personally experienced the truth of them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1526 days)
