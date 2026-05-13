@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A wise man can learn more from a foolish question than a fool can learn from a wise answer. 
+  The sensitivity of men to small matters, and their indifference to great ones, indicates a strange inversion. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1526 days)
