@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed. 
+  Health is the soul that animates all the enjoyments of life, which fade and are tasteless without it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1525 days)
+## 🌟 Experiences (1526 days)
 
 ### 🧮 Programming languages
 
