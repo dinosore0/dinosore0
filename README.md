@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In the long term, the problem we face may not be poverty, but too much wealth of the wrong kind. 
+  Once you eliminate the impossible, whatever remains, no matter how improbable, must be the truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1527 days)
