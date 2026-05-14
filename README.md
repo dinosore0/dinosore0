@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once you eliminate the impossible, whatever remains, no matter how improbable, must be the truth. 
+  Courageous people do not fear forgiving, for the sake of peace. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1527 days)
