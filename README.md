@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want. 
+  Life is the nothing without best, you only need resttestuser0001 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1528 days)
