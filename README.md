@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who views the world the same at fifty as he did at twenty has wasted thirty years of his life. 
+  The best revenge is to be unlike him who performed the injury. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1529 days)
