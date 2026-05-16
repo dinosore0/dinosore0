@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is the nothing without best, you only need resttestuser0001 
+  I want my food dead. Not sick, not dying, dead. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1528 days)
+## 🌟 Experiences (1529 days)
 
 ### 🧮 Programming languages
 
