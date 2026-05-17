@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People are not judging YOU, they are telling you who THEY are. 
+  Shortly after I met Bill Gates, Bill's dad asked each of us to write down on a piece of paper one word that would best describe what had helped us the most. Bill and I, without any collaboration at all, each wrote the word "focus. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1530 days)
