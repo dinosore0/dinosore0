@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you're kind, amazing things will happen. 
+  Bad programmers worry about the code. Good programmers worry about data structures and their relationships. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1530 days)
