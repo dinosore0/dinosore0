@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You better cut the pizza in four pieces because I'm not hungry enough to eat six. 
+  Imagination is the most marvelous, miraculous, inconceivably powerful force the world has ever known. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1536 days)
