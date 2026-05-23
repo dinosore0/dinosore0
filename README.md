@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Try not to become a man of success, but rather try to become a man of value. 
+  Thats the thing with magic; you’ve got to know that its still here, all around us, or it just stays invisible for you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1536 days)
