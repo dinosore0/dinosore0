@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Though this be madness, yet there is method in 't. 
+  Two possibilities exist: Either we are alone in the Universe or we are not. Both are equally terrifying. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1543 days)
