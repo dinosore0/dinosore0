@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  People do not lack strength they lack will. 
+  We see past time in a telescope and present time in a microscope. Hence the apparent enormities of the present. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1542 days)
+## 🌟 Experiences (1543 days)
 
 ### 🧮 Programming languages
 
