@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every man has his own courage, and is betrayed because he seeks in himself the courage of other persons. 
+  If you’ve never met the devil on the road of life, it's because you’re both heading in the same direction. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1543 days)
