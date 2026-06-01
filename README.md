@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Home is where you feel at home and are treated well. 
+  Who doesn't want to shortcut the greatness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1544 days)
+## 🌟 Experiences (1545 days)
 
 ### 🧮 Programming languages
 
