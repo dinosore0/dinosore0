@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is a great discovery still to be made in literature, that of paying literary men by the quantity they do not write. 
+  I have consistently preached that nonviolence demands that the means we use must be as pure as the ends we seek. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1545 days)
