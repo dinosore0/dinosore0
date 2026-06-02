@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy. 
+  A Bill of Rights is what the people are entitled to against every government, and what no just government should refuse, or rest on inference. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1546 days)
