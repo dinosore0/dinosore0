@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  One can not reflect in streaming water. Only those who know internal peace can give it to others. 
+  Don't sweat the petty things and don't pet the sweaty things. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1549 days)
