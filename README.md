@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Read 500 pages like this every day.  That's how knowledge works.  It builds up, like compound interest.  All of you can do it, but I guarantee not many of you will do it. 
+  I've done everything I wanted to do, even if I have had to pay a very high price - which has been the case most of the time. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1552 days)
