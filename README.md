@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  my test qoute. 
+  The invariable mark of wisdom is to see the miraculous in the common. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1552 days)
+## 🌟 Experiences (1553 days)
 
 ### 🧮 Programming languages
 
