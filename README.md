@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  As we advance in life it becomes more and more difficult, but in fighting the difficulties the inmost strength of the heart is developed. 
+  Those whom we can love, we can hate to others we are indifferent. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1554 days)
