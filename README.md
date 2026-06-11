@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day. 
+  I think people should be allowed to do anything they want. We haven't tried that for a while. Maybe this time it'll work. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1555 days)
