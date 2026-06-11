@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those whom we can love, we can hate to others we are indifferent. 
+  I had rather have a fool to make me merry than experience to make me sad and to travel for it too! 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1554 days)
+## 🌟 Experiences (1555 days)
 
 ### 🧮 Programming languages
 
