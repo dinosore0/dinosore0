@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best writing is not about the writer, the best writing is absolutely not about the writer, it's about us, it's about the reader. 
+  Hatred does not cease by hatred, but only by love this is the eternal rule. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1558 days)
