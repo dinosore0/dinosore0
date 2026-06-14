@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I believe a leaf of grass is no less than the journey-work of the stars. 
+  There's nothing wrong with having a tree as a friend. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1557 days)
+## 🌟 Experiences (1558 days)
 
 ### 🧮 Programming languages
 
