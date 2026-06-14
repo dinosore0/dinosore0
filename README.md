@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I drank some boiling water because I wanted to whistle. 
+  If the machine of government is of such a nature that it requires you to be the agent of injustice to another, then, I say, break the law. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1558 days)
