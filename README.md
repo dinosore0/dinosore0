@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Intelligence is the ability to adapt to change. 
+  Once you eliminate the impossible, whatever remains, no matter how improbable, must be the truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1562 days)
