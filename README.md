@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We deem those happy who from the experience of life have learnt to bear its ills without being overcome by them. 
+  Art is parasitic on life, just as criticism is parasitic on art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1562 days)
