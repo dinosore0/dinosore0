@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  In politics, nothing happens by accident. If it happens, you can bet it was planned that way. 
+  Knowledge slowly builds up what Ignorance in an hour pulls down. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1565 days)
