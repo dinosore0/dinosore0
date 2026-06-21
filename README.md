@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every war when it comes, or before it comes, is represented not as a war but as an act of self-defense against a homicidal maniac. 
+  If you live a life of make-believe, your life isn't worth anything until you do something that does challenge your reality. And to me, sailing the open ocean is a real challenge, because it's life or death. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1564 days)
+## 🌟 Experiences (1565 days)
 
 ### 🧮 Programming languages
 
