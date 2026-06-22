@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge slowly builds up what Ignorance in an hour pulls down. 
+  We are made wise not by the recollection of our past, but by the responsibility for our future. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1565 days)
+## 🌟 Experiences (1566 days)
 
 ### 🧮 Programming languages
 
