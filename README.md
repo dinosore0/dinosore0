@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The taxpayer - that's someone who works for the federal government but doesn't have to take the civil service examination. 
+  Forgiveness is the fragrance that the violet sheds on the heel that has crushed it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1568 days)
