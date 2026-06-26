@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “And now that you don’t have to be perfect, you can be good.” 
+  Be content with what you are, and wish not change nor dread your last day, nor long for it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1570 days)
