@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I won't insult your intelligence by suggesting that you really believe what you just said. 
+  Those who intend on becoming great should love neither themselves nor their own things, but only what is just, whether it happens to be done by themselves or others. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1573 days)
