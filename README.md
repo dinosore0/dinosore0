@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Those who intend on becoming great should love neither themselves nor their own things, but only what is just, whether it happens to be done by themselves or others. 
+  Fear cannot be without hope nor hope without fear. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1577 days)
