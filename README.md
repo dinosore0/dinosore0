@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We are faced with the paradoxical fact that education has become one of the chief obstacles to intelligence and freedom of thought. 
+  Though this be madness, yet there is method in 't. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1577 days)
