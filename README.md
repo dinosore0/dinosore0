@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Though this be madness, yet there is method in 't. 
+  ###Brief tip or insight### 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1577 days)
+## 🌟 Experiences (1578 days)
 
 ### 🧮 Programming languages
 
