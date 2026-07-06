@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Man has, as it were, become a kind of prosthetic God. When he puts on all his auxiliary organs, he is truly magnificent but those organs have not grown on him and they still give him much trouble at times. 
+  Every great dream begins with a dreamer. Always remember, you have within you the strength, patience, and passion to reach for the stars and change the world. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1580 days)
