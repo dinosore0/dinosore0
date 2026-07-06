@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Knowledge will give you power, but character respect. 
+  We have one life it soon will be past what we do for God is all that will last. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1579 days)
+## 🌟 Experiences (1580 days)
 
 ### 🧮 Programming languages
 
