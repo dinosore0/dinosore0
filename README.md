@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The happiness and greatness, the rank and station, the pleasure and peace, of an individual have never consistent in his personal wealth, but rather in his excellent character, his high resolve, the breadth of his learning, and his ability to solve difficult problems. 
+  Whatever you want to do in this world, it is achievable. The most important thing that I've found, that perhaps you could use, is be passionate and enthusiastic in the direction that you choose in life, and you'll be a winner. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1582 days)
