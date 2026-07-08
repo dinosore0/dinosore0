@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Success is dangerous. One begins to copy oneself, and to copy oneself is more dangerous than to copy others. It leads to sterility. 
+  Nature is trying very hard to make us succeed, but nature does not depend on us. We are not the only experiment. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1582 days)
