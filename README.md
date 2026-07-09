@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A baby is God’s opinion that life should go on. 
+  Let everyone try and find that as a result of daily prayer he adds something new to his life, something with which nothing can be compared. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1582 days)
+## 🌟 Experiences (1583 days)
 
 ### 🧮 Programming languages
 
