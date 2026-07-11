@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Tell me and I forget; teach me and I may remember; involve me and I learn. 
+  Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1585 days)
