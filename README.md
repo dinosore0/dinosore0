@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nothing great was ever achieved without enthusiasm. 
+  Man, alone, has the power to transform his thoughts into physical reality; man, alone, can dream and make his dreams come true. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1584 days)
+## 🌟 Experiences (1585 days)
 
 ### 🧮 Programming languages
 
