@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You should start with an assumption that you, as an entrepreneur, are wrong. Your goal is to be less wrong. 
+  Talent hits a target no one else can hit. Genius hits a target no one else can see. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1585 days)
