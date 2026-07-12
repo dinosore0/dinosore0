@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art. 
+  People are not judging YOU, they are telling you who THEY are. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1586 days)
