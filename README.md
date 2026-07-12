@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am afraid we must make the world honest before we can honestly say to our children that honesty is the best policy. 
+  Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1586 days)
