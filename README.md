@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The most courageous act is still to think for yourself. Aloud. 
+  There’s about as much educational benefit studying dolphins in captivity as there would be studying mankind by only observing prisoners held in solitary. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1586 days)
+## 🌟 Experiences (1587 days)
 
 ### 🧮 Programming languages
 
