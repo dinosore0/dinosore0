@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I hope to stand firm enough to not go backward, and yet not go forward fast enough to wreck the country's cause. 
+  Beware of little expenses. A small leak will sink a great ship. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1587 days)
+## 🌟 Experiences (1588 days)
 
 ### 🧮 Programming languages
 
