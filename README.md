@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Nature is trying very hard to make us succeed, but nature does not depend on us. We are not the only experiment. 
+  The 10,000 Hour Rule - All of us have some measure of greatness within us. But it has to be cultivated. It takes hours of hard work, usually about 10,000 hours, especially when one is young. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1589 days)
