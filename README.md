@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When power leads man toward arrogance, poetry reminds him of his limitations. When power narrows the area of man's concern, poetry reminds him of the richness and diversity of existence. When power corrupts, poetry cleanses. 
+  Oh, if I had been loved at the age of seventeen, what an idiot I would be today. Happiness is like smallpox: if you catch it too soon, it can completely ruin your constitution. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1590 days)
