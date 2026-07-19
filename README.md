@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Enthusiasm is the mother of effort, and without it nothing great was ever achieved. 
+  Rule No. 1: Never lose money; rule No. 2: Don’t forget rule No. 1. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1593 days)
