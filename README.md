@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Without health, life is not life, it is only a state of langour and suffering - an image of death. 
+  In Republics, the great danger is, that the majority may not sufficiently respect the rights of the minority. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1593 days)
