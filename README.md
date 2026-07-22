@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There are 2 things that will bring you success in life: 1) Don't tell everyone everything you know. 
+  A picture is worth a thousand words. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1595 days)
+## 🌟 Experiences (1596 days)
 
 ### 🧮 Programming languages
 
