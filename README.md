@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The highest education is that which does not merely give us information but makes our life in harmony with all existence. 
+  Every time I see an adult on a bicycle, I no longer despair for the future of the human race. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1598 days)
