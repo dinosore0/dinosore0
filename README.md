@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Women who seek to be equal with men lack ambition. 
+  The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1601 days)
