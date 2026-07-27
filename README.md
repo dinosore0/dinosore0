@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Old age is fifteen years older than I am. 
+  Talk is cheap. Show me the code. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1600 days)
+## 🌟 Experiences (1601 days)
 
 ### 🧮 Programming languages
 
