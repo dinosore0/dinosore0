@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Cowards die many times before their deaths; the valiant never taste of death but once. 
+  In general, the art of government consists of taking as much money as possible from one class of citizens to give to another. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1603 days)
