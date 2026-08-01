@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Common sense is the collection of prejudices acquired by age eighteen. 
+  In politics stupidity is not a handicap. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1605 days)
+## 🌟 Experiences (1606 days)
 
 ### 🧮 Programming languages
 
