@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  To hope means to be ready at every moment for that which is not yet born, and yet not become desperate if there is no birth in our lifetime. 
+  Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1606 days)
