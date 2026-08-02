@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Do the thing you fear most and the death of fear is certain. 
+  Even if you are on the right track, you’ll get run over if you just sit there. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1606 days)
+## 🌟 Experiences (1607 days)
 
 ### 🧮 Programming languages
 
