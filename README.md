@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Obstacles Can't Stop You, Problems Can't Stop You, People Can't Stop You. Only You Can Stop You! 
+  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1610 days)
