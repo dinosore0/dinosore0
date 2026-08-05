@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Grant that I may not pray alone with the mouth; help me that I may pray from the depths of my heart. 
+  Time, which alone makes the reputation of men, ends by making their defects respectable. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1610 days)
