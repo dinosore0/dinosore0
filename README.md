@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Attitude is a little thing that makes a big difference. 
+  A diplomat is a man who always remembers a woman's birthday but never remembers her age. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1610 days)
+## 🌟 Experiences (1611 days)
 
 ### 🧮 Programming languages
 
