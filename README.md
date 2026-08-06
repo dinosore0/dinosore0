@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A diplomat is a man who always remembers a woman's birthday but never remembers her age. 
+  I have great hopes that we shall love each other all our lives as much as if we had never married at all. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1611 days)
