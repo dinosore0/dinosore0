@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Men are April when they woo, December when they wed. Maids are May when they are maids, but the sky changes when they are wives. 
+  Critics are men who sit and watch a battle from a high place and come down to shoot the survivors. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1613 days)
