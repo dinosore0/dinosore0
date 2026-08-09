@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  We still do not know one thousandth of one percent of what nature has revealed to us. 
+  Every day I try to be in communication with the universe in an unconscious way. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1613 days)
+## 🌟 Experiences (1614 days)
 
 ### 🧮 Programming languages
 
