@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  My best friend is the one who brings out the best in me. 
+  Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1614 days)
