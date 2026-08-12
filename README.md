@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Smiles form the channels of a future tear. 
+  “You only live once, but if you do it right, once is enough.” 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1616 days)
+## 🌟 Experiences (1617 days)
 
 ### 🧮 Programming languages
 
