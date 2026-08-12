@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Elections are won by men and women chiefly because most people vote against somebody rather than for somebody. 
+  It's not how much you make, it's how much you keep. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1617 days)
