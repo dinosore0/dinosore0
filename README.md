@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You can't apply the rules of a club to people who are not members of that club. 
+  It's the game of life. Do I win or do I lose? One day they're gonna shut the game down. I gotta have as much fun and go around the board as many times as I can before it's my turn to leave. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1618 days)
