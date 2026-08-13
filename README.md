@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  When a hundred men stand together, each of them loses his mind and gets another one. 
+  Constantly think about how you could be doing things better and keep questioning yourself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1618 days)
