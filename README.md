@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A man who views the world the same at fifty as he did at twenty has wasted thirty years of his life. 
+  Age appears to be best in four things old wood best to burn, old wine to drink, old friends to trust, and old authors to read. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1618 days)
+## 🌟 Experiences (1619 days)
 
 ### 🧮 Programming languages
 
