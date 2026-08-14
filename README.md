@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Most people wouldn't know music if it came up and bit them on the a-s. 
+  I do not think there is any other quality so essential to success, of any kind, as perseverance. It overcomes almost everything. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1619 days)
