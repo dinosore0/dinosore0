@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you. 
+  Courage is doing what you're afraid to do.  There can be no courage unless you're scared. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1619 days)
