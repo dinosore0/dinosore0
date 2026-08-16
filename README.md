@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  That man is richest whose pleasures are the cheapest. 
+  Women love us for our defects. If we have enough of them, they will forgive us everything, even our gigantic intellects. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1621 days)
