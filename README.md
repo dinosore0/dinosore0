@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  “And now that you don’t have to be perfect, you can be good.” 
+  If you tell people where to go, but not how to get there, you'll be amazed at the results. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1621 days)
