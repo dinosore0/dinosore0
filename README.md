@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God writes the Gospel not in the Bible alone, but also on trees, and in the flowers and clouds and stars. 
+  If Bill Gates woke up with Oprah's money, he'd jump out the window. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1622 days)
