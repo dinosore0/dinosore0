@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The great fun in my life has been getting up every morning and rushing to the typewriter because some new idea has hit me. 
+  Always bear in mind that your own resolution to succeed is more important than any other. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1623 days)
