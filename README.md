@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You know, religion itself, Eastern and Western, is divisive and quarrelsome anyway. 
+  Faith in oneself is the best and safest course. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1623 days)
