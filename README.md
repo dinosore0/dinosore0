@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you’ve never met the devil on the road of life, it's because you’re both heading in the same direction. 
+  I didn’t want to change society. I wanted to give society a chance to determine if it should change itself. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1623 days)
