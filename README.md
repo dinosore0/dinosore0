@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Opportunity is missed by most people because it is dressed in overalls and looks like work. 
+  Our prime purpose in this life is to help others. And if you can't help them, at least don't hurt them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1623 days)
