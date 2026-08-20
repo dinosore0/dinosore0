@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Don't sweat the petty things and don't pet the sweaty things. 
+  Decorate your home. It gives the illusion that your life is more interesting than it really is. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1625 days)
