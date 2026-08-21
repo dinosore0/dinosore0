@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  War on the other hand is such a terrible thing, that no man, especially a Christian man, has the right to assume the responsibility of starting it. 
+  The role of leadership is to transform the complex situation into small pieces and prioritize them. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1626 days)
