@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The role of leadership is to transform the complex situation into small pieces and prioritize them. 
+  There are several good protections against temptation, but the surest is cowardice. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1626 days)
