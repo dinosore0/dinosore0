@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The impulse to cruelty is, in many people, almost as violent as the impulse to sexual love - almost as violent and much more mischievous. 
+  When a hundred men stand together, each of them loses his mind and gets another one. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1627 days)
