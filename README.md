@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Some people think that doctors and nurses can put scrambled eggs back in the shell. 
+  Right now it's only a notion, but I think I can get the money to make it into a concept, and later turn it into an idea. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1628 days)
