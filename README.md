@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you're more interested in what you have achieved, or what you're financial position enables you to do than that thing that got those things, you're screwed. 
+  In the business world, the rearview mirror is always clearer than the windshield. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1628 days)
