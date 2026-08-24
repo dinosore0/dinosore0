@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Was this the face that launched a thousand ships, and burnt the topless towers of Ileum? 
+  Life's tragedy is that we get old too soon and wise too late. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1629 days)
