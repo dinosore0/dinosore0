@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Destiny is not a matter of chance, it is a matter of choice. It is not something to be waited for, but something to be achieved. 
+  Of life's two chief prizes, beauty and truth, I found the first in a loving heart and the second in a laborer's hand. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1630 days)
