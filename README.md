@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much. 
+  Remember happiness doesn't depend upon who you are or what you have it depends solely on what you think. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1630 days)
