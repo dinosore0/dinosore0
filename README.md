@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art. 
+  The power of a book lies in its power to turn a solitary act into a shared vision. As long as we have books, we are not alone. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1629 days)
+## 🌟 Experiences (1630 days)
 
 ### 🧮 Programming languages
 
