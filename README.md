@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Just do the best you can. No one can do more than that. 
+  There is no revenge so complete as forgiveness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1634 days)
+## 🌟 Experiences (1635 days)
 
 ### 🧮 Programming languages
 
