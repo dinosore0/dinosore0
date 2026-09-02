@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  There is something terribly morbid in the modern sympathy with pain. One should sympathise with the colour, the beauty, the joy of life. The less said about life's sores the better. 
+  We sleep in separate rooms, we have dinner apart, we take separate vacations - we're doing everything we can to keep our marriage together. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1638 days)
