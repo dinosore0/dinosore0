@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  No man ever believes that the Bible means what it says:  He is always convinced that it says what he means. 
+  Quality is earned long after midnight the night before a major launch, pouring over details that no one will notice but you. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1639 days)
+## 🌟 Experiences (1640 days)
 
 ### 🧮 Programming languages
 
