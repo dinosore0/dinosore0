@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Quality is earned long after midnight the night before a major launch, pouring over details that no one will notice but you. 
+  All religion, my friend, is simply evolved out of fraud, fear, greed, imagination, and poetry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1640 days)
