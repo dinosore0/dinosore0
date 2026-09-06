@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Sometimes it's the smallest decisions that can change your life forever. 
+  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1641 days)
+## 🌟 Experiences (1642 days)
 
 ### 🧮 Programming languages
 
