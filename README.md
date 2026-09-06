@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It was Public Art, defined as art that is purchased by experts who are not spending their own personal money. 
+  Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1642 days)
