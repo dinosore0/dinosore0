@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
+  A sense of humor is good for you. Have you ever heard of a laughing hyena with heart burn? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1642 days)
