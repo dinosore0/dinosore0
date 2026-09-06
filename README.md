@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. 
+  God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1642 days)
