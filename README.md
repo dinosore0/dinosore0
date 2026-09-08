@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Thou wilt find rest from vain fancies if thou doest every act in life as though it were thy last. 
+  So you know cats are interesting. They are kind of like girls. If they come and talk to you it's great. But if you try to talk to them it doesn't always go so well. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1644 days)
