@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I am prepared for the worst, but hope for the best. 
+  Often when you think you’re at the end of something, you’re at the beginning of something else. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1645 days)
+## 🌟 Experiences (1646 days)
 
 ### 🧮 Programming languages
 
