@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It is not history which uses men as a means of achieving - as if it were an individual person - its own ends. History is nothing but the activity of men in pursuit of their ends. 
+  Wise men make more opportunities than they find. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1648 days)
