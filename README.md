@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you don't like something, change it. If you can't change it, change your attitude. 
+  You can't connect the dots looking forward; you can only connect them looking backward 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1652 days)
+## 🌟 Experiences (1653 days)
 
 ### 🧮 Programming languages
 
