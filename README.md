@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  What do I think of Western civilization? I think it would be a very good idea. 
+  The simple truth is that balding African-American men look cool when they shave their heads, whereas balding white men look like giant thumbs. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1653 days)
+## 🌟 Experiences (1654 days)
 
 ### 🧮 Programming languages
 
