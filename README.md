@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Beware of little expenses. A small leak will sink a great ship. 
+  An approximate answer to the right problem is worth a good deal more than an exact answer to an approximate problem. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1655 days)
+## 🌟 Experiences (1656 days)
 
 ### 🧮 Programming languages
 
