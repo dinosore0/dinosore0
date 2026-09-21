@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Life is like riding a bicycle. To keep your balance, you must keep moving. 
+  After climbing a great hill, one only finds that there are many more hills to climb. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1657 days)
