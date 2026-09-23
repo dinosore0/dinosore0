@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The secret of getting ahead is getting started. 
+  Friendship is the marriage of the soul, and this marriage is liable to divorce. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1658 days)
+## 🌟 Experiences (1659 days)
 
 ### 🧮 Programming languages
 
