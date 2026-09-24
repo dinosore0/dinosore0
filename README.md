@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Every great dream begins with a dreamer. Always remember, you have within you the strength, patience, and passion to reach for the stars and change the world. 
+  I am at peace with God. My conflict is with Man. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1659 days)
+## 🌟 Experiences (1660 days)
 
 ### 🧮 Programming languages
 
