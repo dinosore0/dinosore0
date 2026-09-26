@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Once you get used to thinking about Unit Tests as you write code, you tend to write code in nice tight modular pieces. 
+  Who would not give up wit for power and beauty? 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1662 days)
