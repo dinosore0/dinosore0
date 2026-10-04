@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Our past is not the thing that matters so much in this world as what we intend to do with our future. 
+  There are only two kinds of languages: the ones people complain about and the ones nobody uses. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1670 days)
