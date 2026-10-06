@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If you think you can do a thing or think you can't do a thing, you're right. 
+  There is a great discovery still to be made in literature, that of paying literary men by the quantity they do not write. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1671 days)
+## 🌟 Experiences (1672 days)
 
 ### 🧮 Programming languages
 
