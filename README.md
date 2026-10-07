@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The very spring and root of honesty and virtue lie in good education. 
+  I will speak daggers to her, but use none. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1672 days)
+## 🌟 Experiences (1673 days)
 
 ### 🧮 Programming languages
 
