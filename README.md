@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Can you imagine what I would do if I could do all I can? 
+  Neither a borrower nor a lender be; For loan oft loses both itself and friend, and borrowing dulls the edge of husbandry. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1673 days)
+## 🌟 Experiences (1674 days)
 
 ### 🧮 Programming languages
 
