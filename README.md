@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Time heals griefs and quarrels, for we change and are no longer the same persons. Neither the offender nor the offended are any more themselves. 
+  Humor has justly been regarded as the finest perfection of poetic genius. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1677 days)
