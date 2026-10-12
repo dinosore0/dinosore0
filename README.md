@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Doubt that the sun doth move, doubt truth to be a liar, but never doubt I love. 
+  Women are never disarmed by compliments. Men always are. That is the difference between the sexes. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1677 days)
+## 🌟 Experiences (1678 days)
 
 ### 🧮 Programming languages
 
