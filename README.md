@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  It may be that the satisfaction I need depends on my going away, so that when I've gone and come back, I'll find it at home. 
+  It is the ultimate luxury to combine passion and contribution.  It's also a very clear path to happiness. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1681 days)
