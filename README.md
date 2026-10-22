@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The voice of the intellect is a soft one, but it does not rest until it has gained a hearing. 
+  When marrying, ask yourself this question: Do you believe that you will be able to converse well with this person into your old age? Everything else in marriage is transitory. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1687 days)
+## 🌟 Experiences (1688 days)
 
 ### 🧮 Programming languages
 
