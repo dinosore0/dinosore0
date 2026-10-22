@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Virtue is not left to stand alone. He who practices it will have neighbors. 
+  At his best, man is the noblest of all animals; separated from law and justice, he is the worst. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1688 days)
