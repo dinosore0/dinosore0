@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A fanatic is one who can't change his mind and won't change the subject. 
+  All men are prepared to accomplish the incredible if their ideals are threatened. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1688 days)
+## 🌟 Experiences (1689 days)
 
 ### 🧮 Programming languages
 
