@@ -16,7 +16,7 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All men are prepared to accomplish the incredible if their ideals are threatened. 
+  Complexity is your enemy. Any fool can make something complicated. It is hard to make something simple. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
 ## 🌟 Experiences (1689 days)
