@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  All we are saying is give peace a chance. 
+  He, who every morning plans the transactions of the day, and follows that plan, carries a thread that will guide him through a labyrinth of the most busy life. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1691 days)
+## 🌟 Experiences (1692 days)
 
 ### 🧮 Programming languages
 
