@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  I start where the last man left off. 
+  The best revenge is to be unlike him who performed the injury. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1696 days)
+## 🌟 Experiences (1697 days)
 
 ### 🧮 Programming languages
 
