@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The best revenge is to be unlike him who performed the injury. 
+  Success is dangerous. One begins to copy oneself, and to copy oneself is more dangerous than to copy others. It leads to sterility. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1697 days)
+## 🌟 Experiences (1698 days)
 
 ### 🧮 Programming languages
 
