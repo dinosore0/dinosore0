@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Simplicity is the ultimate sophistication. 
+  The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1700 days)
+## 🌟 Experiences (1701 days)
 
 ### 🧮 Programming languages
 
