@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  The power of imagination makes us infinite. 
+  Live the life you've dreamed. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1704 days)
+## 🌟 Experiences (1705 days)
 
 ### 🧮 Programming languages
 
