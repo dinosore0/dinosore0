@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Live the life you've dreamed. 
+  Health is the soul that animates all the enjoyments of life, which fade and are tasteless without it. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1705 days)
+## 🌟 Experiences (1706 days)
 
 ### 🧮 Programming languages
 
