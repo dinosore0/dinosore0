@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Whether you think you can or think you can't – you are right. 
+  When you create art, the world has to wait. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1708 days)
+## 🌟 Experiences (1709 days)
 
 ### 🧮 Programming languages
 
