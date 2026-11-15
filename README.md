@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A good leader takes a little more than his share of the blame, a little less than his share of the credit. 
+  Life is pure adventure, and the sooner we realize that, the quicker we will be able to treat life as art. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1711 days)
+## 🌟 Experiences (1712 days)
 
 ### 🧮 Programming languages
 
