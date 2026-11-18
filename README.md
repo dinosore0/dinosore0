@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  If one day the speed kills me, do not cry because I was smiling. 
+  Far and away the best prize that life has to offer is the chance to work hard at work worth doing. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1714 days)
+## 🌟 Experiences (1715 days)
 
 ### 🧮 Programming languages
 
