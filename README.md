@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give. 
+  Life can only be understood backwards; but it must be lived forwards. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1717 days)
+## 🌟 Experiences (1718 days)
 
 ### 🧮 Programming languages
 
