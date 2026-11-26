@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  Any business plan won't survive its first encounter with reality. The reality will always be different. It will never be the plan. 
+  A work of art is the unique result of a unique temperament. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1722 days)
+## 🌟 Experiences (1723 days)
 
 ### 🧮 Programming languages
 
