@@ -16,10 +16,10 @@
 ## 💡 Daily Quote
 <pre>
 Today's insight:  
-  A work of art is the unique result of a unique temperament. 
+  Any man who reads too much and uses his own brain too little falls into lazy habits of thinking. 
 </pre>
 The Daily Quote will be updated automatically every 30 minutes!! [How can I do that?](https://github.com/dinosore0/dinosore0)
-## 🌟 Experiences (1723 days)
+## 🌟 Experiences (1724 days)
 
 ### 🧮 Programming languages
 
